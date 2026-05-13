@@ -12,7 +12,7 @@ jobs:
       contents: write
 
     steps:
-      - uses: actions/checkout@v4
+      - uses: actions/checkout@v5
 
       - uses: actions/setup-python@v5
         with:
@@ -29,7 +29,37 @@ jobs:
       - name: Run archiver
         run: python .github/script/fetch_telegram_pw.py
 
-      - name: Commit and push changes
+      # ── ZIP Telegram Content ────────
+      - name: Zip Telegram content
+        run: |
+          if [ -d telegram/content ] && [ "$(ls -A telegram/content)" ]; then
+            echo "Zipping Telegram content..."
+            zip -j -s 99m -r telegram_content.zip telegram/content/
+          else
+            echo "No new content to zip."
+          fi
+
+      # ── Upload to GitHub Releases ─
+      - name: Upload Content to GitHub Releases
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          if ls telegram_content.z* 1> /dev/null 2>&1; then
+            TAG_NAME="tg-$(date +'%Y%m%d-%H%M%S')"
+            echo "Creating Release $TAG_NAME and uploading files..."
+            gh release create "$TAG_NAME" telegram_content.z* \
+              --title "Telegram Download $TAG_NAME" \
+              --notes "Automated Telegram media fetch via GitHub Actions."
+            echo "✅ Media files uploaded to Releases."
+            
+            # حذف فایل‌های محتوا برای جلوگیری از کامیت شدن تصادفی
+            rm -rf telegram/content/
+          else
+            echo "No archive created, skipping upload."
+          fi
+
+      # ── Commit State Files Only ────────
+      - name: Commit and push state changes
         env:
           BRANCH: ${{ github.ref_name }}
         run: |
@@ -37,18 +67,17 @@ jobs:
           git config user.email "github-actions[bot]@users.noreply.github.com"
           git config http.postBuffer 524288000
 
-          # Stage only if files exist (avoid error on empty content dir)
-          if [ -d telegram/content ]; then git add telegram/content/; fi
+          # فقط فایل‌های متنی و لاگ‌ها اضافه شوند، نه محتوای رسانه‌ای!
           git add telegram/last_ids.json telegram.md
 
           # Skip commit if nothing changed
           if git diff --staged --quiet; then
-            echo "No changes to commit."
+            echo "No state changes to commit."
             exit 0
           fi
 
           # Commit with a descriptive message
-          git commit -m "Update Telegram messages [skip ci]"
+          git commit -m "Update Telegram tracking IDs [skip ci]"
 
           # Retry loop with pull‑rebase to avoid conflicts
           RETRIES=5
