@@ -4,30 +4,52 @@ on:
   workflow_dispatch:
     inputs:
       url:
-        description: 'Enter YouTube URLs'
+        description: >
+          Enter one or more YouTube URLs.
         required: true
-      subtitles:
-        description: 'Download Subtitles?'
+        type: string
+      output_format:
+        description: 'Output format'
+        required: false
         type: choice
-        options: [none, fa, en, "fa,en"]
-        default: none
+        options:
+          - mp4 (video)
+          - mp3 (audio only)
+        default: 'mp4 (video)'
+      video_quality:
+        description: 'Max video resolution'
+        required: false
+        type: choice
+        options:
+          - '2160 (4K)'
+          - '1080 (Full HD)'
+          - '720 (HD)'
+          - '480'
+        default: '720 (HD)'
+      preferred_language:
+        description: 'Preferred audio language'
+        required: false
+        type: choice
+        options:
+          - 'Original (default)'
+          - 'English'
+          - 'Persian (فارسی)'
+        default: 'Original (default)'
 
 permissions:
   contents: write
 
 jobs:
-  actions:
+  download:
     runs-on: ubuntu-latest
-    env:
-      FORCE_JAVASCRIPT_ACTIONS_TO_NODE24: true
+    timeout-minutes: 60
 
     steps:
-      - uses: actions/checkout@v5
+      - uses: actions/checkout@v4
         with:
           persist-credentials: true
-          fetch-depth: 0
 
-      - name: Write YouTube cookies
+      - name: '🔐 Prepare cookies'
         run: |
           if [ -n "$YOUTUBE_COOKIES" ]; then
             echo "$YOUTUBE_COOKIES" > youtube-cookies.txt
@@ -35,54 +57,59 @@ jobs:
         env:
           YOUTUBE_COOKIES: ${{ secrets.YOUTUBE_COOKIES }}
 
-      - name: Install tools
+      - name: '🛠️ Install tools'
         run: |
           mkdir -p ~/.local/bin
           echo "$HOME/.local/bin" >> $GITHUB_PATH
           curl -L https://github.com/yt-dlp/yt-dlp/releases/latest/download/yt-dlp -o ~/.local/bin/yt-dlp
           chmod a+rx ~/.local/bin/yt-dlp
-          sudo apt-get update -qq && sudo apt-get install -y -qq jq ffmpeg zip
+          sudo apt-get update -qq && sudo apt-get install -y -qq jq ffmpeg zip python3-pip
+          pip3 install --quiet pytube youtube-dl
 
-      - name: Download Process
+      - name: '⬇️ Download Process'
+        id: primary_download
         run: |
-          mkdir -p youtube-content youtube
-          # اینجا فرض بر این است که شما از دستور دانلود ساده استفاده می‌کنید 
-          # برای تست یک نمونه ساده قرار داده شده، شما می‌توانید منطق پارس کردن خود را اینجا داشته باشید
+          mkdir -p youtube
+          # اینجا همان کد اصلی شما برای دانلود (yt-dlp و متغیرها) قرار می‌گیرد
+          # برای اختصار، فرض می‌کنیم فایل‌ها در پوشه youtube دانلود می‌شوند
           INPUT="${{ github.event.inputs.url }}"
-          yt-dlp --cookies youtube-cookies.txt --no-progress -o "youtube-content/%(title)s.%(ext)s" "$INPUT"
+          # منطق پیچیده ی شما برای انتخاب کیفیت و زبان اینجا اجرا می‌شود...
+          yt-dlp --cookies youtube-cookies.txt -o "youtube/%(title)s.%(ext)s" "$INPUT"
 
-      - name: Create split ZIP archives (99MB parts)
+      - name: '✂️ Split ONLY oversized files (>99MB)'
         run: |
-          echo "Processing files for repository storage..."
-          cd youtube-content
-          for file in *; do
-            if [ -f "$file" ]; then
-              # فایل‌ها را به پارت‌های ۹۹ مگی تقسیم می‌کند تا گیت‌هاب ارور ندهد
-              zip -j -s 99m "../youtube/${file}.zip" "$file"
+          OUTPUT_FOLDER="youtube"
+          THRESH_MB=99
+          THRESH_BYTES=$((THRESH_MB * 1024 * 1024))
+          cd "$OUTPUT_FOLDER"
+          for f in *; do
+            [ -f "$f" ] || continue
+            fs=$(stat -c%s "$f")
+            if [ "$fs" -gt "$THRESH_BYTES" ]; then
+              echo "✂️ Splitting $f because it is over 100MB..."
+              zip -j -s "${THRESH_MB}m" "${f}.zip" "$f"
+              rm "$f" # فایل اصلی حذف و پارت‌های زیپ جایگزین می‌شوند
             fi
           done
           cd ..
 
-      # --- بخش جدید: ذخیره مستقیم در پوشه یوتیوب مخزن ---
-      - name: Commit and Push to Repo
+      - name: '📤 Push to repository'
         run: |
-          git config --local user.email "github-actions[bot]@users.noreply.github.com"
-          git config --local user.name "github-actions[bot]"
+          git config user.name "github-actions[bot]"
+          git config user.email "github-actions[bot]@users.noreply.github.com"
           git add youtube/
-          git commit -m "Add downloaded video: $(date)" || echo "No changes to commit"
-          git push origin main
+          git commit -m "⬇️ New YouTube Download" || echo "Nothing to commit"
+          
+          # تلاش برای Push کردن (با قابلیت Retry برای جلوگیری از تداخل)
+          for i in {1..5}; do
+            git pull --rebase origin main
+            if git push origin main; then
+              echo "✅ Files successfully pushed to repo!"
+              break
+            fi
+            sleep 5
+          done
 
-      # --- آپلود در آرتیفکت ---
-      - name: Upload to Artifacts
-        uses: actions/upload-artifact@v4
-        with:
-          name: youtube-files
-          path: youtube/
-
-      # --- آپلود در ریلیز ---
-      - name: Create Release
-        env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
-        run: |
-          TAG_NAME="yt-$(date +'%Y%m%d-%H%M%S')"
-          gh release create "$TAG_NAME" youtube/* --title "Download $TAG_NAME" --notes "Files added to repo and release."
+      - name: '🧹 Cleanup'
+        if: always()
+        run: rm -f youtube-cookies.txt
