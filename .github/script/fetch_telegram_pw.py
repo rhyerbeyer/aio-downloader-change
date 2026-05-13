@@ -13,6 +13,7 @@ Scrape public Telegram channels with Playwright.
 - Download links open in a new tab to preserve scroll position.
 - Ignores .webm videos (animations/stickers) to improve media detection.
 - Captions use inline Vazirmatn font (falls back to Tahoma if not installed).
+- Limits the maximum number of fetched messages per channel to prevent storage overflow.
 """
 
 import asyncio
@@ -42,6 +43,9 @@ HEADERS = {
     "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
                   "(KHTML, like Gecko) Chrome/120.0.0.0 Safari/537.36"
 }
+
+# اعمال محدودیت برای استخراج پیام در هر کانال (مقدار پیش‌فرض 50)
+MAX_MESSAGES = int(os.environ.get("MAX_MESSAGES", 50))
 
 MSG_START = "<!-- MSG START -->"
 MSG_END   = "<!-- MSG END -->"
@@ -540,6 +544,12 @@ async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
             print("    No new messages added – end of history.")
             break
 
+        # بررسی محدودیت MAX_MESSAGES برای توقف اسکرول و صرفه‌جویی در منابع
+        valid_count = sum(1 for m in all_messages if m["id"] > last_id)
+        if valid_count >= MAX_MESSAGES:
+            print(f"    Reached MAX_MESSAGES limit ({MAX_MESSAGES}) for new messages - stopping scroll.")
+            break
+
         await page.evaluate("window.scrollTo(0, document.body.scrollHeight)")
         await asyncio.sleep(2)
 
@@ -554,6 +564,12 @@ async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
 
     filtered = [m for m in all_messages if m["id"] > last_id]
     filtered.sort(key=lambda x: x["id"], reverse=True)
+    
+    # اعمال دقیق محدودیت قبل از ارسال پیام‌ها جهت دانلود
+    if len(filtered) > MAX_MESSAGES:
+        print(f"    ⚠️ Limiting to newest {MAX_MESSAGES} messages to save storage.")
+        filtered = filtered[:MAX_MESSAGES]
+        
     return filtered
 
 
