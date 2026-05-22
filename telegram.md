@@ -7,6 +7,598 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 02:16
+---
+
+## VahidOOnLine — post 241611
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241611_1779489962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تام کاتن، سناتور جمهوری‌خواه، در نامه‌ای رسمی به اسکات بسنت، وزیر خزانه‌داری ایالات متحده، ضمن هشدار درباره راه‌اندازی «عوارضی تهران» توسط سپاه پاسداران خواستار اعمال تحریم‌های تنبیهی فوری علیه حامیان این طرح شد. کاتن با مواضع تند خود علیه اقدام غیرقانونی ایران در ایجاد «سازمان تنگه خلیج فارس» (PGSA) نوشت: «این سازمان که مستقیما زیر نظر سپاه پاسداران (به عنوان یک سازمان تروریستی) فعالیت می‌کند، حق حاکمیت برای تنظیم تردد و دریافت عوارض تا سقف ۲ میلیون دلار برای هر کشتی را ادعا کرده است؛ بنابراین هر دلار جمع‌آوری‌شده، مستقیما برای تأمین مالی تروریسم هزینه می‌شود.» این سناتور آمریکایی با تأکید بر اینکه این اقدام آزادی کشتیرانی بین‌المللی را به خطر می‌اندازد، صراحتا اعلام کرد: «این سازمان بدون رضایت سایر کشورها نمی‌تواند فعالیت کند و ایالات متحده باید اطمینان حاصل کند که هر بازیگری که به رژیم تروریستی ایران کمک می‌کند، پاسخگو خواهد شد؛ به همین دلیل من از به کارگیری اختیارات موجود برای اعمال تحریم بر این سازمان، مقامات آن و هر نهاد خارجی که این باج‌ها را به ایران پرداخت، پردازش یا تسهیل می‌کند، کاملا حمایت می‌کنم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241610
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241610_1779489963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش فارس، خبرگزاری وابسته به سپاه پاسداران، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی روز جمعه در تماس تلفنی با نیچروان بارزانی، رئیس اقلیم کردستان عراق، درباره روابط دوجانبه ایران و عراق و آخرین تحولات منطقه گفتگو کرد. براساس این گزارش، محورهای اصلی و مهم این تبادل نظر بر مناسباتی از جمله توسعه مراودات اقتصادی-تجاری، تقویت هماهنگی‌ها برای حفظ امنیت مرزهای مشترک و مقابله با تروریسم متمرکز بود. فارس نوشت، دو طرف همچنین در خصوص تحولات منطقه‌ای رایزنی کرده و بر اهمیت اهتمام و هم‌گرایی کشورهای منطقه جهت تقویت امنیت درون‌زا تأکید کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241609
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241609_1779489964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️«صبحانه زنان»؛ بنیاد زنان نیویورک ۱۵۰۰ زن تاثیرگذار را در نیویورک گرد هم آورد
+
+📌یکی از نمادهای مشهور این مراسم اهدای جایزه «عصای راه‌پیمایی» است؛ تندیسی نمادین که مفاهیمی چون قدرت، خرد و حرکت روبه‌جلو را نمایندگی می‌کند
+
+♦️برگزارکنندگان این مراسم تاکید کردند این بنیاد طی سال‌ها توانسته است زنان آمریکایی را، فارغ از وابستگی‌های حزبی و تفاوت‌های سیاسی، کنار یکدیگر گرد آورد و از طریق فعالیت‌های مدنی، آموزشی و اقتصادی، بر جامعه آمریکا تاثیر بگذارد.
+
+یکی از نمادهای این مراسم «عصای راه‌پیمایی» (Walking Stick Award) است؛ هدیه‌ای نمادین و دست‌ساز که با الهام از هنرهای بومی، مختص به هر فرد ساخته و تزیین و به زنان تاثیرگذار، فعالان اجتماعی و رهبران مدنی اهدا می‌شود و مفاهیمی چون قدرت، خرد و حرکت روبه‌جلو را نمایندگی می‌کند.
+ایده ساخت و اهدای این عصای تزیین‌شده که گوناگونی و جمعیت رنگارنگ آمریکا را به تصویر می‌کشد، یکی از سازمان‌های تحت‌حمایت بنیاد که در حوزه توانمند سازی زنان فعالیت می‌کند، مطرح و اجرا کرد.
+
+بیشتر بخوانید...
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12058
+
+
+
+
+## WithYashar — post 12057
+
+
+
+
+## WithYashar — post 12056
+
+
+
+
+## WithYashar — post 12055
+
+
+
+
+## WithYashar — post 12054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسایی که بلاک میشن بیان محترمانه عذرخواهی کنند بدون حرف اضافی آنبلاک میکنم
+قوربان شوما دیکتاتور مهربون یاشار 🤣❤️‍🩹🙌🏾
+</div>
+
+## WithYashar — post 12053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیتکوین شلوار خودشو خیس کرد داره میریزه🥴
+@withyashar
+</div>
+
+## WithYashar — post 12052
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12052_1779489967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ خیلی فوری‌ نیویورک رو ترک و مستقیم برگشت کاخ‌سفید.
+او پیشتر خبر از کنسل کردن تعطیلات اخر هفته خود و رفتن به عروسی پسر ارشدش رو به علت مسائل ایران داده بود..
+@withyashar
+</div>
+
+## WithYashar — post 12051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لطفا از ‌دایرکت بی مورد پرهیز کنید در زمان شلوغی … دایرکته محل کامنت و احساسات شما نیست ، هواپیمای هیئت قطری هم میره ترکیه ! قبل از ارسال خبر ببینید که در چنل نیسن بعد بفرستید ، دایرکت فقط یک پیغام ارسال کنید هر چند خط شد … ممنون از توجه شما به این موضوع
+</div>
+
+## WithYashar — post 12050
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12050_1779489970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگندههای ایرانی که از مهرآباد بلند شدند برای اسکورت هواپیمای مقامات قطری بودند.
+@withyashar
+</div>
+
+## WithYashar — post 12049
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12049_1779489971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همکنون هواپیمای گشت دریایی چندمنظوره (بویینگ P-8 پوزایدن) و یک پهپاد ناشناس بدون شک آمریکایی بر فراز خلیج فارس !
+@withyashar
+</div>
+
+## WithYashar — post 12048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیئت قطری تهران را ترک کرد
+
+گزارش‌ها حاکی است هیئت قطری پس از رایزنی‌های دیپلماتیک، تهران را ترک کرده است.
+
+این سفر در حالی انجام شد که قطر در کنار پاکستان و چند کشور منطقه، در تلاش برای میانجیگری میان ایران و آمریکا جهت دستیابی به توافقی برای پایان جنگ و ادامه مذاکرات هسته‌ای بود.
+@withyashar
+</div>
+
+## mwarmonitor — post 9510
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9510_1779489972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در میان گزارش‌هایی مبنی بر اینکه ایران با صدور اطلاعیه هوانوردان (NOTAM) حریم هوایی خود را تا روز دوشنبه بسته است، یک هواپیمای قطری که به‌عنوان هواپیمای تشریفاتی (VIP) دولت قطر شناخته می‌شود، در حال ترک تهران مشاهده شده است.
+
+🔸این پرواز پس از سفر هیأت قطری به تهران برای تسهیل دستیابی به توافقی میان آمریکا و ایران انجام می‌شود.
+
+🔹در حالی که Asim Munir، تصمیم‌گیرنده اصلی پاکستان، قرار است فردا با همتایان ایرانی خود دیدار کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک منبع آمریکایی به Al Jazeera گفت:
+
+🔸رئیس ستاد مشترک ارتش آمریکا در نشست شورای امنیت ملی شرکت کرده و گزینه‌هایی را در صورت شکست مذاکرات با ایران به رئیس‌جمهور ارائه داده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس گزارش CBS News به نقل از چند منبع، برخی از مقامات نظامی و اطلاعاتی آمریکا برنامه‌های آخر هفته تعطیلات روز یادبود (Memorial Day) را لغو کرده‌اند؛ این اقدام در پی انتظار برای احتمال حملات علیه ایران صورت گرفته است.
+
+🔸دولت ترامپ در حال آماده‌سازی برای دور تازه‌ای از حملات نظامی است، هرچند تا بعدازظهر جمعه هیچ تصمیم نهایی در این‌باره اتخاذ نشده بود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ حرکت جدید به رقص معروف خودش اضافه کرد 🏌 @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342149
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342149_1779489972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump announces that 9/11 hero Welles Crowther will posthumously receive the Presidential Medal of Freedom.
+
+Known as “The Man in the Red Bandana,” Crowther repeatedly ran back into the South Tower on 9/11 to help others escape, saving as many as 18 lives before losing his own.
+
+Allison Crowther said her son’s legacy continues to endure nearly 25 years later: “Welles’ light still shines brightly.”
+</div>
+
+## kianmeli1 — post 87570
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87570_1779489973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ سوار هواپیمای نیروی هوایی در نیویورک شد، اقامت آخر هفته خود در نیوجرسی را لغو کرد و به کاخ سفید بازگشت.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87569
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87569_1779489976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هیئت قطر تهران را ترک کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338502
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338502_1779489977.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال گزارش داد پر شدن مخازن نفت و فشارهای آمریکا، جمهوری اسلامی را با بحران نفتی روبه‌رو کرده است. کارشناسان هشدار داده‌اند تهران ممکن است ناچار به تعطیلی برخی چاه‌های نفت شود؛ اقدامی که می‌تواند به صنعت نفت ایران آسیب بزند.
+
+گفت‌وگو با مهدی مصلحی، کارشناس بازار نفت
+@iranintltv
+</div>
+
+## IranIntlTV — post 338501
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338501_1779489979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاور رییس دولت امارات متحده عربی گفت حملات جمهوری اسلامی باعث تغییر نگاه امنیتی کشورهای منطقه شده و برخی دولت‌های عربی اکنون تهران را تهدیدی بزرگ‌تر از اسرائیل می‌دانند.
+
+گفت‌وگو با امیرحسین میراسماعیلی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 338500
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338500_1779489981.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با سفر فرمانده ارتش پاکستان به ایران، رویترز از اعزام تیم مذاکره‌کننده قطری به تهران با هماهنگی آمریکا خبر داد. رسانه‌های عربی نیز گزارش دادند پیش‌نویس توافق اولیه شامل آتش‌بس، توقف حملات و آغاز مذاکرات در هفت روز آینده است.
+
+گفت‌وگو با جمشید برزگر، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 338499
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338499_1779489985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با تشدید تنش‌ها میان تهران و واشینگتن و گمانه‌زنی‌ها درباره احتمال توافق، ترامپ گفت آمریکا رفتاری مشابه آنچه در ونزوئلا رخ داد، با جمهوری اسلامی انجام می‌دهد. او گفت ایران بی‌صبرانه به‌دنبال رسیدن به توافق با آمریکا است.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 218398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هواپیماهای ای-۱۰ آمریکا در خاورمیانه مجهز به سامانه جدید سوخت‌گیری شدند
+
+◾️بر اساس تصاویر تازه‌منتشرشده، نیروی هوایی آمریکا هواپیماهای تهاجمی «ای-۱۰ تاندر بولت ۲» را با یک سامانه جدید سوخت‌گیری هوایی که پیشتر آزمایش‌شده است به خاورمیانه اعزام کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8152863.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سناتور آمریکایی به‌دنبال تحریم کشورهای همکار با طرح عوارض‌گیری جمهوری اسلامی در تنگه هرمز
+
+◾️به گزارش «واشنگتن فری‌بیکن»، تام کاتن، سناتور جمهوری‌خواه آمریکا، در حال تهیه طرحی قانونی است که بر اساس آن هر کشوری که به جمهوری اسلامی برای اجرای طرح دریافت عوارض در تنگه هرمز کمک کند، به‌سرعت تحریم خواهد شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8152861.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️قتل شهروند مازندرانی با شلیک مستقیم مامور نیروی انتظامی؛ دو هزار ساعت خاموشی دیجیتال در ایران
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14697
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14697_1779489987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹کپشن با شما ...
+
+▪️جهت ثبت در تاریخ
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی‌بی‌اس: دولت ترامپ در حال آماده‌سازی برای حملات جدید به ایران است
+
+💢شبکه CBS News گزارش داد دولت ترامپ امروز در حال آماده‌سازی برای دور جدیدی از حملات نظامی علیه ایران بوده است، هرچند تاکنون تصمیم نهایی اتخاذ نشده است.
+
+بر اساس این گزارش‌ها:
+
+▪️ چندین عضو ارتش و جامعه اطلاعاتی آمریکا برنامه‌های تعطیلات Memorial Day خود را لغو کرده‌اند
+
+▪️ این اقدام در پی احتمال انجام حملات جدید علیه ایران صورت گرفته است
+
+▪️ ترامپ همزمان جلسات فشرده‌ای با مشاوران امنیت ملی و فرماندهان نظامی برگزار کرده است
+
+همچنین گزارش شده:
+
+▪️ کاخ سفید همچنان در حال بررسی گزینه‌های نظامی و پیامدهای احتمالی تشدید درگیری است
+▪️ مذاکرات غیرمستقیم با ایران هنوز ادامه دارد اما پیشرفت قابل‌توجهی حاصل نشده
+▪️ برخی منابع آمریکایی می‌گویند در صورت شکست دیپلماسی، گزینه نظامی دوباره فعال خواهد شد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس: ترامپ در حال بررسی حملات نظامی جدید علیه ایران است
+
+💢آکسیوس به نقل از مقام‌های آمریکایی گزارش داد دونالد ترامپ روز جمعه با مشاوران ارشد امنیت ملی خود دیدار کرده تا درباره احتمال انجام حملات نظامی جدید علیه ایران گفت‌وگو کند.
+
+💢بر اساس این گزارش:
+
+▪️ ترامپ به‌شدت در حال بررسی ازسرگیری حملات در صورت شکست مذاکرات است
+
+▪️ جلسه با حضور مقام‌های ارشد امنیتی و اطلاعاتی آمریکا برگزار شده
+
+▪️ همزمان تلاش‌های میانجیگرانه پاکستان و قطر برای جلوگیری از بازگشت جنگ ادامه دارد
+
+💢آکسیوس همچنین نوشته:
+
+▪️ ترامپ طی روزهای اخیر از روند مذاکرات با ایران ناراضی‌تر شده است
+
+▪️ هنوز تصمیم نهایی برای حمله اتخاذ نشده
+
+▪️ برخی منابع معتقدند در صورت عدم پیشرفت ناگهانی در مذاکرات، گزینه نظامی دوباره فعال خواهد شد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14693
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14693_1779489990.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هیئت قطری تهران را ترک کرد
+
+💢گزارش‌ها حاکی است هیئت قطری پس از رایزنی‌های دیپلماتیک، تهران را ترک کرده است.
+
+💢این سفر در حالی انجام شد که قطر در کنار پاکستان و چند کشور منطقه، در تلاش برای میانجیگری میان ایران و آمریکا جهت دستیابی به توافقی برای پایان جنگ و ادامه مذاکرات هسته‌ای بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20574
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20574_1779489991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هیئت ارسالی قطر که برای ارسال پیام و میانجی به تهران آمده بودند، تهران را ترک کردند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20573
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20573_1779489992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فضای هوایی غرب ایران طبق یک NOTAMجدید تا صبح روز دوشنبه بسته شده است.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281814
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281814_1779489992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مقامات استان بلوچستان پاکستان در حال تحقیق درباره دزدیده شدن بیش از ۴۰۰ گوسفند ممتاز از یک دامداری تحت نظارت دولت هستند.
+
+کارکنان این دامداری می گویند که گروهی از مردان مسلح سوار بر موتورسیکلت این گوسفندها را که از نژاد قره‌قل هستند، دزدیدند.
+
+پشم گوسفند قره‌قل که به گوسفند پرشین یا ایرانی هم معروف است، ضخیم، چین‌دار، مخملی، درخشنده و بسیار قیمتی است.
+
+این گونه از پشم لوکس محسوب می‌شود و تجارت سودآوری است. پشم قره‌قل در صنایع مختلفی از جمله منسوجات و فرشبافی استفاده دارد. نخ حاصل از این پشم در لباس‌های ضخیم زمستانی با دوام بالا استفاده می‌شود و به‌علت تاب‌آوری بالا، پشم قره‌قل از مواد با دوام بافت قالی در پاکستان، افغانسان و ایران است.
+
+مقامات محلی بلوچستان پاکستان می‌گویند که گوسفندها برای تحقیقات و بره‌کشی در آن مرکز نگهداری می‌شدند. آن‌ها می‌گویند که سرقتی در این ابعاد از یک مرکز دولتی کم‌سابقه است.
+
+📷 NurPhoto via Getty Images
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389987
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389987_1779489993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389986
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389986_1779489994.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A1
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389985
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389985_1779489995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389984
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389984_1779489995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سریال (Rooster) با میانگین بیننده ۶.۵ میلیون نفر برای هر قسمت، موفق ترین سریال شبکه HBO در ۱۵ سال اخیر شده! یعنی خییییلی خفنه
+
+این سریال در فصل اولش به یکی از ۳ سریال کمدی پربیننده تاریخ این شبکه تبدیل شده. موفقیتی خارق‌العاده به لطف استیو کارل عزیز.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389983
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389983_1779489996.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببخشین این سایز بزرگتر نداره؟
+مثلا اندازه یه دختر ۲۳ ساله؟؟؟؟؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به فرزندان خود راهنما زدن، دنگ دادن، حرمت نون و نمک نگه داشتن، با دهن بسته غذا خوردن و متعهد بودن رو بیاموزید.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏جمهوری اسلامی هم مملکتمو ازم گرفت، هم زندگیمو، هم آینده‌مو، هم سلامت روانمو و هم عفّت کلاممو.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389980
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389980_1779489996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پشماتون بریزه؛ این صحبتای مراد ویسی مربوط به ۴ سال پیشه که مو به مو اتفاقات فعلی رو پیش بینی کرده بود!
+
+به محض اینکه ایران بره سمت بمب اتم، اسرائیل بهش حمله می‌کنه. آمریکا چه بخواد چه نخواد مجبور میشه پشت دست اسرائیل بازی کنه.
+اگه جنگ بشه، آسیبی که ایران می‌بینه خیلی بیشتر از جنگ ایران و عراقه. زیرساخت های کشور نابود و ایران تقریبا ویران میشه!
+متاسفانه توی جنگ چه بخواین چه نخواین، مردم عادی و غیر نظامیام کشته میشن...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389979
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389979_1779489999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 همه منتظرن ترامپ در مورد حمله به ایران صحبت کنه، ترامپ تو سخنرانی امشبش:
+
+باور کنین من یه نابغه‌م، من تونستم این معادله رو حل کنم.
+(203 × 9 ÷ 2 + 1324 − 1292) × 19‌‌
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121911
+
+<div align="center">
+  <a href="telegram/content/alonews_121911_1779490000.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله هوایی اسرائیل به ساختمانی در صور در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121910
+
+<div align="center">
+  <a href="telegram/content/alonews_121910_1779490000.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی هم اکنون:
+زیاده‌خواهی آمریکا مانع اصلی در روند گفتگوها است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121909
+
+<div align="center">
+  <a href="telegram/content/alonews_121909_1779490000.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به سمت کاخ سفید رفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 01:15
 ---
 
