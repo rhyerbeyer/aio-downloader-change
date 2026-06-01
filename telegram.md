@@ -7,6 +7,1557 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 02:25
+---
+
+## VahidOOnLine — post 243290
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243290_1780354506.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جعفر پناه‌پور، محیط‌‌بان و عکاس حیات وحش، روز دوشنبه ۱۱ خردادماه، ویدیویی از یک پلنگ ایرانی را که در میان پوشش گیاهی پارک ملی گلستان دیده می‌شود، در اینستاگرام منتشر کرد.
+
+
+پارک ملی گلستان یکی از مهم‌ترین زیستگاه‌های این گونه ارزشمند به شمار می‌رود و نقش مهمی در حفاظت از آن دارد.
+
+پلنگ ایرانی در فهرست گونه‌های در معرض خطر قرار دارد و پارک ملی گلستان با تنوع زیستی کم‌نظیر خود، از مهم‌ترین مناطق حفاظت‌شده کشور برای حفظ و بقای این گونه محسوب می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243289
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243289_1780354508.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، در گفتگو با «الجزیره» در پاسخ به سوالی درباره طرح دونالد ترامپ مبنی بر خارج کردن اورانیوم غنی‌شده از ایران گفت: «این کار دشوار است، اما غیرممکن نیست.» گروسی با اشاره به چالش‌های فنی این اقدام توضیح داد: «انتقال این مواد آسان نیست، زیرا به شکل گاز است و آلودگی بالایی دارد. بنابراین عملیات ساده‌ای نخواهد بود، اما با این حال قابل انجام است.» او همچنین به گزینه‌های جایگزین دیگر اشاره کرد و افزود: «گزینه‌های دیگری نیز وجود دارد که پیش‌تر مورد بررسی قرار گرفته‌اند، مانند رقیق‌سازی این مواد. از آنجا که ایران اکنون اورانیوم را تا ۶۰ درصد غنی‌سازی کرده و به درجه نظامی (۹۰ درصد) بسیار نزدیک شده است، رقیق‌سازی آن به سطوح بسیار پایین‌تر می‌تواند مدیریت این پرونده را آسان‌تر کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243288
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243288_1780354509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه اجتماعی «تروث سوشال» درباره جزئیات رایزنی‌های خود برای توقف درگیری‌ها در لبنان نوشت: «امروز گفتگویی با بنیامین نتانیاهو داشتم و از او خواستم که دست به یک حمله بزرگ در بیروت نزند، او نیروهایش را بازگرداند.» ترامپ افزود: «من همچنین گفتگویی با نمایندگان رهبران حزب‌الله داشتم و آن‌ها موافقت کردند که شلیک به سمت اسرائیل و سربازانش را متوقف کنند. به همین ترتیب، اسرائیل هم موافقت کرد که شلیک به سمت آن‌ها را متوقف کند.» رئیس‌جمهوری آمریکا در پایان پیام خود با ابراز امیدواری نسبت به پایداری این وضعیت نوشت: «ببینیم این وضعیت چقدر دوام می‌آورد. امیدوارم که برای همیشه باشد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243287
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243287_1780354509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگوی تلفنی با شبکه خبری «ای‌بی‌سی نیوز» اعلام کرد که به نظر او، توافق با تهران برای تمدید آتش‌بس و بازگشایی تنگه هرمز «طی هفته آینده» حاصل خواهد شد. ترامپ روز دوشنبه در گفتگو با جاناتان کارل، خبرنگار ارشد این شبکه در واشنگتن، با ابراز خوش‌بینی گفت: «اوضاع خوب به نظر می‌رسد.» رئیس‌جمهوری آمریکا با اشاره به تنش‌های اخیر افزود: «امروز مشکل کوچکی پیش آمد، اما همان‌طور که احتمالا پیش‌تر متوجه شدید، من خیلی سریع آن را برطرف کردم.» او توضیح داد که این مشکل ناشی از ناراحتی و عصبانیت مقام‌های ایران از حملات اسرائیل به لبنان بوده است؛ ترامپ در تشریح نحوه حل این بحران گفت: «من با حزب‌الله صحبت کردم و گفتم تیراندازی نکنید؛ با بنیامین نتانیاهو، نخست‌وزیر اسرائیل هم صحبت کردم و گفتم تیراندازی نکنید، و هر دو طرف شلیک به یکدیگر را متوقف کردند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی تاج، رئیس فدراسیون فوتبال، در گفتگو با صداوسیما در پاسخ به ابهامات و نگرانی‌ها درباره ناامنی شهر «تیخوانا» در مکزیک و حضور گسترده گروه‌های بزرگ مخدر در این منطقه گفت: «ما کار به موادفروش‌ها نداریم و نمی‌خواهیم بروم آنجا اصلاحشان کنیم». تاج با رد آمارهای مربوط به ناامنی این شهر مدعی شد که طبق گفتگوهایش با سفیر و استاندار منطقه، شرایط مناسب است و افزود: «در همه‌جا جرم و جنایت هست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243285
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243285_1780354509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گزارش فارس، خبرگزاری وابسته به سپاه، محمدباقر قالیباف، رئیس مجلس شورای اسلامی روز دوشنبه، در تماس تلفنی با نبیه بری، رئیس مجلس لبنان با تاکید به اینکه «پیوند جمهوری اسلامی و لبنان ناگسستنی است» گفت: «جان ما و شما یکی است و چنانچه توافقی برای پایان جنگ بین ایران و آمریکا شکل بگیرد، این آتش‌بس شامل توقف حملات در همه جبهه‌ها به‌ویژه لبنان خواهد بود.» قالیباف با اشاره به اینکه در دو روز گذشته توقف حملات اسرائیل با جدیت دنبال شده است، گفت در صورت تداوم این حملات، تهران نه‌تنها روند گفتگوها را متوقف می‌کند، بلکه در برابر این اقدامات خواهد ایستاد. براساس این گزارش، در مقابل، رئیس مجلس لبنان با تقدیر از تلاش‌های جمهوری اسلامی، تاکید کرد که لبنان هرگز مواضع تهران را در این مرحله حساس فراموش نخواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243284
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243284_1780354510.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی تاج، رئیس فدراسیون فوتبال، در گفتگو با صداوسیما، با اشاره به هزینه‌های سنگین ارزی و دشواری‌های هماهنگ کردن بازی‌های تدارکاتی برای تیم ملی اعلام کرد: «ما ۱۰۰ هزار دلار به مالی دادیم که بیاید. پول هواپیمایشان را دادیم، پول هتلشان را هم دادیم. در این شرایط بازی هماهنگ کردن خیلی سخت است». بر اساس گزارش‌ها، تیم ملی که تاکنون موفق به بازی با هیچ‌کدام از تیم‌های راه‌یافته به جام جهانی نشده و پس از لغو مسابقات با اسپانیا، پرتغال، مقدونیه و آنگولا، حتی ناچار به انجام بازی درون‌تیمی و دیدار با گامبیا (تیم ۱۱۶ دنیا) شده بود، قرار است روز پنجشنبه ۱۴ خرداد در آنتالیا به مصاف مالی برود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13224
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13224_1780354512.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم شهر…
+@withyashar
+</div>
+
+## WithYashar — post 13223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای آکسیوس: درگیری نتانیاهو و ترامپ بالا گرفت
+
+ترامپ امروز در تماس تلفنی با نتانیاهو عصبانی شد:
+"تو کاملاً دیوانه‌ای. اگر من نبودم، الان تو زندان بودی.
+من دارم از تو محافظت می‌کنم.
+الان همه از تو متنفرند. همه به خاطر این موضوع از اسرائیل متنفرند. تو چه غلطی داری می‌کنی؟"
+
+@withyashar
+</div>
+
+## WithYashar — post 13222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هگست وزیر جنگ آمریکا: آماده‌ایم به جنگ برگردیم
+@withyashar
+</div>
+
+## WithYashar — post 13220
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13220_1780354515.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «من امروز با بیبی نتانیاهو گفت‌وگو کردم و از او خواستم وارد یک یورش گسترده به بیروت، لبنان نشود. او نیروهایش را متوقف کرد و بازگرداند. از تو ممنونم بیبی!
+
+همچنین با نمایندگان رهبران حزب‌الله گفت‌وگو کردم و آنها موافقت کردند که تیراندازی به سمت اسرائیل و نیروهایش را متوقف کنند. به همین ترتیب، اسرائیل نیز موافقت کرد که به آنها شلیک نکند.
+
+باید دید این وضعیت چه‌قدر دوام می‌آورد, امیدواریم برای همیشه باقی بماند!
+
+رئیس‌جمهور دونالد جی. ترامپ»
+@withyashar
+</div>
+
+## WithYashar — post 13219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ABC: با اسرائیل و حزب‌الله گفت‌وگو کردم و به آنها گفتم که دیگر بس است.
+
+من هنوز با این توافق موافقت نکرده‌ام و هنوز باید چند امتیاز دیگر بگیرم.
+
+کار ساده‌ای نیست. شما درباره یک کشور واقعاً بزرگ صحبت می‌کنید، آنها یک کشور بسیار بزرگ هستند که می‌خواهد توافق کند. خصومت فوق‌العاده‌ای وجود دارد، واقعاً.
+
+او ادامه داد: «بنابراین این کار برای آنها آسان نیست. در واقع از منظر ما هم آسان نیست. اما ما داریم آنچه را که نیاز داریم به دست می‌آوریم.»
+
+مردم ایران مرا دوست دارند زیرا رژیم را عوض کردم
+@withyashar
+</div>
+
+## WithYashar — post 13218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ای‌بی‌سی نیوز:
+احتمال داره طی یک هفته آینده با ایران به توافق برسیم، همه چیز خیلی خوب پیش میره؛ توافق صلح با ایران میتونه حتی بهتر از یک پیروزی نظامی باشه.
+@withyashar
+</div>
+
+## WithYashar — post 13217
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13217_1780354516.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت جدید کاخ سفید: به ترامپ اعتماد کنید. فقط بنشینید و آرام باشید، در نهایت همه‌چیز خوب پیش خواهد رفت همیشه همین‌طور بوده است!
+رئیس‌جمهور دونالد جی. ترامپ
+@withyashar
+</div>
+
+## WithYashar — post 13216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+WarRoom with YASHAR pinned «پست شد اینستاگرام سر‌ساعت https://www.instagram.com/p/DZDi1pCEfvI/?igsh=MWN3ZWNhdWxqbmk0OA== لطفاً این پست را استوری کنید و برای تمام افراد مرتبط با شاهزاده رضا پهلوی و شخص خود ایشان و تمامی پیجهای ایشان ارسال کنید.»
+</div>
+
+## WithYashar — post 13215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروط حزب الله برای آتش بس:
+
+آتش بس فراگیر در تمامی مناطق لبنان
+عقب نشینی کامل ارتش اسرائیل از جنوب لبنان
+عدم تجاوز به خاک کشور
+
+در غیر اینصورت حزب الله اعلام کرده توافقی در کار نیست.
+@withyashar
+</div>
+
+## WithYashar — post 13214
+
+
+
+
+## WithYashar — post 13213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف در تماس تلفنی با همتای لبنانی:
+مصمم هستیم در سراسر لبنان آتش بس برقرار کنیم. در دو روز گذشته به طور جدی به دنبال توقف حملات اسرائیل بودیم. اگر جنایات اسرائیل در لبنان ادامه پیدا کنه، مذاکرات رو متوقف می‌کنیم و در مقابل آن می‌ایستیم.
+@withyashar
+</div>
+
+## WithYashar — post 13212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد رضا شاه پهلوی چرا اونجوری شد ؟ مگه مردم چیزیشون کم بود ؟ نه ! چون بیشتر ما حسودیم چشم دیدن همو نداریم ! حالا اینو تو کل تاریخ هم بری ‌میبینی ! تو یه شهر کوچیک میبینی ! میبینی که همون دوستاتن که میفروشنت ! اگه مهارجت کرده باشی میبینی که فقط خودی بهت میزنه ! 😞و این داستان ادامه دارد…
+</div>
+
+## mwarmonitor — post 10015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زلزله بزرگ با قدرت ۶.۵ ریشتر جنوب ایتالیا را لرزاند.
+</div>
+
+## mwarmonitor — post 10014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«نه فقط کله‌زرد، بلکه تو زرد از آب دراومد»
+</div>
+
+## mwarmonitor — post 10013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"You're fucking crazy":
+خشم شدید ترامپ از نتانیاهو در تماس تلفنی مربوط به لبنان
+
+📝نویسندگان: باراک راوید، مارک کاپوتو
+
+🔰به گفته دو مقام آمریکایی و یک منبع سومِ مطلع، پرزیدنت ترامپ روز دوشنبه در یک تماس تلفنیِ پر از الفاظ رکیک، به دلیل تشدید تنش‌های اسرائیل در لبنان، به بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به‌شدت تاخت.
+
+📌چرا این موضوع اهمیت دارد؟
+پیش از این تماس در روز دوشنبه، ایران تهدید کرده بود که به دلیل اقدامات اسرائیل در لبنان، مذاکرات خود با ایالات متحده را متوقف خواهد کرد. به گفته دو تن از منابع، ترامپ در این تماس نتانیاهو را «دیوانه» خطاب کرد و او را به نمک‌نشناسی متهم نمود. او همچنین مانع از اجرای طرح اسرائیل برای حمله به بیروت شد.
+
+
+پشت صحنه ماجرا
+انزوای اسرائیل: یک مقام آمریکایی گفت ترامپ به نتانیاهو هشدار داده است که عملی کردن تهدیدهایش مبنی بر بمباران پایتخت لبنان، اسرائیل را در جهان منزوی‌تر خواهد کرد.
+ادعای ترامپ درباره دادگاه نتانیاهو: دو تن از منابع اعلام کردند ترامپ ادعا کرده که به دور نگه داشتن نتانیاهو از زندان کمک کرده است؛ که این اشاره‌ای است به حمایت‌های او از نتانیاهو در طول پرونده محاکمه‌اش به اتهام فساد مالی.
+خلاصه اظهارات ترامپ به نتانیاهو از زبان یک مقام آمریکایی:
+«تو بدجوری دیوونه‌ای. اگر من نبودم الان تو زندان بودی. دارم باامت رو نجات میدم. الان همه ازت متنفرن. به خاطر این کارها، همه دارن از اسرائیل متنفر میشن.»
+یک منبع دومِ مطلع از این تماس نیز گفت که ترامپ «به‌شدت عصبی» بود و در بخشی از مکالمه با فریاد به نتانیاهو گفت: «داری چه غلطی می‌کنی؟»
+دلایل اصلی تنش
+به گفته این مقام آمریکایی، ترامپ می‌دانست که حزب‌الله به سمت اسرائیل شلیک کرده و اسرائیل نیاز به دفاع از خود دارد، اما احساس می‌کرد که نتانیاهو در روزهای اخیر به شکلی نامتناسب در حال تشدید تنش‌ها است.
+علاوه بر تهدیدها علیه بیروت، اسرائیل عملیات زمینی خود را در جنوب لبنان گسترش داده است.
+یک مقام آمریکایی دیگر گفت ترامپ از اینکه اسرائیل غیرنظامیان زیادی را در لبنان کشته، نگران است و با شیوه اسرائیلی‌ها برای تخریب کامل ساختمان‌ها جهت از بین بردن تنها یک فرمانده حزب‌الله، مخالفت کرده است.
+وضعیت فعلی
+یک مقام اسرائیلی به آکسیوس گفت که اسرائیل دیگر برنامه‌ای برای حمله به اهداف حزب‌الله در بیروت ندارد.
+تحلیل ماجرا (پشت پرده)
+ترامپ و نتانیاهو در گذشته نیز چندین تماس تلفنی متشنج داشته‌اند، اما همچنان در موضوع ایران و مسائل دیگر همکاری نزدیکی با یکدیگر دارند. با این حال، یک مقام مسئول گفت این یکی از بدترین تماس‌های ترامپ با نتانیاهو از زمان بازگشت او به کاخ سفید بوده است.
+به نظر می‌رسد خشم ترامپ ناشی از این بوده که تصمیم نتانیاهو برای تشدید تنش در لبنان، مذاکرات او با ایران را در آستانه فروپاشی قرار داده بود. پس از این تماس، ترامپ در شبکه اجتماعی «تروث سوشال» پست کرد که مذاکرات با ایران «با سرعتی بالا در حال جریان است».
+موضع طرف مقابل
+نتانیاهو پس از این تماس بیانیه‌ای صادر کرد و گفت به ترامپ اعلام کرده است که اگر حزب‌الله دست از حمله به اسرائیل برندارد، اسرائیل به اهدافی در بیروت حمله خواهد کرد و در عین حال، اسرائیل به عملیات خود در جنوب لبنان ادامه خواهد داد.
+نتانیاهو نوشت: «موضع ما تغییر نکرده است.»
+اما مقام دوم آمریکایی ادعا کرد که در واقعیت، ترامپ در این تماس نتانیاهو را «مرعوب و تسلیم» کرده است. به گفته این مقام، بیبی (نتانیاهو) در پاسخ گفته است: «باشه، باشه، فقط مطمئن شو که همه چیز روبه‌راه میشه.»
+دفتر نتانیاهو به درخواست آکسیوس برای اظهار نظر در این باره پاسخی نداد.
+مواردی که باید زیر نظر داشت
+منابع به آکسیوس می‌گویند تفاهم‌نامه‌ای که ایالات متحده و ایران در حال مذاکره روی آن هستند، خواهان پایان یافتن درگیری‌ها در لبنان است. همین موضوع، علت تماس متشنج قبلی میان ترامپ و نتانیاهو نیز بوده است.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10012
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10012_1780354516.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تصاویر حمله به تأسیسات نفت و گاز ایران در عسلویه در جریان جنگ اخیر.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10011
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10011_1780354519.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«امروز با بی‌بی نتانیاهو گفتگو کردم و از او خواستم که حمله گسترده‌ای به بیروت در لبنان انجام ندهد. او نیروهایش را بازگرداند. ممنونم بی‌بی! من همچنین گفتگویی با نمایندگان رهبران حزب‌الله داشتم و آن‌ها موافقت کردند که شلیک به سمت اسرائیل و سربازانش را متوقف کنند. به همین ترتیب، اسرائیل نیز موافقت کرد که شلیک به سمت آن‌ها را متوقف کند. بیایید ببینیم این وضعیت چقدر دوام خواهد آورد — امیدوارم برای همیشه (تا ابد) باشد!
+
+رئیس‌جمهور دونالد جی. ترامپ»
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10010
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10010_1780354520.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 اینکه قالیباف با وقاحت از «برادری دو ملت ایران و لبنان» و «دفاع از سرزمین مادری» دم می‌زند، اوج یک کمدی تهوع‌آور است. این انگل‌زادگان سیاسی در حالی برای توقف گفتگوها و ایستادگی حماسی نسخه می‌پیچند که هیچ رابطه دیپلماتیک واقعی میان ملت لبنان و آن‌ها وجود ندارد؛ سفیر بی‌کفایتشان حتی پس از اخراج، با وقاحت تمام در بیروت ماند تا در بغل صیغه‌های شیعه حزب‌الله به ریش هر دو ملت بخندد. حقیقت تلخ این تئاتر مضحک آن است که جمهوری اسلامی و حزب‌الله مانند یک تومور سرطانی و بی‌درمان، شیره جان دو ملت را می‌مکند؛ قالیباف و هم‌فکرانش نگران مردم مظلوم لبنان نیستند، بلکه تنها واهمه آن‌ها، نابودی همان نطفه سرطانی و دست‌پرورده‌ای است که بقای ایدئولوژیک و سفره‌های غارتگری‌شان به آن وابسته‌ است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس گزارش ABC، یک فرد مسلح در یک کلینیک پزشکی در منطقه پلیکن نَروز در استان ساسکاچوان کانادا گزارش شده است. پلیس اعلام کرد فرد مظنون لباس کاملاً سیاه بر تن دارد و صورتش پوشیده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10008
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10008_1780354520.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+USAF نیروی هوایی ایالات متحده –✈️ جابه‌جایی‌های ویژه (VIP)
+
+✈️یک فروند Boeing C-40 Clipper
+شماره رجیستر: AE11F6 01-0041 – SAM 708
+
+🔴پرواز SAM 708 از پایگاه هوایی مک‌دیل به مقصد فرودگاه اشتوتگارت در آلمان انجام شد؛ که به‌احتمال زیاد حامل برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (USCENTCOM) بوده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342488
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342488_1780354521.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump signals "rapid" progress on Iran peace talks after the weekend's military strikes, while Maine Democratic Senate candidate Graham Platner faces yet another scandal. FOX News' @BillMelugin_ reports.
+</div>
+
+## FoxNewsTwitter — post 342487
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342487_1780354524.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: 🔥MULLIN: WE CAN PROTECT OUR BUILDINGS. CAN YOU PROTECT YOUR STREETS?
+
+As anti-I.C.E. protests intensified at Delaney Hall, federal officials say they asked a basic question: Can local authorities keep federal employees safe?
+
+@SecMullinDHS says when the answer appeared to be no, DHS considered reallocating CBP resources from Newark Airport. Today, he says state and local officials are cooperating—and that's why the officers remain in place.
+
+@willcain | @FoxNews
+</div>
+
+## FoxNewsTwitter — post 342486
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342486_1780354527.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump says he spoke with Israeli Prime Minister Benjamin Netanyahu and persuaded him to turn Israeli troops around before a major operation in Lebanon.
+
+Trump also says he spoke with representatives of Hezbollah's leadership, who agreed to stop "shooting at Israel," while Israel agreed to stop firing in return.
+
+"Let's see how long that lasts," Trump wrote. "Hopefully it will be for ETERNITY!"
+</div>
+
+## pm_afshaa — post 92083
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92083_1780354528.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من هنوز با این توافق موافقت نکردم چون هنوز باید چند امتیاز دیگر بگیرم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92082
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92082_1780354529.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: ترامپ امروز در تماس تلفنی با نتانیاهو عصبانی شد و گفت:
+
+"تو کاملاً دیوانه‌ای. اگه من نبودم، الان تو زندان بودی. من دارم از تو محافظت میکنم. الان همه از تو متنفرند. همه بخاطر این موضوع از اسرائیل متنفرند. تو چه غلطی داری میکنی؟"
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92081
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92081_1780354530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ در تروث سوشال:
+
+امروز با نتانیاهو گفت‌وگویی داشتم و ازش خواستم وارد حمله بزرگ به بیروت نشه. او نیروهایش رو برگردوند. ممنون بی‌بی!
+
+همچنین با نمایندگان رهبران حزب‌الله گفت‌وگو کردم و آنها پذیرفتند که تیراندازی به اسرائیل و سربازانش رو متوقف کنند. به همین ترتیب، اسرائیل هم پذیرفت که تیراندازی به آنها رو متوقف کنه.
+
+باید دید این وضعیت چقدر دووم میاره؛ امیدوارم تا ابد ادامه داشته باشه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92080
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92080_1780354530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ای‌بی‌سی نیوز:
+احتمال داره طی یک هفته آینده با ایران به توافق برسیم، همه چیز خیلی خوب پیش میره؛ توافق صلح با ایران میتونه حتی بهتر از یک پیروزی نظامی باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92079
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92079_1780354531.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: امروز زنگ زدم به حزب الله گفتم توقف حملات. چند دقیقه بعد با نتانیاهو تماس گرفتم و گفتم توقف حملات. اونا هر دو جنگ رو متوقف کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92078
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92078_1780354532.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار الجزیره: حمله اسرائیل به لبنان مانع از دستیابی به توافق شده بود.
+
+پس از فشار آمریکا و عقب‌نشینی اسرائیل، اکنون درها باز شده تا مذاکرات به مسیر طبیعی و مثبت خود بازگردد و چیز زیادی باقی نمانده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92077
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92077_1780354533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف در تماس تلفنی با همتای لبنانی:
+مصمم هستیم در سراسر لبنان آتش بس برقرار کنیم. در دو روز گذشته به طور جدی به دنبال توقف حملات اسرائیل بودیم. اگر جنایات اسرائیل در لبنان ادامه پیدا کنه، مذاکرات رو متوقف می‌کنیم و در مقابل آن می‌ایستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92076
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92076_1780354534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل:
+در پی هشدارهایی که چندی پیش در منطقه متولا فعال شد، یک پرتاب در نزدیکی نیروهای ارتش اسرائیل که در جنوب لبنان فعال بودند سقوط کرد، تلفات جانی نداشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از گفت‌وگوی تاثیرگذار و موفق ترامپ و نتانیاهو راجع‌به آتش‌بس اسرائیل و لبنان، هم‌اکنون جنگنده‌های اسرائیلی دارن جنوب لبنان رو بمباران میکنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله پهپادی حزب الله به اسراییل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله درخواست اتش بس آمریکا رو رد کرد
+
+نماینده حزب‌الله در پارلمان لبنان:
+پیشنهاد آمریکا مبنی بر توقف عملیات مقاومت در مقابل عدم حمله اسرائیل به ضاحیه جنوبی بیروت غیرقابل قبول است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5234
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5234_1780354534.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 محل جلسه خامنه‌ای و فرماندهان ارشد چگونه لو رفت؟
+
+#موشعلی #حذف_هدفمند
+@DEJradio
+</div>
+
+## VahidOnline — post 75863
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75863_1780354537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگوی تلفنی با شبکه خبری «ای‌بی‌سی نیوز» اعلام کرد که به نظر او، توافق با تهران برای تمدید آتش‌بس و بازگشایی تنگه هرمز «طی هفته آینده» حاصل خواهد شد.
+ترامپ روز دوشنبه در گفتگو با جاناتان کارل، خبرنگار ارشد این شبکه در واشنگتن، با ابراز خوش‌بینی گفت: «اوضاع خوب به نظر می‌رسد.»
+رئیس‌جمهوری آمریکا با اشاره به تنش‌های اخیر افزود: «امروز مشکل کوچکی پیش آمد، اما همان‌طور که احتمالا پیش‌تر متوجه شدید، من خیلی سریع آن را برطرف کردم.»
+او توضیح داد که این مشکل ناشی از ناراحتی و عصبانیت مقام‌های ایران از حملات اسرائیل به لبنان بوده است؛ ترامپ در تشریح نحوه حل این بحران گفت: «من با حزب‌الله صحبت کردم و گفتم تیراندازی نکنید؛ با بنیامین نتانیاهو، نخست‌وزیر اسرائیل هم صحبت کردم و گفتم تیراندازی نکنید، و هر دو طرف شلیک به یکدیگر را متوقف کردند.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75862
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75862_1780354538.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ، ترجمه ماشین:
+امروز با بی‌بی نتانیاهو گفت‌وگویی داشتم و از او خواستم وارد یک حمله بزرگ به بیروتِ لبنان نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
+
+همچنین با نمایندگان رهبران حزب‌الله گفت‌وگو کردم و آن‌ها پذیرفتند که تیراندازی به اسرائیل و سربازانش را متوقف کنند. به همین ترتیب، اسرائیل هم پذیرفت که تیراندازی به آن‌ها را متوقف کند.
+
+ببینیم این وضعیت چقدر دوام می‌آورد — امیدوارم تا ابد ادامه داشته باشد!
+
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+خیلی شبیه به پست چند ساعت پیشش به نظر می‌رسه. به نظر می‌رسه همون رو بازنویسی کرده ولی قبلی رو حذف نکرده.
+نظر چت‌ جی‌پی‌تی:
+
+در اصلِ پیام، تفاوت محتواییِ بنیادی ندارد:
+هر دو می‌گویند ترامپ با نتانیاهو صحبت کرده، نیروهای اسرائیلی از رفتن به بیروت منصرف شده‌اند، و از طریق نمایندگان/واسطه‌ها با حزب‌الله هم درباره توقف درگیری صحبت شده است. گزارش‌های خبری هم نسخه اول را با همین مضمون منتشر کرده‌اند.
+
+اما متن دوم از چند جهت مهم بازنویسی و تنظیم‌شده‌تر است:
+
+۱. ترامپ نقش خودش را پررنگ‌تر کرده
+
+در متن اول می‌گوید:
+تماس بسیار سازنده‌ای با نتانیاهو داشتم و نیروها به بیروت نمی‌روند...
+
+اما در متن دوم می‌گوید:
+از نتانیاهو خواستم وارد یک یورش بزرگ به بیروت نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
+
+یعنی متن دوم بیشتر این برداشت را القا می‌کند که ترامپ شخصا جلوی حمله بزرگ به بیروت را گرفته و نتانیاهو به درخواست او عمل کرده است.
+
+۲. عبارت «حمله/یورش بزرگ به بیروت» اضافه شده
+
+در متن اول فقط می‌گوید:
+نیروها به بیروت نمی‌روند.
+
+در متن دوم می‌گوید:
+وارد یک major raid of Beirut, Lebanon نشود.
+
+این مهم است، چون متن دوم وضعیت را جدی‌تر و عملیاتی‌تر تصویر می‌کند: نه فقط «نرفتن نیروها»، بلکه جلوگیری از یک عملیات بزرگ در بیروت.
+
+۳. تماس با حزب‌الله با احتیاط بیشتری بیان شده
+متن اول می‌گوید:
+I had a very good call with Hezbollah
+یعنی ظاهرا «تماس خیلی خوبی با حزب‌الله داشتم».
+
+اما متن دوم می‌گوید:
+I also had a conversation with Representatives of the Leaders of Hezbollah
+
+یعنی «با نمایندگان رهبران حزب‌الله صحبت کردم».
+
+این تغییر احتمالا برای این است که مستقیم نگویند ترامپ با خود حزب‌الله «تماس خیلی خوب» داشته؛ متن دوم آن را رسمی‌تر و غیرمستقیم‌تر می‌کند.
+
+۴. تعهد حزب‌الله محدودتر و دقیق‌تر بیان شده
+در متن اول:
+all shooting will stop — Israel will not attack them, and they will not attack Israel
+یعنی «همه تیراندازی‌ها متوقف می‌شود؛ اسرائیل به آنها حمله نمی‌کند و آنها به اسرائیل حمله نمی‌کنند.»
+
+در متن دوم:
+they agreed to stop shooting at Israel, and its soldiers. Likewise, Israel agreed to stop shooting at them.
+
+اینجا حزب‌الله مشخصا متعهد می‌شود به اسرائیل و سربازانش شلیک نکند و اسرائیل هم به آنها شلیک نکند.
+تفاوت ظریف این است که متن اول از «attack» استفاده می‌کند که گسترده‌تر است؛ متن دوم بیشتر روی «shooting» تمرکز دارد که ممکن است محدودتر از «حمله» باشد.
+
+۵. متن دوم تردید و شکنندگی توافق را اضافه می‌کند
+
+متن اول قاطعانه تمام می‌شود. اما متن دوم اضافه می‌کند:
+Let’s see how long that lasts — Hopefully it will be for ETERNITY!
+یعنی: «ببینیم چقدر دوام می‌آورد؛ امیدوارم برای همیشه باشد.»
+
+این جمله نشان می‌دهد ترامپ خودش هم دوام توافق را قطعی نمی‌داند و بیشتر حالت آرزویی/نمایشی به آن می‌دهد.
+
+جمع‌بندی کوتاه
+متن اول بیشتر شبیه اعلام رسمی یک توافق فوری است.
+متن دوم بیشتر شبیه بازنویسی سیاسی‌تر و شخصی‌تر همان پیام است؛ در آن ترامپ نقش خودش را برجسته‌تر کرده، تماس با حزب‌الله را غیرمستقیم‌تر توصیف کرده، عبارت «یورش بزرگ به بیروت» را اضافه کرده، و در پایان هم درباره دوام توافق تردید نشان داده است.
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340121
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340121" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: جمهوری زیرزمینی اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340120
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340120_1780354539.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «یکی از عواملی که پس از شکست‌های پیاپی در جنگ می‌تواند پایه‌های یک حکومت را متزلزل کند، انباشته شدن آثار آن شکست‌ها و تبدیل شدنشان به نارضایتی گسترده است؛ همان‌طور که شکست‌های روسیه در جنگ‌های ۱۹۰۵ و ۱۹۱۴ زمینه‌ساز انقلاب ۱۹۱۷ شد. مجموعه شکست‌های سال‌های اخیر جمهوری اسلامی از غزه تا لبنان و سوریه و کشته شدن رهبران و فرماندهان ارشد نظام، می‌تواند سقوط مشابهی را برای نظام رقم بزند»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340119
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340119_1780354541.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه جمهوری اسلامی ادامه جنگ در لبنان را نقض آتش‌بس در همه جبهه‌ها دانسته است. در همین حال، نخست‌وزیر اسرائیل از تشدید عملیات نظامی برای هدف قرار دادن زیرساخت‌های حزب‌الله خبر داد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340118
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340118_1780354543.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «تشدید حملات اسرائیل به حزب‌الله و گسترش جنگ در لبنان، جمهوری اسلامی را در موقعیت دشواری قرار داده؛ چون همواره بر توقف جنگ در همه جبهه‌ها و گنجاندن لبنان و حزب‌الله در توافق کلی تاکید کرده بود. همزمان پیشروی ارتش اسرائیل تا رودخانه لیتانی و تصرف قلعه تاریخی شقیف و ارتفاعات آن، اهمیت نظامی و اطلاعاتی تحولات جنوب لبنان را برجسته‌تر کرده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340117
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340117" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی | چرا سرنوشت ایران باید به لبنان گره بخورد؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340116
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340116_1780354546.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که به‌تازگی از تصاویر دوربین مداربسته پالایشگاه عسلویه در شبکه‌های اجتماعی منتشر شده، نشان می‌دهد اسرائیل و آمریکا در جنگ اخیر، در حمله به این پالایشگاه، نقطه‌زنی کرده‌اند.
+
+گزارش‌های منتشرشده حاکی است این تصاویر مربوط به شرکت‌های مستقر در سایت پتروشیمی منطقه پارس است.
+
+نفت آنلاین، رسانه صنعت نفت ایران، در پی انتشار این ویدیو خواستار برخورد شدید نهادهای امنیتی با منتشرکنندگان آن و برکناری مدیرعامل شرکت صاحب این دوربین شد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340115
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340115_1780354548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی آمریکا اعلام کرد نیروهای این کشور دو موشک بالستیک شلیک‌شده از سوی جمهوری اسلامی به سمت پایگاه‌های آمریکا در کویت را رهگیری و منهدم کردند. سنتکام گفت هیچ نیروی آمریکایی آسیب ندید. مصر، قطر و عربستان نیز این حمله را محکوم کردند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340114
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340114_1780354550.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «بعد از ضربات شدید جنگ‌های ۱۲ روزه و ۴۰ روزه جمهوری اسلامی تقریبا تبدیل به یک حکومت زیر‌زمینی شده است. رهبر جدید هنوز پنهان است و رونمایی نشده و بسیاری از مقامات و فرماندهان ارشد هم زندگی مخفیانه دارند و اکثر اوقات در مخفیگاه‌ها هستند. نهادهای حکومتی نیز کارکرد عادی خود را از دست داه‌اند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340113
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340113_1780354552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌مهدی تاج، رییس فدراسیون فوتبال در گفتگویی تلویزیونی گفت که برای بازی تدارکاتی تیم ملی با مالی،‌ چندین صد هزار دلار پرداخت شده است: «ما ۱۰۰ هزار دلار به مالی دادیم که بیاید، پول هواپیمایشان را دادیم، پول هتلشان را هم دادیم. در این شرایط بازی هماهنگ کردن خیلی سخت است.»
+
+🔹تیم ملی فوتبال در مسیر آماده‌سازی برای جام جهانی، بازی تدارکاتی مناسبی نداشته است؛ پس قرعه‌کشی فدراسیون فوتبال مدعی شد با اسپانیا و پرتغال دیدار دوستانه خواهد داشت، اما در پی جنگ ایران، این مسابقات از سوی این دو کشور لغو شد، پس از این گفته شد مقدونیه و آنگولا حریفان تدارکاتی تیم ملی هستند که آنها هم این بازی را لغو کردند.
+
+🔹در پی این اتفاقات، تیم ملی ۴ بار با خودش بازی کرد و در نهایت در اردوی آنتالیا، با گامبیا، تیم ۱۱۶ دنیا بازی کرد.
+
+🔹تیم ملی تاکنون نتوانسته با هیچ کدام از تیم‌های راه‌یافته به جام جهانی ۲۰۲۶ بازی کند.
+
+🔹فدراسیون فوتبال اعلام کرده بازی با مالی، پنجشنبه ۱۴ خرداد در آنتالیا برگزار خواهد شد.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Mon, 01 Jun 2026 22:30:46 UTC @WhiteHouse Yeah, about that, NO. Even if he attacks the Islamic Regime right fucking now, his dumb pause led to numerous executions since the "ceasefire", so, no, I won't "Trust in Trump"…
+</div>
+
+## Shin_Persian — post 6387
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 22:30:46 UTC
+
+@WhiteHouse Yeah, about that, NO.
+Even if he attacks the Islamic Regime right fucking now, his dumb pause led to numerous executions since the "ceasefire", so, no, I won't "Trust in Trump" and his promised "Help".
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+@WhiteHouse آره، در این مورد، نه.
+حتی اگر او همین الان هم به رژیم اسلامی حمله کند، وقفه احمقانه‌اش منجر به اعدام‌های متعددی از زمان «آتش‌بس» شده است، بنابراین، نه، من به ترامپ و «کمک» وعده داده شده‌اش «اعتماد» نخواهم کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6386
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6386_1780354553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 22:35:53 UTC
+
+Sirens in Golan, Hermon
+#Israel 🇮🇱
+
+فارسی
+
+آژیرهای خطر در جولان، حرمون
+#Israel 🇮🇱
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6385
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6385_1780354554.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 22:26:14 UTC
+
+Some sources on the explosion, and one guy looking for, well, god knows what xD
+
+فارسی
+
+برخی منابع درباره انفجار، و یک نفر که به دنبال، خب، خدا می‌داند چه می‌گردد xD
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 22:24:16 UTC
+
+Blast sound in Sana'a, Yemen
+
+فارسی
+
+صدای انفجار در صنعا، یمن
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Open Source Intel ✓ @Osint613
+Mon, 01 Jun 2026 20:41:36 UTC
+
+British Airways suspends all flights to Israel until October 24.
+
+فارسی
+
+بریتیش ایرویز تمامی پروازهای خود به اسرائیل را تا ۲۴ اکتبر به حالت تعلیق درآورد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6382
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6382_1780354555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: Shin ✓ @hey_itsmyturn Mon, 01 Jun 2026 21:14:21 UTC Hezbollah MP Hassan Fadlallah: "We reject the American proposal, received hours ago through intermediaries, which stipulates a cessation of Hezbollah operations in exchange for Israel…
+</div>
+
+## Shin_Persian — post 6381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 21:14:21 UTC
+
+Hezbollah MP Hassan Fadlallah:
+
+"We reject the American proposal, received hours ago through intermediaries, which stipulates a cessation of Hezbollah operations in exchange for Israel not bombing the southern suburbs.
+
+Our steadfast position is that any comprehensive ceasefire, as a pathway for the enemy's withdrawal from our land, must be part of the solution.
+
+A complete ceasefire, no return to the pre-March 2nd status quo, and no such thing as 'freedom of movement for Israel'. "
+
+[Source: Hezballah-affiliated Telegram channels]
+
+فارسی
+
+حسن فضل‌الله، نماینده پارلمان از فراکسیون حزب‌الله:
+
+«ما پیشنهاد آمریکا را که ساعاتی پیش از طریق میانجی‌ها دریافت شد و بر توقف عملیات حزب‌الله در ازای عدم بمباران ضاحیه جنوبی توسط اسرائیل تصریح دارد، رد می‌کنیم.
+
+موضع استوار ما این است که هرگونه آتش‌بس جامع، به عنوان مسیری برای عقب‌نشینی دشمن از خاک ما، باید بخشی از راه حل باشد.
+
+آتش‌بس کامل، عدم بازگشت به وضعیت پیش از ۲ مارس، و چیزی به نام "آزادی عمل برای اسرائیل" وجود نخواهد داشت.»
+
+[منبع: کانال‌های تلگرامی وابسته به حزب‌الله]
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6380
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6380_1780354555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Open Source Intel ✓ @Osint613 Mon, 01 Jun 2026 17:32:55 UTC Trump: “I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there will be no Troops going to Beirut, and any Troops that are on their way, have already…
+</div>
+
+## Shin_Persian — post 6379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Open Source Intel ✓ @Osint613
+Mon, 01 Jun 2026 17:32:55 UTC
+
+Trump: “I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there will be no Troops going to Beirut, and any Troops that are on their way, have already been turned back. Likewise, through highly placed Representatives, I had a very good call with
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ترامپ: «من تماس بسیار سازنده‌ای با بی‌بی نتانیاهو، نخست‌وزیر اسرائیل داشتم و هیچگونه نیروی نظامی (نیروهای ارتش) به بیروت اعزام نخواهد شد، و هر نیرویی که در راه بوده، در حال حاضر بازگردانده شده است. به همین ترتیب، از طریق نمایندگان عالی‌رتبه، تماس بسیار خوبی با...»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6378
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6378_1780354556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 20:54:47 UTC
+
+Sirens in Shlomi, #Israel 🇮🇱
+
+فارسی
+
+آژیرهای خطر در شلومی، #Israel 🇮🇱
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ: با نتانیاهو و نمایندگان حزب‌الله صحبت کردم
+
+▪️دونالد ترامپ، رئيس‌جمهوری آمریکا، عصر دوشنبه در تروت‌سوشال نوشت که با نخست وزیر اسرائيل، بنیامین نتانیاهو صحبت کرده است تا به بیروت حمله بزرگی نکند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156191.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned «🔺نتانیاهو پس از تماس با پرزیدنت ترامپ؛ ارتش اسرائیل «به عملیات خود در جنوب لبنان طبق برنامه ادامه می‌دهد» ▪️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه ۱۱ خرداد اعلام کرد در گفت‌وگو با دونالد ترامپ، رئیس جمهوری ایالات متحده، تأکید کرد در صورتی که حزب‌الله…»
+</div>
+
+## FarsiVOA — post 219323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ به‌ ای‌بی‌سی نیوز: احتمال دارد تفاهم‌نامه با جمهوری اسلامی هفته آینده امضا شود؛ مشکلی امروز پیش آمد که برطرف شد
+
+▪️دونالد ترامپ، رئیس‌جمهوری آمریکا گفت این احتمال وجود دارد که هفته آینده با جمهوری اسلامی توافقی برای تمدید آتش‌بس و بازگشایی تنگه هرمز امضا شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156190.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219322
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219322_1780354557.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فلاکت اقتصادی، فرسایش اجتماعی در ایران؛ گفت‌وگو با امین قضایی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219321
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219321_1780354559.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تشدید سرکوب دانشجویان و ادامه بی‌وقفه اعدام‌ها؛ واکنش کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219320
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺قانون‌گذار آمریکایی: ۸۰ درصد مردم ایران از جمهوری اسلامی متنفرند؛ اگر رژیم اورانیوم را تحویل ندهد در نهایت سقوط می‌کند
+
+▪️پت فالون، عضو جمهوری‌خواه مجلس نمایندگان آمریکا، روز دوشنبه در شبکه اجتماعی ایکس نوشت که جمهوری اسلامی «ایران اورانیوم را تا ۶۰ درصد که درجه تسلیحاتی است، غنی‌سازی می‌کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156184.html?ghgh=
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جنگ در ایران؛ پیامدها و چالش‌های تازه برای میلیون‌ها مهاجر افغان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219318
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219318_1780354560.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چرا جمهوری اسلامی به رغم «بدگمانی» مذاکره با آمریکا را ترک نمی‌کند؟ گفت‌وگو با فرزانه روستایی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219317
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219317_1780354562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیشروی اسرائیل و تضعیف پایگاه حزب‌الله؛ گفت‌وگو با حسن هاشمیان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219316
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219316_1780354563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از مقایسه نمودارهای قیمت جهانی نفت و تنش آفرینی سپاه در تنگه هرمز
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15460
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15460_1780354565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت عرزشی ها !
+</div>
+
+## IranianMinds — post 21226
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21226_1780354567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس : حرف های امروز ترامپ در مکالمات تلفنی با نتانیاهو‌ این بوده : «تو دیوانه‌ای.» «اگر من نبودم، الان توی زندان بودی. دارم نجاتت می‌دهم.» «الان همه از تو متنفرند.» «به خاطر این ماجرا، همه از اسرائیل هم متنفر شده‌اند! @IranianMinds
+</div>
+
+## IranianMinds — post 21225
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21225_1780354568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس :
+
+حرف های امروز ترامپ در مکالمات تلفنی با نتانیاهو‌ این بوده :
+
+«تو دیوانه‌ای.»
+«اگر من نبودم، الان توی زندان بودی. دارم نجاتت می‌دهم.»
+«الان همه از تو متنفرند.»
+«به خاطر این ماجرا، همه از اسرائیل هم متنفر شده‌اند!
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21224
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21224_1780354569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+
+🎯همین حالا عضو شو و شروع کن👇e11
+https://t.me/+6ckCmywafrxiYzk0
+https://t.me/+6ckCmywafrxiYzk0
+</div>
+
+## IranianMinds — post 21223
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21223_1780354572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+«امروز با بیبی نتانیاهو صحبت کردم و از او خواستم حمله گسترده‌ای به بیروت لبنان انجام ندهد.
+
+او نیروهایش را عقب کشید. ممنون بیبی! همچنین اسرائیل موافقت کرد که دیگر به آن‌ها شلیک نکند.
+
+ببینیم این وضعیت چقدر دوام می‌آورد؛ امیدوارم برای همیشه ادامه داشته باشد!»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+شاید این هفته با ایران به توافق برسیم
+
+صلح با ایران شاید حتی بهتر از پیروزی نظامی باشد‌‌!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری ایرنا:
+
+روز دوشنبه ۱۱ خرداد از کشته شدن دو سپاهی در منطقه فردو استان قم خبر داد.
+
+حسین رمضانیان‌فردویی و محمد اویسی بر اثر انفجار پرتابه ‌های باقی‌مانده از جنگ اخیر، به هلاکت رسیدند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+امروز ی مشکل کوچک پیش اومد،ایرانیا خیلی از حملات اسرائیل به لبنان ناراحت بودن،با اسرائیل و حزب الله حرف زدم گفتم بهم تیراندازی نکنید قبول کردن احتمالا تو همین هفته با ایران به توافق میرسیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21219
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21219_1780354572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حزب الله پیشنهاد آتش بس ترامپ رو رد کرد. @IranianMinds
+</div>
+
+## BBCPersian — post 282598
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282598_1780354573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری‌های فارس و تسنیم، نزدیک به سپاه پاسداران از هدف قرار دادن یک کشتی باربری خبر داده‌اند.
+
+در اطلاعیه نیروی دریایی سپاه پاسداران که عصر دوشنبه - اول ژوئن / ۱۱ خرداد - در این خبرگزاری‌ها منتشر شده آمده است: «درپی حمله متجاوزانه ارتش تروریستی آمریکا به کشتی ایرانی «لیان استار» در محدودهٔ دریای عمان، در یک عملیات مقابله‌به‌مثل، کشتی ام‌اس‌سی ساریسکا - MSC Sariska - متعلق به دشمن آمریکایی-صهیونیستی هدف موشک کروز قرار گرفت. هرگونه تجاوز ارتش آمریکا در منطقه با پاسخ قاطع روبه‌رو خواهد شد.»
+
+همزمان سازمان عمليات تجارت دريايی بريتانيا (يوکی‌ام‌تی‌او) اعلام کرده گزارشی از وقوع يک حادثه در ۴۰ مايل دريايی جنوب شرقی بندر ام القصر عراق دريافت کرده است.
+
+بر اساس گزارش این سازمان «يک کشتی کانتینربر در حال عبور از خليج فارس بود که در پی اصابت يک پرتابه ناشناس به سمت راست کشتی، انفجار بزرگی رخ داد.»
+
+بنابر اطلاعاتی که از کشتی ام‌اس‌سی ساریسکا در وبسایت‌های کشتیرانی موجود است، و آخرین موقعیت جغرافیایی اعلام شده او که حدود ۵ ساعت قبل از انتشار این خبر بوده، خلیج فارس، ثبت شده است.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 282597
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282597_1780354574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+ایتامار بن گویر، وزیر امنیت ملی اسرائیل، از اعلام ترامپ مبنی بر توقف حملاتی که اسرائیل قصد داشت علیه مناطقی در حومه جنوبی بیروت انجام دهد، انتقاد کرده و گفته است: «وقت آن رسیده که به ترامپ نه بگوییم».
+
+این وزیر راست افراطی اسرائیل در برنامه‌ای در شبکه اجتماعی ایکس نوشت: «زمان آن رسیده که آنچه وظیفه می‌طلبد را انجام دهیم و آنچه لازم است حمله به حزب‌الله، آزادسازی جنگجویانمان و بازگرداندن امنیت به شمال است.»
+
+او نوشت: «آقای نخست وزیر، شما گفتید که یک نخست وزیر قوی به رئیس جمهور ایالات متحده می‌گوید، در صورت امکان «بله» و در صورت لزوم «نه». اکنون زمان آن است که به دوستمان، رئیس جمهور ترامپ بگوییم «نه».
+
+https://bbc.in/4uPbKrm
+📷 Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 282596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+پس از تهدید نخست وزیر اسرائیل درباره از سرگیری حملات به بیروت، دونالد ترامپ، رئیس جمهوری آمریکا می‌گوید پس از گفت‌وگو با آقای نتانیاهو و همچنین تماس از طریق واسطه‌ها با حزب‌الله بین طرفین توافق حاصل شده که حمله به بیروت متوقف شود.
+
+با تهدیدهای مقامات اسرائیلی درباره حمله به بیروت، باعث شد بسیاری حومه جنوبی این شهر را ترک کنند.
+
+این در حالیست که ارتش اسرائیل دیروز قلعه استراتژیک و تاریخی شقیف را در جنوب لبنان به تسخیر خود درآورد.
+
+پیشروی که مقامات اسرائیلی آن را دست‌آوردی مهم در جنگ با حزب‌الله می‌خوانند. امروز بمباران‌ها در این نواحی ادامه داشت و این ارتش باز به بسیاری از شهرها و روستاها دستور تخلیه اجباری صادر کرد.
+
+نفیسه کوهنورد، خبرنگار ارشد خاورمیانه ما از بیروت در گزارشش درباره آخرین‌ها در لبنان می‌گوید.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از دوالیپا و شوهرش بعد ازدواج تو یه ساحل
+
+حجم ازدواج این مدت واقعا رفته بالا حتی دوا لیپا هم رفت خونه بخت الان فقط من موندم و پزشکیان.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390787
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390787_1780354575.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⁨
+رویکرد جالب مراد ویسی به فاطمه مهاجرانی 😄
+
+عمو مراد من فاطمه مهاجرانی تو صورتش نگاه کنم دیگه راست نمیکنم... 🤢
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیزاریم با چفیه و دستبد بیرون بری، بِچ
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بانی بلو سوراخ اشتراکی که رکورد دار رابطه جنسی با 1000 هزار مرد تو یه روز بود
+
+اعلام کرده باردار شده و یه جشن گرفته برای اعلام پدر بچه و به 400 تا از مردایی که باهاشون بوده پیام داده شاید بابای بچه تو باشی تو جشن شرکت کن😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124356
+
+<div align="center">
+  <img src="telegram/content/alonews_124356_1780354576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 همراه با ساب + حجم مصرفی، فقط 8T! 🚀
+
+😍فقط گیگی 8 تومن😍
+
+✅ باخرید 90 گیگ 100 گیگ تحویل بگیرید 😍✅
+❌ فقط تا پایان امشب ❌
+
+🔥 اگه دنبال یه VPN پایدار و بدون دردسر می‌گردی، این پلن مخصوص خودته!
+
+@Netaazaadbot
+@NetAazaadBot
+
+✅ همراه با ساب + حجم مصرفی
+✅ 15 سرور اختصاصی پرسرعت
+✅ اتصال پایدار و بدون قطعی
+✅ سرعت بالا حتی در ساعات شلوغ
+
+@Netaazaadbot
+@NetAazaadBot
+
+📩 برای خرید و دریافت سرویس استارت رو بزن✅
+</div>
+
+## alonews — post 124355
+
+<div align="center">
+  <a href="telegram/content/alonews_124355_1780354576.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایرانی‌ها از حملات اسرائیل به لبنان ناراحت بودند و من سریع مشکل را حل کردم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124354
+
+<div align="center">
+  <a href="telegram/content/alonews_124354_1780354577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: ترامپ تنها به دنبال توافق است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124353
+
+<div align="center">
+  <a href="telegram/content/alonews_124353_1780354577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صدا و سیما: خون یک لبنانی اندازه خون یک ایرانی با ارزشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124352
+
+<div align="center">
+  <a href="telegram/content/alonews_124352_1780354577.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ آمریکا: آماده‌ایم به جنگ برگردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124351
+
+<div align="center">
+  <a href="telegram/content/alonews_124351_1780354578.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈4 سوخت رسان آمریکایی در نزدیکی مرزهای ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124350
+
+<div align="center">
+  <a href="telegram/content/alonews_124350_1780354578.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واکنش تاج به ناامن بودن شهر تیخوانا: کاری به مواد فروش‌های مکزیک نداریم و نمی‌خواهیم هم اصلاحشان کنیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124349
+
+<div align="center">
+  <a href="telegram/content/alonews_124349_1780354581.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دوستان این تبلیغاتی که پائین کانال نمایش داده میشه توسط تلگرامه و دست ما نیست و کلاهبرداری هست و فریب نخورید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124348
+
+<div align="center">
+  <a href="telegram/content/alonews_124348_1780354581.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: فعلا جنگ نمیکنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124347
+
+<div align="center">
+  <a href="telegram/content/alonews_124347_1780354581.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ:
+امروز با بی بی نتانیاهو صحبت کردم و از او خواستم که به حمله بزرگی به بیروت لبنان نپردازد. اون سربازاش رو برگردوند ممنون بیبی
+
+
+🔴من همچنین با نمایندگان رهبران حزب الله صحبت کردم ، و آنها موافقت کردند که تیراندازی به اسرائیل و سربازانش را متوقف کنند. به همین ترتیب ، اسرائیل موافقت کرد که به آنها شلیک نکند.
+
+
+🔴بذار ببینیم چقدر طول میکشه-امیدوارم برای ابدیت باشه!‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124346
+
+<div align="center">
+  <a href="telegram/content/alonews_124346_1780354581.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم وایرال شده از بلاگر روسی در کافه‌ای زیر زمینی در تهران با حضور جواد یساری
+
+[@AloTweet]
+</div>
+
+## alonews — post 124344
+
+<div align="center">
+  <a href="telegram/content/alonews_124344_1780354584.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔جاویدنام حامد بیابانی، ۲۴ ساله، اصالتاً کُردِ کرمانشاه و ساکن پرند بود.
+
+
+🔴شب ۱۸ دی، در تهرانپارس، وقتی دوست صمیمی‌اش جاویدنام علیرضا صحت‌بخش هدف گلوله قرار گرفت، حامد خودش را به خطر انداخت و به سمت او رفت تا کمکش کند و او را از محل تیراندازی عقب بکشد؛ اما در همان لحظه خودش هم هدف گلوله جنگی قرار گرفت. گلوله به گلوی حامد خورد و جانش را گرفت.
+
+
+🔴خانواده‌اش تصمیم گرفتند پیکر او را به سنقر، از توابع کرمانشاه، ببرند؛ شهری که ریشه و اصالت مادری‌شان به آنجا بازمی‌گشت.
+
+
+🔴حامد از آن آدم‌هایی بود که عاشق زندگی‌اند؛ اجتماعی، شوخ‌طبع، پرانرژی و سرشار از شور. هر جا می‌رفت، فضا را زنده می‌کرد، جمع را به هیجان می‌آورد و لبخند روی لب‌ها می‌نشاند.
+
+
+🔴حامد بیابانی و علیرضا صحت‌بخش دو رفیق صمیمی بودند؛ هر دو ۲۴ ساله، هر دو ساکن پرند، و هر دو در تهرانپارس با گلوله جنگی کشته شدند؛ علیرضا با گلوله‌ای به قلب و حامد وقتی برای کمک به او رفت، با گلوله‌ای به گلو.
+
+
+🤔عرزشی حرام زاده، اینها تروریست بودن که به قتل رسوندینشون؟ ادعای عدل علی هم دارید.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 124343
+
+<div align="center">
+  <a href="telegram/content/alonews_124343_1780354585.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈باقر:
+ایران نه تنها روند گفتگو را متوقف خواهد کرد بلکه اگر اسرائیل حملات در لبنان را متوقف نکند،
+مستقیماً به اسرائیل حمله خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124342
+
+<div align="center">
+  <a href="telegram/content/alonews_124342_1780354585.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: مردم ایران مرا دوست دارند زیرا رژیم را عوض کردم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124341
+
+<div align="center">
+  <a href="telegram/content/alonews_124341_1780354585.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: «کار ساده‌ای نیست. شما درباره یک کشور واقعاً بزرگ صحبت می‌کنید، آنها یک کشور بسیار بزرگ هستند که می‌خواهد توافق کند. خصومت فوق‌العاده‌ای وجود دارد، واقعاً.»
+
+
+🔴او ادامه داد: «بنابراین این کار برای آنها آسان نیست. در واقع از منظر ما هم آسان نیست. اما ما داریم آنچه را که نیاز داریم به دست می‌آوریم.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124340
+
+<div align="center">
+  <a href="telegram/content/alonews_124340_1780354586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در گفت‌وگو با ای‌بی‌سی:
+من هنوز این توافق را تأیید نکرده‌ام و هنوز چند نکته دیگر باقی مانده است که باید تضمین شود.
+
+
+🔴من هنوز با این توافق موافقت نکرده‌ام و هنوز باید چند امتیاز دیگر بگیرم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124339
+
+<div align="center">
+  <a href="telegram/content/alonews_124339_1780354586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: شاید این هفته با ایران به توافق برسیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124338
+
+<div align="center">
+  <a href="telegram/content/alonews_124338_1780354586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+امروز یک مشکل کوچک پیش آمد، ایرانی‌ها از حملات اسرائیل به لبنان ناراحت بودند.
+
+
+🔴بنابراین من با حزب‌الله صحبت کردم و گفتم تیراندازی نکنید، و با بی‌بی (نتانیاهو) صحبت کردم و گفتم تیراندازی نکنید، و هر دو تیراندازی به سمت یکدیگر را متوقف کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124337
+
+<div align="center">
+  <a href="telegram/content/alonews_124337_1780354586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: صلح با ایران شاید حتی بهتر از پیروزی نظامی باشد‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 00:17
 ---
 
