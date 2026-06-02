@@ -7,6 +7,2509 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 02:37
+---
+
+## VahidOOnLine — post 243444
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243444_1780441625.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال با اشاره به تغییر زمان امتحانات نهایی «به‌دلیل پیاده‌روی اربعین» گفت دانش‌آموزان به زمان‌بندی قبلی نیز معترض بودند و این تغییرات «بازی با روح و روان دانش‌آموزان است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243443
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243443_1780441627.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارکو روبیو، وزیر امور خارجه ایالات متحده، روز سه‌شنبه ۱۲ خرداد در جلسه استماع سنا گفت عوامل جمهوری اسلامی ایران به طور مداوم در حال برنامه‌ریزی برای ترور مقام‌های سیاسی آمریکا بوده‌اند.
+روبیو گفت: «افرادی در آمریکا محکوم شده‌اند و روز گذشته نیز یک نفر بازداشت شد؛ عوامل ایرانی برای ترور مقام‌های سیاسی آمریکا، از جمله رئیس‌جمهوری ایالات متحده، برنامه‌ریزی کرده‌اند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243435
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243435_1780441629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاهش قیمت بنزین در آمریکا فقط یک خبر اقتصادی نیست، می‌تواند نشانه‌ای از امید بازارها به کاهش تنش و ادامه مذاکرات باشد.
+
+اما در حالی که واشنگتن ممکن است برای حفظ ثبات بازار انرژی انگیزه بیشتری پیدا کرده باشد، تجربه چهار دهه گذشته نشان می‌دهد جمهوری اسلامی بارها فرصت‌های کاهش بحران را از بین برده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243434
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243434_1780441629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بزرگ‌ترین گروه کشتیرانی جهان، ام‌اس‌سی (MSC)، اعلام کرد که کشتی باری «ساریسکا ۵» متعلق به این شرکت، روز دوشنبه در بندر ام‌قصر عراق در خلیج فارس هدف اصابت دو پرتابه قرار گرفته و دچار آتش‌سوزی شده است، اما تمامی خدمه آن «در سلامت کامل» هستند. رویترز با انتشار تصاویری جدید از این کشتی گزارش داد، در حالی که شرکت ام‌اس‌سی این حادثه را یک «حمله بی‌دلیل» به یک شناور تجاری بی‌طرف و بدون هیچ‌گونه وابستگی به آمریکا یا اسرائیل توصیف کرده، رسانه‌های دولتی ایران گزارش دادند که سپاه پاسداران با پذیرش مسئولیت این اقدام، اعلام کرده است که این کشتی را با یک موشک کروز و در «اقدامی تلافی‌جویانه» در پاسخ به حمله قبلی به یک کشتی ایرانی هدف قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243433
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243433_1780441631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت اعلام کرد سامانه‌های دفاعی این کشور در حال مقابله با حملات موشکی و پهپادی خصمانه هستند.
+دقایقی پیش نیز گزارش‌هایی از صداهای انفجار در محدوده قشم منتشر شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243432
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243432_1780441632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد کل نیروهای مسلح کویت با انتشار بیانیه‌ای فوری اعلام کرد که سیستم‌های پدافند هوایی این کشور، بامداد چهارشنبه، ۱۳ خردادماه، مشغول مقابله با حملات موشکی و پهپادهای متخاصم در آسمان کویت هستند. ارتش کویت در این اطلاعیه تاکید کرد که صدای انفجارهای شنیده‌شده در مناطق مختلف، ناشی از عملیات موفقیت‌آمیز سامانه‌های دفاع جوی در رهگیری و انهدام این «اهداف متخاصم» است. مقامات نظامی کویت از تمامی شهروندان و ساکنان این کشور خواسته‌اند تا آرامش خود را حفظ کرده و به طور کامل به دستورالعمل‌های امنیتی و ایمنی صادر شده از سوی مراجع مربوطه پایبند باشند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243431
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243431_1780441632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال از اصفهان با اشاره به گرانی گفت شرایط معیشتی به‌قدری سخت شده که خوراک مردم محدود شده و «بهداشت و درمان دیگر اولویت نیست».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243428
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243428_1780441634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243427
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243427_1780441634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهای این کشور یک نفتکش بدون بار با پرچم بوتسوانا در مسیر حرکت به سمت بندر خارک را که به هشدارهای نیروهای آمریکایی بی‌توجهی کرد، از کار انداخته‌اند.
+طبق این گزارش، در پی بی‌توجهی این کشتی به هشدارها، یک هواپیمای آمریکایی با پرتاب موشک به موتورخانه آن، کشتی را از کار انداخت و مانع ادامه مسیرش شد.
+سنتکام افزود که از ابتدای محاصره دریایی بنادر ایران تاکنون شش کشتی تجاری توسط نیروهای آمریکایی از کار انداخته شده‌ و ۱۲۲ کشتی تجاری نیز مجبور به تغییر مسیر شده‌اند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243426
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243426_1780441635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️معاون گردشگری ایران اعلام کرد هشت روستا از استان‌های مختلف کشور به‌عنوان نامزدهای ایران برای رقابت در فهرست «بهترین روستاهای گردشگری جهان» در سال ۲۰۲۶ معرفی شده‌اند.
+
+روستاهای پامنار در خوزستان، گیسوم در گیلان، شانه‌تراش در مازندران، ریاب در خراسان رضوی، درک در سیستان و بلوچستان، قلعه‌بالا در سمنان، موئیل در اردبیل و مصر در اصفهان، برای قرار گرفتن در فهرست جهانی سازمان گردشگری ملل متحد (UN Tourism) رقابت خواهند کرد.
+
+به گفته مسئولان گردشگری، تعداد روستاهای ایرانی پذیرفته‌شده در این برنامه از یک روستا در سال‌های ۲۰۲۳ و ۲۰۲۴ به سه روستا در سال ۲۰۲۵ افزایش یافته است.
+
+ارزیابی روستاها بر اساس معیارهایی مانند حفاظت از میراث فرهنگی، پایداری اقتصادی و زیست‌محیطی، زیرساخت‌ها، مشارکت جوامع محلی و توسعه گردشگری پایدار انجام می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243425
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243425_1780441635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر، بامداد چهارشنبه، ۱۳ خردادماه، از «شنیده‌شدن صدای انفجار‌هایی در محدوده جزیره قشم» خبر داد. مهر نوشت: «ماهیت این صداها به طور دقیق مشخص نیست و هیچ‌ یک از نهادهای رسمی نظامی و انتظامی تا این لحظه درباره علت وقوع این صداها اظهارنظری نکرده‌اند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243424
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243424_1780441636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام آمریکایی و منابع آگاه، روز سه‌شنبه، به «ای‌بی‌سی نیوز» اعلام کردند که دونالد ترامپ، رئیس‌جمهوری آمریکا، در جریان نشست روز جمعه در «اتاق وضعیت» کاخ سفید، تضمین‌های شفاهی مذاکره‌کنندگان ایرانی را ناکافی دانسته و خواستار مکتوب شدن تعهدات هسته‌ای مشخص از سوی تهران در توافق اولیه شده است. مارکو روبیو، وزیر امور خارجه آمریکا، در جلسه استماع کمیته روابط خارجی سنا تایید کرد که واشنگتن پیش از هرگونه پیشرفتی، خواهان تعهد مکتوب ایران برای تعیین تکلیف اورانیوم غنی‌شده در اعماق کوه‌ها و پذیرش محدودیت‌های شدید یا لغو کامل غنی‌سازی است و تاکید کرد که تا زمان اجرای این تعهدات، هیچ دارایی آزاد نخواهد شد و تحریمی لغو نمی‌شود. در حالی که ترامپ گفته انتظار دارد ایران ظرف یک هفته این شروط را بپذیرد، مقامات آمریکایی درباره یکپارچگی رژیم ایران در تصمیم‌گیری ابراز تردید کرده‌اند؛ هرچند روبیو اشاره کرد نشانه‌هایی وجود دارد که مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی، که پس از مجروح شدن در ساعات اولیه جنگ در انظار عمومی دیده نشده، این روزها تا حدی در جریان این توافقات قرار گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی آمریکا (سنتکام)، روز سه‌شنبه، ۱۲ خردادماه، اعلام کرد نیروهای ایالات متحده یک نفت‌کش خالی را که در حال حرکت به سمت بندر جزیره خارگ در ایران بود، در آب‌های بین‌المللی خلیج فارس متوقف و زمین‌گیر کرده‌اند. به گفته سنتکام، خدمه این نفت‌کش با پرچم بوتسوانا (M/T Lexie)، در یک بازه زمانی ۲۴ ساعته بارها هشدارهای ارتش آمریکا را نادیده گرفتند. در نهایت یک جنگنده آمریکایی با شلیک موشک هلفایر به اتاق موتور کشتی، آن را از کار انداخت و مانع رسیدن آن به ایران شد. سنتکام از ۲۴ فروردین‌ماه محاصره دریایی بنادر ایران را آغاز کرده و گزارش داد که در طول دوران آتش‌بس، تاکنون ۶ کشتی تجاری را متوقف و ۱۲۲ کشتی دیگر را تغییر مسیر داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم جمهوری اسلامی به بحرین حمله کرد پدافند بحرین فعال شد @withyashar
+</div>
+
+## WithYashar — post 13326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳‌پا اعلام کرد در پاسخ به آنچه «حمله آمریکا به حاکمیت ایران در جزیره قشم» خوانده، پایگاه‌های نظامی آمریکا در کویت را با حملات موشکی هدف قرار داده و این اقدام را «پاسخ اولیه» توصیف کرده است.
+
+در این بیانیه به آمریکا و هر کشوری که خاک یا آسمان خود را برای عملیات علیه ایران در اختیار بگذارد هشدار داده شده که هرگونه اقدام جدید با پاسخی شدیدتر و فراتر از «قواعد متعارف» روبه‌رو خواهد شد.
+
+۳پا همچنین تأکید کرده است که دوران «بزن و فرار کن» پایان یافته و نیروهای آمریکایی و متحدانشان باید منتظر پیامدهای اقدامات خود باشند.
+@withyashar
+</div>
+
+## WithYashar — post 13325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله دوباره جمهوری اسلامی به اقلیم کردستان
+@withyashar
+</div>
+
+## WithYashar — post 13324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: یک موشک به ساحل ایران برخورد کرد
+
+خبرگزاری مهر گزارش داد یک پرتابه در محدوده ساحلی بین شهر سوزا و روستای ماسان برخورد کرده است
+@withyashar
+</div>
+
+## WithYashar — post 13323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بحرین
+@withyashar
+</div>
+
+## WithYashar — post 13322
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13322_1780441636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم جمهوری اسلامی به بحرین حمله
+کرد
+پدافند بحرین فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 13321
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13321_1780441637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصادف در خیابان های کویت بر اثر تماشای موشکهای ایران
+@withyashar
+</div>
+
+## WithYashar — post 13320
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13320_1780441639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیکه دیگری از لاشه موشک
+@withyashar
+</div>
+
+## WithYashar — post 13319
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13319_1780441640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لاشه موشک منهدم شده ایرانی‌توسط پدافند امریکایی کویت @withyashar
+</div>
+
+## WithYashar — post 13318
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت ایران داره به همین سرعت محدود میشه 🚨😞
+@withyashar
+</div>
+
+## WithYashar — post 13317
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13317_1780441641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسمان کویت کمی‌پیش
+@withyashar
+</div>
+
+## WithYashar — post 13315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده‌های اسرائیلی پرواز کردن
+
+@withyashar
+</div>
+
+## WithYashar — post 13314
+
+
+
+
+## WithYashar — post 13313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید از صحبت‌های بسیار زیبای شاهنشاه آریامهر ارتباط قلبی ما❤️‍🩹 فرا مرزی شده https://www.instagram.com/reel/DZGNeRLxq-Y/?igsh=MXQ1dTZmdXk2bGZpdQ==
+</div>
+
+## WithYashar — post 13312
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13312_1780441642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفع موشک های ایرانی در کویت
+@withyashar
+</div>
+
+## WithYashar — post 13311
+
+
+
+
+## WithYashar — post 13310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایگاه عریفجان در جنوب کویت، نیز هدف قرار گرفت
+@withyashar
+</div>
+
+## WithYashar — post 13309
+
+
+
+
+## WithYashar — post 13308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار این به معنای شروع جنگ هست بنظرت یا امریکا میخواد بگه نقض نشده
+</div>
+
+## WithYashar — post 13307
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13307_1780441644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رد موشکهای بالستیک در آسمان شیراز
+@withyashar
+</div>
+
+## mwarmonitor — post 10050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه وال‌استریت ژورنال گزارش ما را تأیید کرده و می‌نویسد دونالد ترامپ با عصبانیت صدایش را بالا برد و به بنیامین نتانیاهو گفت که باید اطاعت کند، زیرا بدون حمایت کاخ سفید در زندان خواهد بود. باراک راوید
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجار در اربیل
+</div>
+
+## mwarmonitor — post 10048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجار در بحرین
+</div>
+
+## mwarmonitor — post 10047
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10047_1780441644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥۳ انفجار شدید دیگر در کویت شنیده شد
+</div>
+
+## mwarmonitor — post 10046
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10046_1780441645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت دفاع کویت اعلام کرد که پدافند هوایی کویت در حال حاضر درگیر مقابله با حملات خصمانه موشکی و پهپادی است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در قشم
+</div>
+
+## mwarmonitor — post 10044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌خلبان جنگنده F-15E که بر فراز ایران سرنگون شد، همان خلبانی بود که یکی از جنگنده‌هایش در ابتدای جنگ بر اثر آتش خودی کویت هدف قرار گرفته و سقوط کرده بود.
+
+🔸تنها کمی بیش از ۳۰ روز پس از آن‌که در آن حادثه با موفقیت ایجکت کرده و جان سالم به در برده بود، او در مأموریتی بر فراز ایران بود که جنگنده‌اش توسط یک موشک زمین به هوا هدف قرار گرفت. CBS
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ایالات متحده صرافی نوبیتکس، بزرگ‌ترین صرافی دارایی دیجیتال ایران، و ۳ صرافی دیگر را تحریم کرده و آن‌ها را به حمایت از شبکه دور زدن تحریم‌های تهران متهم کرده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در حال تحت فشار گذاشتن ایران است تا به‌عنوان بخشی از یک توافق اولیه با ایران، تعهدات هسته‌ای محکم‌تری را به‌صورت کتبی ارائه دهد — ABC
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10041
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10041_1780441646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+یک هواپیمای آمریکایی در تاریخ ۲ ژوئن با شلیک موشک هلفایر به اتاق موتور نفتکش M/T Lexie با پرچم بوتسوانا، این شناور را از کار انداخت.
+به گفته سنتکام، این نفتکش پس از آن هدف قرار گرفت که هشدارها را نادیده گرفت و در نقض تدابیر محاصره‌ای به حرکت خود به سمت جزیره خارک ایران ادامه داد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342523
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342523_1780441647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Secretary of State Marco Rubio told lawmakers that Iran reopening the Strait of Hormuz is a prerequisite for talks to move forward, and said dysfunction within the Iranian regime has slowed progress toward a potential agreement. @BillMelugin_ has the latest.
+</div>
+
+## FoxNewsTwitter — post 342522
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342522_1780441649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The numbers are in: FOX News was the most-watched news brand on YouTube in May.
+
+Our content generated more than 338 million views — more than tripling the viewership of every broadcast network — as audiences continue turning to FOX News for the biggest stories shaping the country and the world.
+</div>
+
+## FoxNewsTwitter — post 342521
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342521_1780441650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"These aren't peaceful protesters. These are rioters."
+
+DHS Secretary Markwayne Mullin refutes protesters' allegations about conditions at Delaney Hall, saying the facility has twice the square footage and twice the medical staff of the state penitentiary.
+
+His comments come as the New Jersey ICE facility faces intense left-wing scrutiny and chaotic protests over the detention center's conditions, operations, and treatment of detainees.
+
+Several protesters have been arrested outside the ICE facility after clashes with law enforcement, including one man facing DOJ charges for threatening to kill an ICE officer and his family.
+</div>
+
+## FoxNewsTwitter — post 342520
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342520_1780441651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I don't know what you have to be so proud of right now."
+
+Black Crowes frontman Chris Robinson stopped a crowd of concertgoers after "U.S.A." chants broke out during the band's Tampa show because the band's mascot appeared dressed as Uncle Sam on a video screen.
+
+The remark was met with boos, and some attendees reportedly walked out before the concert ended.
+
+Videos circulating online show Robinson doubling down, telling critics in the crowd that "some of us have real faith" and are "not afraid" or "ignorant.
+</div>
+
+## FoxNewsTwitter — post 342519
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342519_1780441652.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @EricShawnTV: Life with John Gotti. Watch our exclusive: “Gotti’s Guy,” now streaming on Fox Nation! @foxnation @FoxNews @foxnewsradio @foxnewspolitics #foxnation #fox #mafia #crime #streaming
+</div>
+
+## FoxNewsTwitter — post 342518
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342518_1780441654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The DOJ is officially walking away from President Trump's proposed Anti-Weaponization Fund.
+
+Acting Attorney General Todd Blanche told lawmakers Tuesday that the department will not move forward with the controversial fund, which was created as part of Trump's settlement with the IRS.
+
+"We are not moving forward with the fund, period," Blanche said during a House Appropriations hearing.
+
+The announcement comes after a federal judge temporarily blocked the effort and just days before a court hearing that was set to examine whether the fund had a legal basis.
+</div>
+
+## FoxNewsTwitter — post 342517
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342517_1780441654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: @willcain reveals jaw-dropping statistics about homelessness in Karen Bass' Los Angeles as he breaks down the key issues at stake tonight's mayoral election:
+
+64% of homeless individuals in LA are from outside the city, while 6% came from other countries including North Korea, Cuba, and Venezuela.
+
+All eyes are on Los Angeles tonight as voters head to the polls for closely watched primary election, where concerns over homelessness, public safety, and incumbent city leadership have dominated the conversation.
+@WillCainShow
+</div>
+
+## pm_afshaa — post 92159
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92159_1780441656.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران اعلام کرد در پاسخ به آنچه «حمله آمریکا به حاکمیت ایران در جزیره قشم» خوانده، پایگاه‌های نظامی آمریکا در کویت رو با حملات موشکی هدف قرار داده و این اقدام رو «پاسخ اولیه» توصیف کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92158
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92158_1780441657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از حمله موشکی به بحرین :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجیبه امارات رو نزدن هنوز
+</div>
+
+## pm_afshaa — post 92156
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92156_1780441657.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون آسمان بحرین :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92155
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92155_1780441658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عربی: نیروی هوایی ایران دقایقی قبل با جنگنده مواضع کردها در اربیل، کردستان عراق رو بمباران کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92154
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92154_1780441658.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رد موشک در بحرین
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92153
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92153_1780441659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصویر رد موشک شلیک شده از شیراز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92152
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92152_1780441659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شلیک چندین موشکی بالستیک از ایران به سمت پایگاه آمریکا در کویت و بحرین.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آژیر خطر در بحرین هم فعال شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آژیر خطر در بحرین هم فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92149
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92149_1780441660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از فعال شدن پدافند کویت درپی حمله موشکی و پهبادی ایران : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92148
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92148_1780441660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از فعال شدن پدافند کویت درپی حمله موشکی و پهبادی ایران : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92145
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92145_1780441661.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از فعال شدن پدافند کویت درپی حمله موشکی و پهبادی ایران :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92144
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92144_1780441662.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران موشک و پهباد زده سمت کویت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92143
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92143_1780441662.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو جزیره قشم صدای انفجار شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92142
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92142_1780441663.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: ساعتی پیش یک نفتکش بدون محموله که به سمت جزیره خارک درحال حرکت بود رو از کار انداختیم. این کشتی به هشدارها توجه نکرد و ما با یک موشک موتورخانه رو هدف قرار دادیم و متوقف شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5274
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5274_1780441663.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 بر اساس گزارش منابع محلی یکی از پایگاه‌های موشکی سـ.ـپاه پاسداران در جزیره قشم بامداد چهارشنبه ۱۳ خرداد ۱۴۰۵ هدف حمله قرار گرفت.
+
+خبرگزاری مهر به نقل از ساکنین جزیره از «شنیده‌شدن صدای انفجار‌هایی در محدوده جزیره قشم» خبر داد. مهر نوشت: «ماهیت این صداها به طور دقیق مشخص نیست و هیچ‌ یک از نهادهای رسمی نظامی و انتظامی تا این لحظه درباره علت وقوع این صداها اظهارنظری نکرده‌اند».
+
+*عکس آرشیوی
+
+#IRGCterrorists #قشم #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 5273
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5273_1780441664.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 منابع محلی سه‌شنبه شب ۱۱ خرداد ۱۴۰۵ گزارش دادند دو موشک سـ.ـپاه پاسداران یک مقر حزب کومله در نزدیکی دره آلانه، در شمال اربیل اصابت کرد.
+
+*عکس آرشیوی
+
+#کومله #اربیل
+@DEJradio
+</div>
+
+## DEJradio — post 5272
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5272_1780441664.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+سه‌شنبه ۱۲ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DEJradio — post 5271
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5271_1780441666.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📷 تصاویر ماهواره‌ای شرکت «ایرباس دی‌اس» جاده‌های منتهی به تأسیسات اتمی فُردو با موانع سنگی-خاکی پر شده است، تا در صورت عملیات احتمالی زمینی آمریکا و اسرائیل برای تخلیه اورانیوم‌ها سخت شود.
+
+#فردو
+@DEJradio
+</div>
+
+## DEJradio — post 5270
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5270_1780441666.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🚨 سنتکام اعلام کرد نیروهای آمریکایی یک نفتکش را که در مسیر یکی از بنادر جمهوری اسلامی در خلیج فارس در حرکت بود، از کار انداختند.
+
+بر اساس بیانیه فرماندهی مرکزی ایالات متحده، نفتکش «لکسی» با پرچم بوتسوانا هنگام حرکت به سوی جزیره خارک، به هشدارهای مکرر نیروهای آمریکایی بی‌اعتنایی کرده و طی ۲۴ساعت چندین بار از اجرای دستورهای صادرشده خودداری کرده است.
+سنتکام افزود در نهایت یک هواگرد آمریکایی با شلیک موشک هلفایر به اتاق موتور این کشتی، آن را از کار انداخت و مانع رسیدن آن به ایران شد.
+فرماندهی مرکزی ایالات متحده همچنین اعلام کرد از زمان آغاز اجرای محاصره دریایی بنادر جمهوری اسلامی، تاکنون شش کشتی تجاری را از کار انداخته و ۱۲۲کشتی دیگر را ناگزیر به تغییر مسیر کرده است.
+
+#خبر #محاصره_دریایی #سنتکام
+@DEJradio
+</div>
+
+## VahidOnline — post 75886
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75886_1780441667.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+عکس بالا: بندر کنگان دو تا موشک شلیک شد سمت کشور های عربی 2.19
+
+ساعت ۲:۲۰ از جم بوشهر موشک زدن
+
+درود همین الان از جم دو عدد موشک شلیک شد به سمت خلیج فارس
+
+از جم ساعت ۲:۲۱
+دو تا موشک پرتاب شد
+
+از جم بوشهر هم دو تا زدن
+همين الان
+
+شلیک موشک از شهرک موشکی شهید چمران جم هم اکنون
+ساعت ۲:۲۳ دقیقه صبح دو موشک همزمان
+
+آپدیت: پرتاب سوم
+
+سومی هم پرتاب شد
+
+یکی دیگه هم همین الان شلیک شد
+
+۲:۲۴ از جم یکی دیگه پرتاب شد
+
+
+🔄 آپدیت:
+وزارت کشور بحرین دقایقی قبل از به صدا در آمدن «آژیر خطر» خبر داد و از ساکنان این کشور خواست به نزدیکترین مکان امن بروند. این هشدار پس از آن است که کویت نیز اعلام کرد مشغول مقابله با حملات هوایی است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75885
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75885_1780441668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+۲:۰۷ همین چند ثانیه پیش صدای پرتاب موشک از توی خود شهر داراب شنیده شد.
+
+الان دوباره صدای پرتاب موشک اومد
+
+وحید سلام
+یکی دیگه هم الان زدن از داراب
+۲ دقیقه پیش
+۲ تای قبلی هم یکیش تو هوا ترکید
+
+آپدیت: عکس بالا
+و پیامی دیگر از کویت: دوباره صدای آژیر
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75884
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75884_1780441668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از داراب در استان فارس پیام‌هایی درباره شلیک موشک دریافت می‌کنم. هم‌زمان اسکرین‌شات‌هایی هم از کویت دریافت می‌کنم که میگن هشدار اعلام شده.
+چهارشنبه ۱۳ خرداد
+Vahid
+ارتش کویت اعلام کرد سامانه‌های دفاعی این کشور در حال مقابله با حملات موشکی و پهپادی خصمانه هستند.
+VahidOOnLine
+ستاد کل نیروهای مسلح کویت با انتشار بیانیه‌ای فوری اعلام کرد که سیستم‌های پدافند هوایی این کشور، بامداد چهارشنبه، ۱۳ خردادماه، مشغول مقابله با حملات موشکی و پهپادهای متخاصم در آسمان کویت هستند. ارتش کویت در این اطلاعیه تاکید کرد که صدای انفجارهای شنیده‌شده در مناطق مختلف، ناشی از عملیات موفقیت‌آمیز سامانه‌های دفاع جوی در رهگیری و انهدام این «اهداف متخاصم» است. مقامات نظامی کویت از تمامی شهروندان و ساکنان این کشور خواسته‌اند تا آرامش خود را حفظ کرده و به طور کامل به دستورالعمل‌های امنیتی و ایمنی صادر شده از سوی مراجع مربوطه پایبند باشند.
+@VahidOOnLine
+
+پیام‌های دریافتی که پیش از اخبار بالا نقل کرده بودم:
+سلام همین الان ساعت ۱:۲۳ دقیقه دوتا موشک از داراب استان فارس پرتاب شد
+یکیش حین رفتن ترکید
+
+همین الان داراب صدای انفجار شدید اومد و شیشه ها لرزید
+کل همسایه ها ریختن تو کوچه ببینن چه خبره
+
+وحيد همين الان اژير كويت فعال شد دوباره
+٦ تا انفجار خيلي سنگين تا الان
+توي اين ٣ ماه اينقد صداش سنگين نبود
+
+سلام آژیر در کویت
+۵ انفجار بزرگ در کویت نسبت به روزهای قبل بیشتره
+
+آپدیت:
+ما بین فسا و داراب هستیم
+یه صدای انفجار وحشتناک اومد ولی نفهمیدیم چیشده
+
+من داراب هستم
+ما عروسی بودیم تقریبا ساعت ۱.۴۰ دقیقه بود که یه صدای انفجار اومد و سقف سالن لرزید
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام دریافتی تایید نشده:
+صدای انفجار روستای نخل گل قشم
+
+خبرگزاری مهر هم نوشته:
+"بامداد چهارشنبه صدای انفجار‌هایی در محدوده شهرستان قشم از سوی منابع محلی و ساکنان این جزیره گزارش شده است."
+
+معناش این نیست که خبر حتما درسته.
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75882
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75882_1780441668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش آمریکا به یک کشتی دیگر شلیک کرد.
+
+بیانه سنتکام، ترجمه ماشین:
+تامپا، فلوریدا — نیروهای آمریکا [امروز] ۲ ژوئن یک نفتکش بدون بار را که قصد داشت به سوی یکی از بنادر ایران در خلیج [فارس] حرکت کند، از کار انداختند.
+
+فرماندهی مرکزی آمریکا، سنتکام، تدابیر محاصره را علیه نفتکش M/T Lexie با پرچم بوتسوانا اجرا کرد؛ این کشتی هنگام عبور از آب‌های بین‌المللی به سوی جزیره خارک در حرکت بود. خدمه کشتی هشدارهای مکرر را نادیده گرفتند و طی یک دوره ۲۴ ساعته چندین بار از اجرای دستورهای نیروهای آمریکایی سر باز زدند.
+
+در نهایت، یک هواپیمای آمریکایی با شلیک یک موشک هل‌فایر به موتورخانه کشتی، آن را از کار انداخت و مانع رسیدن نفتکش به ایران شد.
+
+سنتکام از ۱۳ آوریل اجرای محاصره همه رفت‌وآمدهای دریایی به بنادر ایران و خروج از آن‌ها را آغاز کرده است. با ادامه آتش‌بس با ایران، نیروهای آمریکا تاکنون شش کشتی تجاری را از کار انداخته و مسیر ۱۲۲ کشتی را تغییر داده‌اند.
+@CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340299
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340299_1780441668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال با اشاره به تغییر زمان امتحانات نهایی «به‌دلیل پیاده‌روی اربعین» گفت دانش‌آموزان به زمان‌بندی قبلی نیز معترض بودند و این تغییرات «بازی با روح و روان دانش‌آموزان است
+</div>
+
+## IranIntlTV — post 340298
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340298_1780441670.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های آمریکایی روز دوشنبه ۱۱ خرداد اعلام کردند تونلی پیشرفته به طول تقریبی ۵۸۹ متر را که برای قاچاق مواد مخدر از شهر تیخوانای مکزیک به آمریکا استفاده می‌شد، در سن‌دیگو کشف کرده‌اند. این تونل دارای برق، سیستم تهویه و ریل حمل‌ونقل بود.
+
+به گفته آن‌ها، در این رابطه بیش از یک تُن کوکایین به ارزش حدود ۴۵ میلیون دلار کشف و توقیف شد.
+
+پیش‌تر، مهدی تاج، رییس فدراسیون فوتبال، با رد نگرانی‌ها درباره میزان تبهکاری در شهر تیخوانای مکزیک، محل کمپ تیم ملی، گفته بود قرار نیست مردم آن‌جا را اصلاح و ارشاد کنیم.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340297
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340297_1780441671.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانش‌آموزان؛ قربانیان خاموش بحران‌ها
+
+آموزش‌وپرورش ایران در سال گذشته زیر فشار سه بحران هم‌زمان قرار گرفت: شرایط جنگی و امنیتی، تعطیلی‌های مکرر مدارس و محدودیت‌های گستردهٔ اینترنت.
+
+با قطع یا اختلال شدید اینترنت، آموزش آنلاین و فعالیت پلتفرم «شاد» با مشکلات جدی روبه‌رو شد و شکاف آموزشی میان دانش‌آموزان عمیق‌تر شد.
+
+هم‌زمان، تصمیم برای برگزاری حضوری امتحانات نهایی و تأثیر قطعی ۶۰ درصدی سوابق تحصیلی در کنکور، موجی از اعتراضات دانش‌آموزی را در شهرهای مختلف به همراه داشت که در برخی موارد با برخورد نیروهای امنیتی مواجه شد.
+
+نتیجهٔ این شرایط، افزایش اضطراب، افت یادگیری و شکل‌گیری نسلی است که بیش از آن‌که مدرسه را محل آموزش بداند، آن را نمادی از بی‌ثباتی و بحران‌های مداوم تجربه کرده است.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/zGKIdbA9wXc
+@iranintltv
+</div>
+
+## IranIntlTV — post 340296
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340296_1780441673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاطفه از مشهد: توافق چیزی جز ضرر برای ما ندارد؛ اگر توافقی صورت بگیرد، امنیت نخواهیم داشت
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/zGKIdbA9wXc
+@iranintltv
+</div>
+
+## IranIntlTV — post 340295
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اردلان از آلمان: توافق تأثیری بر زندگی مردم ندارد؛ آنها نگران غزه هستند، نه مردم ایران
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/zGKIdbA9wXc
+@iranintltv
+</div>
+
+## IranIntlTV — post 340294
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340294_1780441675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سینا از اسلامشهر: توافقی نمی‌کنند؛ چون هیچ‌ کدام به دیگری اعتماد ندارند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/zGKIdbA9wXc
+@iranintltv
+</div>
+
+## IranIntlTV — post 340293
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340293_1780441676.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیروان از زاهدان: در سیستان و بلوچستان، گرانی بنزین مانع رساندن بیماران به بیمارستان شده است
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/zGKIdbA9wXc
+@iranintltv
+</div>
+
+## IranIntlTV — post 340292
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340292_1780441677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت اعلام کرد سامانه‌های دفاعی این کشور در حال مقابله با حملات موشکی و پهپادی خصمانه هستند.
+دقایقی پیش نیز گزارش‌هایی از صداهای انفجار در محدوده قشم منتشر شد.
+
+https://iranintl.com/202606022811
+</div>
+
+## IranIntlTV — post 340291
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340291" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: جمهوری اسلامی؛ آخرین بازمانده اردوگاه یاغیان جهان
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340290
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340290_1780441678.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «جدای از آمریکا و اسرائیل که بازیگران اصلی تقابل با جمهوری اسلامی هستند، اکثریت مردم ایران نیز برای سرنگونی حکومت مصمم هستند. گرانی و تورم تشدیدشده ناشی از جنگ، یکی از عوامل مهم خیزش آینده مردم خواهد بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340289
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340289_1780441679.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال از اصفهان با اشاره به گرانی گفت شرایط معیشتی به‌قدری سخت شده که خوراک مردم محدود شده و «بهداشت و درمان دیگر اولویت نیست».
+</div>
+
+## IranIntlTV — post 340288
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340288_1780441681.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رومن گافمن، رییس جدید موساد، در مراسم معارفه‌اش گفت تحول راهبردی که اسرائیل در محور ایران ایجاد کرده، موازنه قدرت منطقه را تغییر داده و محور شیعه، که به گفته او نابودی اسرائیل را در دستور کار خود قرار داده بود، ضربه شدیدی خورده است.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340285
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340285_1780441682.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+https://iranintl.com/202606023526
+</div>
+
+## IranIntlTV — post 340284
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340284_1780441683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خواهر جاویدنام احمد خسروانی، بسکتبالیست ۲۱ ساله که در شامگاه پنجشنبه ۱۸ دی ۱۴۰۴ با شلیک مستقیم گلوله کشته شد، با انتشار ویدیویی از حضور او در مسابقات بسکتبال نوشت: «احمد جانم، بلندقامتم،‌ ویدیو‌هات هنوز نفس می‌کشند، اما خودت نیستی؛ چجوری می‌توانم باور کنم کسی که این‌قدر تو زمین زنده بود، الان فقط تصویرش مانده؟»
+
+🔹او نوشت: «۱۴۵ روز است که نبودنت را نفس می‌کشیم، هر روزش انگار یک عمر گذشته،‌ولی من هنوز هملن‌جا موندم، در لحظه‌ای که دنبال پیکر بی‌جانت می‌گشتیم.»
+
+🔹خواهر جاویدنام احمد خسروانی نوشته است: «بهار آمد، تابستون آمد،‌ ولی من هنوز در زمستان جا ماندم، من توی دی ماندم. دردی در دلم هر روز عمیق‌تر می‌شود. زخمی که با هیچ مرهمی درمان نمی‌شود.»
+
+🔹جاویدنام احمد خسروانی، دانشجوی ۲۱ ساله دانشگاه صنعتی شریف و بسکتبالیست که با تیم فرزان شمیران در مسابقات بسکتبال سه نفره تهران قهرمان شده بود و عنوان برترین بازیکن لیگ تهران در سال ۱۴۰۴ هم داشت، شامگاه پنجشنبه ۱۸ دی ۱۴۰۴ با شلیک مستقیم گلوله کشته شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340283
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340283" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ نظر شما دربارهٔ مذاکرات جمهوری اسلامی و آمریکا
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340282
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340282_1780441684.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهای این کشور یک نفتکش بدون بار با پرچم بوتسوانا در مسیر حرکت به سمت بندر خارک را که به هشدارهای نیروهای آمریکایی بی‌توجهی کرد، از کار انداخته‌اند.
+طبق این گزارش، در پی بی‌توجهی این کشتی به هشدارها، یک هواپیمای آمریکایی با پرتاب موشک به موتورخانه آن، کشتی را از کار انداخت و مانع ادامه مسیرش شد.
+سنتکام افزود که از ابتدای محاصره دریایی بنادر ایران تاکنون شش کشتی تجاری توسط نیروهای آمریکایی از کار انداخته شده‌ و ۱۲۲ کشتی تجاری نیز مجبور به تغییر مسیر شده‌اند.
+
+https://iranintl.com/202606024534
+</div>
+
+## IranIntlTV — post 340281
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340281_1780441685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «اسرائیل و مردم ایران مصمم‌ترین و همسوترین بازیگران در مسیر سرنگونی جمهوری اسلامی هستند. آمریکا نیز در نهایت، همان‌گونه که در برابر دیگر بازیگران چالش‌گر نظم جهانی عمل کرده، به مسیر اقدام قاطع علیه جمهوری اسلامی خواهد پیوست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340280
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340280_1780441686.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی آخرین حکومت یاغی جهان است که جهان نیز آن را تحمل نخواهد کرد. جمهوری اسلامی نه در برابر مردم ایران و نه در برابر جهان عقب‌نشینی نخواهد کرد. مردم ایران و نظم جهانی نیز آن را تحمل نخواهند کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340279
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340279_1780441687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که به تازگی به ایران اینترنشنال رسیده نشان می‌دهد که ۱۸ دی در راهپیمایی مردم معترض در گلسار رشت، شعار «این آخرین نبرده، پهلوی برمی‌گرده» سر داده شد.
+</div>
+
+## Shin_Persian — post 6433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:01:41 UTC
+
+And it was Khorramshahr 4 BM.
+
+فارسی
+
+و آن موشک بالستیک خرمشهر ۴ بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:53:12 UTC
+
+Source on the ground tells me the previous missile was launched from Borazjan, Bushehr Province, #Iran
+
+فارسی
+
+منابع میدانی به من می‌گویند موشک قبلی از برازجان، استان بوشهر، #Iran پرتاب شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:43:34 UTC
+
+3 more loud blasts in #Kuwait 🇰🇼 right now
+(4 in total within 1 minute)
+
+فارسی
+
+هم‌اکنون ۳ انفجار بلند دیگر در #Kuwait 🇰🇼
+(در مجموع ۴ مورد طی ۱ دقیقه)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:43:01 UTC
+
+Huge blast in #Kuwait 🇰🇼
+
+فارسی
+
+انفجار عظیم در #Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:40:50 UTC
+
+NOW -
+Renewed sirens in #Kuwait 🇰🇼
+
+فارسی
+
+هم‌اکنون -
+تجدید صدای آژیرهای خطر در #Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6425
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6425_1780441688.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:37:28 UTC
+
+Kuwait Ministry of Defense spokesperson warns citizens and residents not to approach or touch any debris or unidentified objects resulting from the interception of hostile aerial targets. #Kuwait 🇰🇼
+
+فارسی
+
+سخنگوی وزارت دفاع کویت به شهروندان و ساکنان هشدار داد که از نزدیک شدن یا لمس هرگونه لاشه یا اشیاء ناشناس ناشی از رهگیری اهداف هوایی متخاصم خودداری کنند. #Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:37:28 UTC
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2061940239636328899
+
+فارسی
+
+@KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2061940239636328899
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6423
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6423_1780441689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ Tue, 02 Jun 2026 22:37:16 UTC بيان رقم (62) صرّح المتحدث الرسمي لوزارة الدفاع العقيد الركن سعود عبدالعزيز العطوان تهيب رئاسة الأركان العامة للجيش بالإخوة المواطنين والمقيمين عدم الاقتراب أو…
+</div>
+
+## Shin_Persian — post 6422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ
+Tue, 02 Jun 2026 22:37:16 UTC
+
+بيان رقم (62)
+
+صرّح المتحدث الرسمي لوزارة الدفاع
+العقيد الركن سعود عبدالعزيز العطوان
+
+تهيب رئاسة الأركان العامة للجيش بالإخوة المواطنين والمقيمين عدم الاقتراب أو لمس أي حطام أو شظايا أو أجسام مجهولة قد تكون ناتجة عن عمليات اعتراض الأهداف الجوية المعادية، نظراً لما قد تشكله من خطر
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Statement No. (62)
+
+Official Statement by the Ministry of Defense Spokesperson
+Colonel Staff Saud Abdulaziz Al-Atwan
+
+The General Staff of the Army urges citizens and residents not to approach or touch any debris, fragments, or unknown objects that may have resulted from the interception of hostile aerial targets, due to the danger they may pose.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6421
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6421_1780441689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: مركز التواصل الحكومي ✓ @CGCKuwait Tue, 02 Jun 2026 21:58:48 UTC بيان صادر عن وزارة الدفاع #CGCKuwait ↩️ Quoted tweet — see the post below for the reply. English Statement issued by the Ministry of Defense #CGCKuwait 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6420
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6420_1780441690.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+مركز التواصل الحكومي ✓ @CGCKuwait
+Tue, 02 Jun 2026 21:58:48 UTC
+
+بيان صادر عن وزارة الدفاع
+
+#CGCKuwait
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Statement issued by the Ministry of Defense
+
+#CGCKuwait
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:57:30 UTC
+
+BM was launched from Fars Province, #Iran
+Sirens went off @ 2155Z in #Kuwait 🇰🇼
+
+فارسی
+
+یک موشک بالستیک از استان فارس، #Iran شلیک شد
+آژیرهای خطر در ساعت ۲۱۵۵ زولو (۰۱:۲۵ به وقت تهران) در #Kuwait 🇰🇼 به صدا درآمدند
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6418
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6418_1780441690.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:57:26 UTC
+
+Kuwaiti Air Defenses are currently responding to hostile missile and drone attacks.
+
+The General Staff of the Army states that any explosions heard are the result of air defense interceptions.
+
+F…
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2061930167338197059
+
+فارسی
+
+پدافند هوایی کویت در حال حاضر در حال پاسخگویی به حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش اعلام کرد که هرگونه صدای انفجار شنیده شده، ناشی از رهگیری‌های پدافند هوایی است.
+
+ف…
+
+منبع: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2061930167338197059
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6417
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6417_1780441691.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ Tue, 02 Jun 2026 21:57:15 UTC تتصدى حالياً الدفاعات الجوية الكويتية لهجمات صاروخية وطائرات مسيرة معادية. تنوه رئاسة الأركان العامة للجيش أن أصوات الانفجارات إن سمعت فهي نتيجة اعتراض منظومات الدفاع…
+</div>
+
+## Shin_Persian — post 6416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ
+Tue, 02 Jun 2026 21:57:15 UTC
+
+تتصدى حالياً الدفاعات الجوية الكويتية لهجمات صاروخية وطائرات مسيرة معادية.
+
+تنوه رئاسة الأركان العامة للجيش أن أصوات الانفجارات إن سمعت فهي نتيجة اعتراض منظومات الدفاع الجوي للهجمات المعادية.
+
+يرجى من الجميع التقيد بتعليمات الأمن والسلامة الصادرة عن الجهات المختصة.
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Kuwaiti air defenses are currently confronting hostile missile attacks and drones.
+
+The General Staff of the Army notes that if sounds of explosions are heard, they are the result of the air defense systems intercepting hostile attacks.
+
+Everyone is requested to adhere to the security and safety instructions issued by the competent authorities.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6415
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:55:59 UTC
+
+NOW -
+Sirens in #Kuwait 🇰🇼
+
+فارسی
+
+هم‌اکنون -
+آژیرهای خطر در #Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:46:22 UTC
+
+State-owned Mehr News
+
+Explosion sounds reported in Qeshm Island area, Hormozgan Province, #Iran
+
+Local sources report multiple explosions heard early Wednesday. Nature of sounds unclear, no official statement from Islamic Regime military or police authorities.
+
+فارسی
+
+خبرگزاری دولتی مهر
+
+گزارش‌هایی از شنیده شدن صدای انفجار در محدوده جزیره قشم، استان هرمزگان، #Iran
+
+منابع محلی از شنیده شدن صدای چندین انفجار در ساعات اولیه روز چهارشنبه خبر می‌دهند. ماهیت این صداها هنوز مشخص نیست و هیچ بیانیه رسمی از سوی مقامات نظامی یا انتظامی رژیم اسلامی صادر نشده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ایالات متحده یک نفتکش را که به سمت جزیره خارک حرکت می‌کرد، هدف قرار داد.
+
+@iliaen
+</div>
+
+## Iliaen — post 4440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو موشک از اطراف داراب (استان فارس) به سمت کشور کویت شلیک شد.
+
+گزارش‌ها از انفجار یک موشک در آسمان ایران، لحظاتی پس از شلیک حکایت دارد.
+
+@iliaen
+</div>
+
+## ManotoTV — post 105900
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105900_1780441692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاهش قیمت بنزین در آمریکا فقط یک خبر اقتصادی نیست، می‌تواند نشانه‌ای از امید بازارها به کاهش تنش و ادامه مذاکرات باشد.
+
+اما در حالی که واشنگتن ممکن است برای حفظ ثبات بازار انرژی انگیزه بیشتری پیدا کرده باشد، تجربه چهار دهه گذشته نشان می‌دهد جمهوری اسلامی بارها فرصت‌های کاهش بحران را از بین برده است.
+</div>
+
+## FarsiVOA — post 219419
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219419_1780441692.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین دقایقی قبل از به صدا در آمدن «آژیر خطر» خبر داد و از ساکنان این کشور خواست به نزدیکترین مکان امن بروند. این هشدار پس از آن است که کویت نیز اعلام کرد مشغول مقابله با حملات هوایی است.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219418
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219418_1780441692.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحید‌آنلاین گزارش‌هایی از کاربران منتشر کرده است که از شنیده شدن صدای انفجار در داراب و همچنین در کویت خبر داده‌اند. جمهوری اسلامی در روزهای اخیر به کویت حمله موشکی کرده بود. ارتش کویت دقایقی قبل گفته بود با حملات هوایی متخاصم در حال مقابله است و صداهای انفجار ممکن است ناشی از رهگیری باشد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219416
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219416_1780441692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام اعلام کرد که یک نفتکش‌ را که به سمت جزیره خارک در حرکت بود و به هشدارهای پیاپی نیروهای آمریکایی بی‌اعتنایی کرد، روز سه‌شنبه ۱۲ خرداد با شلیک یک موشک از یک هواگرد از کار انداخت.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219415
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علی خامنه‌ای کشته شد اما رد جنایات او همچنان باقی است؛ هم بر جان و روانِ جمعی ملتی و هم در سینه‌ تاریخ. آیا راهی برای دست یافتن به عدالت هست؟
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا چهار صرافی رمزارز در ایران و مدیرانشان را تحریم کرد؛ وزارت‌خارجه: این اقدام گامی است برای مقابله با تروریسم و فرار از تحریم‌ها
+
+▪️سخنگوی وزارت امور خارجه آمریکا، تامی پیگوت، گفت وزارت خزانه‌داری آمریکا، روز سه‌شنبه ۱۲ خرداد «بزرگترین صرافی‌های دارایی‌های دیجیتال» جمهوری اسلامی ایران را تحریم کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/us-sanctions-iran-s-largest-crypto-exchange-over-irgc-links/8156547.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سازمان ملل متحد: بحران خاورمیانه کمک‌رسانی به کودکان جهان را مختل کرده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام روز سه‌شنبه از اقدام نظامی علیه یک کشتی دیگر که محاصره دریایی بنادر ایران را نقض می‌کرد خبر داد
+
+▪️ستاد فرماندهی مرکزی آمریکا، سنتکام، روز سه‌شنبه ۱۲ خرداد اعلام کرد که نیروهای ایالات متحده در همین روز با استفاده از زور یک نفتکش خالی از محموله را که در تلاش بود به سمت یکی از بنادر ایران در خلیج فارس حرکت کند، از کار انداختند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156548.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15564
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15564_1780441693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تلاش برای رهگیری موشک‌ها بر فراز منامه
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15563
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15563_1780441693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+Su-34 Fullback
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15562
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15562_1780441694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇭 بحرین هم اکنون:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فووری!!!!! آژیر های هشدار در بحرین نیز فعال شدند! 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15560
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15560_1780441695.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده:
+
+سیگنالی در ایران، اعدادی را به زبان انگلیسی و با صدای گوینده انسانی ارسال می‌کند که نشان می‌دهد پیام به سمت عدد "۱۷۳" است.
+
+پ.ن: روز اول جنگ هم چنین اتفاق مشابهی رخ داد و یکسری رشته اعداد به صورت رمزنگاری مخابره شده بود!
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15559
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15559_1780441695.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فووری!!!!!
+
+آژیر های هشدار در بحرین نیز فعال شدند!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15558
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15558_1780441695.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر: یک پرتابه به ساحل ایران برخورد کرد
+
+خبرگزاری مهر گزارش داد یک پرتابه در محدوده ساحلی بین شهر سوزا و روستای ماسان برخورد کرده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ همزمان با حملات موشکی به کویت، خبرها از انفجار های متعدد در اربیل عراق خبر می‌دهند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15556
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15556_1780441696.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یه راننده کویتی از ترس رفت تو بلوار 🗿
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15555
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15555_1780441697.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ خلیج فارس بوده، خلیج فارس هست و خلیج فارس خواهد بود. 😠
+
+⭕️ سنتکام یک شناورِ سرپیچی‌کننده را در خلیج فارس از کار انداخت.
+
+تامپا، فلوریدا — نیروهای ایالات متحده روز ۲ ژوئن یک نفتکشِ بدون بار را که در تلاش بود به سوی یک بندر ایرانی در خلیج فارس حرکت کند، از کار انداختند.
+
+فرماندهی مرکزی ایالات متحده (سنتکام) هنگام عبور نفتکش M/T Lexie با پرچم بوتسوانا به‌سوی جزیرهٔ خارگ، تدابیر محاصره‌ای را علیه آن اجرا کرد. خدمهٔ این کشتی در طول یک بازهٔ ۲۴ ساعته، بارها هشدارهای مکرر را نادیده گرفتند و از تبعیت از دستورهای نیروهای آمریکایی سر باز زدند.
+
+در نهایت، یک فروند هواگرد آمریکایی با شلیک یک موشک هلفایر به اتاق موتور کشتی، آن را از کار انداخت و مانع از رسیدن نفتکش به ایران شد.
+
+سنتکام از ۱۳ آوریل اجرای محاصرهٔ همهٔ ترافیک دریاییِ ورودی و خروجیِ بنادر ایران را آغاز کرده است. با ادامهٔ آتش‌بس با ایران، نیروهای آمریکایی تاکنون شش کشتی تجاری را از کار انداخته و ۱۲۲ فروند شناور را به مسیر دیگری هدایت کرده‌اند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اسرائیل هیوم:
+
+سپاه پاسداران به صورت مداوم در حال شلیک پهپاد و موشک به سمت اهدافی در اربیل و کویت است و تاکنون شلیک ۲۰ پرتابه تایید شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15553
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15553_1780441697.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صدا و سیما: شنیده شدن صدای انفجار در محدوده جزیره قشم! 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15552
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15552_1780441698.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلمی از بقایای موشک رهگیر در کویت 🇰🇼
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15551
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15551_1780441699.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صدا و سیما:
+
+شنیده شدن صدای انفجار در محدوده جزیره قشم!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15550
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15550_1780441699.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آسمان کویت لحظاتی قبل:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15548
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15548_1780441700.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ویدیو از انفجار ها و فعالیت پدافند در کویت:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15547
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15547_1780441702.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آسمان کویت:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ پایگاه هوایی علی‌السالم در کویت هدف قرار گرفته است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15545
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15545_1780441702.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وزارت دفاع کویت اعلام کرد که پدافند هوایی کشور در حال حاضر در حال پاسخگویی به حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش کویت خاطرنشان می‌کند که صدای انفجارها ناشی از رهگیری پدافند هوایی است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21279
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21279_1780441703.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیلمی از تکه‌های موشک‌های رهگیر که در کویت افتاده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21278
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21278_1780441704.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کویت تأیید کرد که به موشک‌ها و پهباد‌های فرستاده شده از ایران پاسخ می‌دهد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21277
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21277_1780441704.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کویت در حال رهگیری موشک‌های رژیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجور که مشخصه احتمالا آمریکا به قشم یه حمله ای داشته و سپاه هم برای جواب به کویت حمله کرده
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21275
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21275_1780441706.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سوخت‌رسان‌های آمریکایی از تل‌آویو به پرواز دراومدن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گزارشات ایران به کویت حمله کرده و با موشک بالستیک پایگاه علی السالم رو مورد حمله قرار داده. + عکس رد موشک شلیک شده از شیراز @IranianMinds
+</div>
+
+## IranianMinds — post 21273
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21273_1780441707.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گزارشات ایران به کویت حمله کرده و با موشک بالستیک پایگاه علی السالم رو مورد حمله قرار داده.
+
++ عکس رد موشک شلیک شده از شیراز
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه انفجار در قشم رخ داده خبرگذاری های داخلی هم تایید کردن و هنوز منشا مشخص نیست
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز شب شدو صدای انفجار های مختلف از جنوب کشور میاد و خب مشخصه که هیچکدومش هم نقض آتش بس نیست
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21270
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21270_1780441707.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+
+امروز دوم ژوئن ، نیروهای آمریکا یک کشتی بدون بار را که قصد داشت به یکی از بنادر ایران برود با شلیک موشک به موتورخانه آن کشتی از کار انداخت. با وجود اخطارهای پی‌درپی ارتش آمریکا، کشتی اخطارات را نادیده گرفته بود و به همین علت مورد حمله موشکی قرار گرفت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+مذاکرات با ایران ادامه داره و زمان توافق فرا رسیده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21268
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21268_1780441709.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 محمود قیم، مداح حرومی حکومت :
+
+کوروش اگه سگِ آستان اهل بیت نیست،‌ پس خاک بر تمدن ایران باستان !
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋جرمی بوئن
+سردبیر امور بین‌الملل
+
+ایالات متحده و ایران هر دو نشان داده‌اند که ترجیح می‌دهند به جنگی که از زمان اعلام آتش‌بس در روز هشتم آوریل متوقف شده است، بازنگردند.
+
+هیچ ‌یک از دو طرف اجازه نداده‌اند تبادل مداوم حملات نظامی میان آن‌ها، گفت‌وگوهایی را که با میانجیگری پاکستان، قطر و دیگران در جریان است متوقف کند.
+
+آمریکا همچنان نیروهای قدرتمند دریایی و هوایی خود را در فاصله‌ای قرار داده است که بتوانند ایران را هدف قرار دهند.
+
+می‌توان با اطمینان فرض کرد که حکومت ایران نیروهای خود را در حالت آماده‌باش کامل نگه داشته و از آتش‌بس برای سازماندهی مجدد و ترمیم خسارت‌هایی که آمریکا و اسرائیل وارد کرده‌اند استفاده می‌کند.
+
+تنش نظامی در منطقه خلیج فارس و اطراف آن، خطر آشکار سوءمحاسبه و سوءبرداشت را برای هر دو طرف به همراه دارد.
+
+
+آلبوم را ورق بزنید و ادامه مطلب را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 Reuters / Getty Images
+https://bbc.in/4fFO18v
+@BBCPersian
+</div>
+
+## BBCPersian — post 282710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های ایران از گفتگوی تلفنی عباس عراقچی، وزیر امور خارجه ایران با همتای عربستانی خود،‌ فیصل بن فرحان، خبر داده‌اند و محور این مکالمه را مسائل جاری منطقه عنوان کرده‌اند.
+
+با آغاز جنگ آمریکا و اسرائیل با ایران در اسفند ماه گذشته، عربستان همچون قطر، امارات، بحرین و کویت، با حملات پهپادی و موشکی ایران روبرو شد و اگر چه تهران این حمللات را متوجه پایگاه‌ها و منافع آمریکا در خاک عربستان خواند، اما روابط دیپلماتیک دو کشور به شدت تحت تاثیر قرار گرفت.
+
+چند روز پیش که ایران اعلام کرد در پاسخ به حمله هوایی آمریکا به نزدیکی فرودگاه بندرعباس، یک پایگاه آمریکایی در کویت را هدف قرار داده، عربستان با انتشار بیانیه‌ای این حملات را «شدیدا محکوم» کرد.
+
+با این حال، دو کشور که پس از سال‌ها قطع روابط، اخیرا با وساطت چین مجددا روابط دیپلماتیک برقرار کردند، همچنان امیدوار به پایان مخاصمه در منطقه و رسیدن به توافقی برای صلح پایدار در خاورمیانه‌اند.‌
+
+https://bbc.in/4xnnfIr
+@BBCPersian
+</div>
+
+## BBCPersian — post 282709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرماندهی مرکزی ارتش آمریکا اعلام کرد يک نفتکش خالی از محموله را که در حال حرکت به سوی يکی از بنادر ايران در خليج فارس بود، روز سه‌شنبه از کار انداخته‌اند. سنتکام، عصر ۱۲ خرداد، اعلام کرد اقدامات مربوط به محاصره دريايی را عليه نفتکش «ام تی لکسی» با پرچم بوتسوانا،…
+</div>
+
+## BBCPersian — post 282708
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282708_1780441710.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرماندهی مرکزی ارتش آمریکا اعلام کرد يک نفتکش خالی از محموله را که در حال حرکت به سوی يکی از بنادر ايران در خليج فارس بود، روز سه‌شنبه از کار انداخته‌اند.
+
+سنتکام، عصر ۱۲ خرداد، اعلام کرد اقدامات مربوط به محاصره دريايی را عليه نفتکش «ام تی لکسی» با پرچم بوتسوانا، در حالی که در آب‌های بين‌المللی به سمت جزيره خارک در حرکت بود، اجرا کرده است.
+
+بر اساس اين بيانيه، خدمه اين کشتی هشدارهای مکرر را ناديده گرفتند و طی ۲۴ ساعت چندين بار از اجرای دستورهای نيروهای آمريکايی خودداری کردند.
+
+سنتکام افزود در نهايت يک هواپيمای آمريکايی با شليک يک موشک هلفاير به اتاق موتور کشتی، آن را از کار انداخت و مانع رسيدن نفتکش به ايران شد.
+
+فرماندهی مرکزی آمريکا همچنين اعلام کرد اجرای محاصره تمامی رفت وآمدهای دريايی به بنادر ايران و از بنادر ايران را که از ۱۳ آوريل آغاز کرده ادامه خواهد داد.
+
+📷 Reuters
+https://bbc.in/4fXEWHX
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات اولیه از حمله به بحرین (هنوز تایید نمیشه)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390875
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390875_1780441710.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در راستای لوپ زیز که صحبتش شد،
+این ویدئو از حمله‌ی امشب روافض قحبه به کویت قرمساق منتشر شده و رسانه‌های روافض می‌گن هدف پایگاه عریفجان آمریکا در کویت بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390874
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390874_1780441711.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی داره از موشکا فیلم میگیره که همون لحظه یکی کصدست بازی درمیاره میماله به گاردریل
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390873
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان،
+
+یه لوپ جالبی که هیچ آتش‌بسی رو نقض نمی‌کنه ایجاد شده به این شکل که آمریکایی‌ها یک کشتی، نفت‌کشی، قایقی چیزی از روافض می‌زنن [گاهی بالعکس، اول روافض می‌زنن]،
+
+یکی دو ساعت بعدش روافض قحبه یکی دوتا آبگرمکن و پهپاد ول می‌دن سمت کویت و این داستان بدون نقض آتش‌بس همینجا تموم می‌شه تا فرداشب همین‌موقع‌ها دوباره از اول.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ایالات متحده یک نفتکش را که به سمت جزیره خارک حرکت می‌کرد، هدف قرار داد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امریکا هم قشم رو زده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانالای سپاه: منابع خبری از حمله به پایگاه عریفجان «بزرگ‌ترین پایگاه زمینی ارتش آمریکا در منطقه» خبر میدن!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آژیر هشدار و صدای انفجار تو کویت شنیده شده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق پیام کاربران ساعت ۱:۳۰ بامداد از داراب استان فارس ۲ تا موشک پرتاب کردن که ‌تمام شیشه ها لرزیده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+ارتش آمریکا از حمله موشکی به یک ابر نفتکش ایران در خلیج فارس که در تلاش برای حرکت به سمت جزیره خارک بود خبر داد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105900
+
+<div align="center">
+  <a href="telegram/content/manototv_105900_1780441712.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاهش قیمت بنزین در آمریکا فقط یک خبر اقتصادی نیست، می‌تواند نشانه‌ای از امید بازارها به کاهش تنش و ادامه مذاکرات باشد.
+
+اما در حالی که واشنگتن ممکن است برای حفظ ثبات بازار انرژی انگیزه بیشتری پیدا کرده باشد، تجربه چهار دهه گذشته نشان می‌دهد جمهوری اسلامی بارها فرصت‌های کاهش بحران را از بین برده است.
+</div>
+
+## alonews — post 124654
+
+<div align="center">
+  <a href="telegram/content/alonews_124654_1780441713.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاکنون ۸ انفجار در بحرین گزارش شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124653
+
+<div align="center">
+  <a href="telegram/content/alonews_124653_1780441713.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژیر هشدای موشکی در بحرین مجدد به صدا درآمد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124652
+
+<div align="center">
+  <a href="telegram/content/alonews_124652_1780441713.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از حمله به بحرین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124651
+
+<div align="center">
+  <a href="telegram/content/alonews_124651_1780441714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیانیه صادر شده از سوی فرماندهی سپاه پاسداران انقلاب اسلامی:
+
+
+🔴بسم الله الرحمن الرحیم
+﴿قَاتِلُوهُمْ يُعَذِّبْهُمُ اللَّهُ بِأَيْدِيكُمْ وَيُخْزِهِمْ وَيَنْصُرْكُمْ عَلَيْهِمْ وَيَشْفِ صُدُورَ قَوْمٍ مُؤْمِنِينَ﴾
+(خداوند بزرگ و بلندمرتبه راست گفته است)
+
+
+ای فرزندان آزاد امت اسلامی و مردم مقاوم و سربلند ایران:
+
+🔴در پاسخ به گستاخی و تجاوز آشکاری که نیروهای تروریستی آمریکایی با هدف قرار دادن حاکمیت ملی جمهوری اسلامی ایران در جزیره عزیز "قشم" مرتکب شدند، نیروی هوافضای سپاه پاسداران انقلاب اسلامی، به فضل خدا و یاری او و وفاداری به عهد خود در حفاظت از خاک وطن، با حملات دقیق و متمرکز موشکی، پایگاه‌های نظامی اشغالگران آمریکایی در کشور کویت را هدف قرار داد که منجر به نابودی موفقیت‌آمیز اهداف و شعله‌ور شدن آتش در دژهای متجاوزان شد.
+
+
+🔴سپاه پاسداران انقلاب اسلامی ضمن اعلام این پاسخ اولیه برای ضربه زدن دو برابر، هشدار شدیداللحن و قاطعانه‌ای به دولت آمریکا و رأس استکبار جهانی و هر کسی که اجازه استفاده از خاک یا آسمان خود را برای آغاز تجاوز علیه ایران می‌دهد، می‌دهد:
+
+
+🔴هر حماقت جدید، تجاوز دیگر یا حرکتی که حتی یک وجب از مرزها و حاکمیت ما را لمس کند، با پاسخی لرزه‌انگیز، خردکننده و قاطع مواجه خواهد شد که از قواعد و مرزهای معمول فراتر خواهد رفت و نیروهای شجاع ما در تبدیل تمام مقرهای متجاوزان و منافعشان در منطقه به خاکستر تردید نخواهند کرد.
+
+
+🔴زمان "بزن و فرار کن" به پایان رسیده است و نیروهای ستمگر باید عواقب وخیم نادانی و ماجراجویی‌های بی‌محاسبه خود را بپذیرند.
+
+﴿وَمَا النَّصْرُ إِلَّا مِنْ عِنْدِ اللَّهِ الْعَزِيزِ الْحَكِيمِ﴾
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124650
+
+<div align="center">
+  <a href="telegram/content/alonews_124650_1780441714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این نخستین تشدید تنش بزرگ از سوی ایران از زمان آتش‌بس است که به‌طور هم‌زمان سه کشور مختلف را هدف قرار داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124649
+
+<div align="center">
+  <a href="telegram/content/alonews_124649_1780441714.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسمان بحرین.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124648
+
+<div align="center">
+  <a href="telegram/content/alonews_124648_1780441714.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله موشکی ایران از استان بوشهر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124647
+
+<div align="center">
+  <a href="telegram/content/alonews_124647_1780441715.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سامانه‌های پدافند هوایی در بحرین فعال شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124646
+
+<div align="center">
+  <a href="telegram/content/alonews_124646_1780441715.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شلیک موشک به سمت پایگاه‌ آمریکا در بحرین
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124645
+
+<div align="center">
+  <img src="telegram/content/alonews_124645_1780441715.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 🚀✅
+
+⭐️ فقط گیگی 8 هزار تومان😍
+
+✅ بدون قطعی‌های آزاردهنده
+✅ سرعت بالا حتی ساعات شلوغ
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+✅ همراه با ساب
+
+✅ تعداد محدود با این قیمت
+
+🤖 @NetAazaadBot
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 124644
+
+<div align="center">
+  <a href="telegram/content/alonews_124644_1780441715.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تا این لحظه حداقل پنج موشک به سمت کویت شلیک شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124643
+
+<div align="center">
+  <a href="telegram/content/alonews_124643_1780441715.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهر: یک پرتابه به ساحل ایران برخورد کرد
+خبرگزاری مهر گزارش داد یک پرتابه در محدوده ساحلی بین شهر سوزا و روستای ماسان برخورد کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124642
+
+<div align="center">
+  <a href="telegram/content/alonews_124642_1780441716.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه انفجار دیگر در کویت گزارش شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124641
+
+<div align="center">
+  <a href="telegram/content/alonews_124641_1780441716.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه راننده کویتی از ترس صدای موشک رفت تو بلوار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124640
+
+<div align="center">
+  <a href="telegram/content/alonews_124640_1780441717.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فووووووووووووووری/همین الان چند جنگنده آمریکایی در مرز ایران درحال پرواز هستن 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 124639
+
+<div align="center">
+  <a href="telegram/content/alonews_124639_1780441718.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژیرهای هشدار در کویت بار دیگر فعال شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124637
+
+<div align="center">
+  <a href="telegram/content/alonews_124637_1780441718.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم:
+سپاه پاسداران به صورت مداوم در حال شلیک پهپاد و موشک به سمت اهدافی در اربیل و کویت است و تاکنون شلیک ۲۰ پرتابه تایید شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124636
+
+<div align="center">
+  <a href="telegram/content/alonews_124636_1780441718.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما صدای انفجار در قشم را تایید کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124635
+
+<div align="center">
+  <a href="telegram/content/alonews_124635_1780441718.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلمی از تکه‌های موشک‌های رهگیر که تو کویت افتاده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124634
+
+<div align="center">
+  <a href="telegram/content/alonews_124634_1780441719.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/انفجار مجدد در کویت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 00:27
 ---
 
