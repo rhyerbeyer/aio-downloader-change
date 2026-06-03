@@ -7,6 +7,1368 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 02:25
+---
+
+## VahidOOnLine — post 243585
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243585_1780527354.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور کویت در شبکه اجتماعی ایکس ویدیویی منتشر کرده است که میزان تخریب ناشی از حملات پهپادی جمهوری اسلامی به فرودگاه بین‌المللی این کشور را نشان می‌دهد.
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرده است جمهوری اسلامی با پهپاد به این فرودگاه غیرنظامی حمله کرده و این اقدام را «عامدانه، محاسبه‌شده و بی‌دلیل» توصیف کرده است.
+وزارت دفاع کویت نیز از حمله ۱۳ موشک و ۱۷ پهپاد از سوی جمهوری اسلامی به این کشور خبر داده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243584
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243584_1780527356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جریان رودخانه زاینده‌رود چهارشنبه‌شب ۱۳ خردادماه، همزمان با افزایش خروجی سد، بار دیگر به شهر اصفهان رسید و در بستر این رودخانه تاریخی جاری شد. ویدیوهای منتشرشده در شبکه‌های اجتماعی نشان می‌دهد که شماری از شهروندان با حضور در محدوده پل تاریخی خواجو، از بازگشت آب استقبال کردند.
+رودخانه زاینده‌رود با طولی بیش از ۴۰۰ کیلومتر، در دهه‌های اخیر به‌طور مداوم با خشکی مکرر و کاهش شدید جریان آب مواجه بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243583
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243583_1780527357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، مجلس نمایندگان آمریکا روز چهارشنبه از طرحی حمایت کرد که هدف آن محدود کردن اختیارات دونالد ترامپ درباره ادامه جنگ ایران بدون دریافت مجوز رسمی کنگره است.
+این طرح با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف تصویب شد؛ چهار نماینده جمهوری‌خواه نیز در رای‌گیری به دموکرات‌ها پیوستند.
+دمکرات‌ها پس از هفت تلاش ناموفق، در هشتمین رای‌گیری سرانجام توانستند این طرح را برای مهار اختیارات نظامی کاخ سفید به تصویب برسانند. با این حال، طرح مذکور اکنون باید در سنای آمریکا به تصویب نهایی برسد و در صورت موافقت سنا، به کاخ سفید ارسال خواهد شد؛ جایی که دونالد ترامپ حق وتو دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243582
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243582_1780527358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا چهارشنبه با ۲۱۵ رای موافق و ۲۰۸ رای مخالف قطعنامه‌ مربوط به اختیارات جنگی ترامپ را که هدف آن توقف جنگ با جمهوری اسلامی و مشروط کردن درگیری‌ها به مجوز کنگره است، تصویب کرد. چهار جمهوری‌خواه نیز به این قطعنامه پیشنهادی دموکرات‌ها رای مثبت دادند.
+این رای‌گیری تا حد زیادی جنبه نمادین دارد. هر قطعنامه‌ای برای اجرایی شدن باید در سنا نیز تصویب شود و برای غلبه بر وتوی ترامپ، به اکثریت دوسوم در هر دو مجلس نیاز دارد.
+با این حال، این اقدام پس از آن صورت گرفت که سه قطعنامه پیشین درباره اختیارات جنگی در مجلس نمایندگان با اختلاف آرای رو به کاهش ناکام مانده بودند. سنا نیز ماه گذشته در یک رای‌گیری رویه‌ای، قطعنامه‌ای جداگانه اما مشابه را پیش برد که قبل از آن هفت بار رد شده بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ رئیس جمهوری آمریکا چهارشنبه ۱۳ خرداد طی مراسم امضای چند فرمان اجرایی در کاخ سفید به خبرنگاران گفت برای نخستین بار میان آمریکا و حزب‌الله گفتگو انجام شده است.
+ترامپ گفت: «ما در واقع برای نخستین بار با حزب‌الله صحبت کردیم. نمی‌دانستیم آن‌ها حرف می‌زنند.»
+رئیس‌جمهوری آمریکا افزود: «آن‌ها دیروز پذیرفتند شلیک نکنند و اسرائیل هم شلیک نخواهد کرد.»
+ترامپ در ادامه گفت ترجیح می‌دهد موضوع حزب‌الله را از سایر پرونده‌ها جدا نگه دارد و آن را به‌عنوان یک موضوع مستقل دنبال کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243580
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243580_1780527359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رییس جمهوری ایالات متحده، چهارشنبه ۱۳ خرداد در کاخ سفید و در پاسخ به سوالی درباره روند مذاکرات و وضعیت تنگه هرمز گفت: «بلافاصله پس از امضای توافق، تنگه هرمز باز خواهد شد.»
+رئیس‌جمهوری آمریکا در ادامه با اشاره به آمادگی پدافندی و پیش‌دستانه واشنگتن برای تامین امنیت این شاهراه حیاتی انرژی افزود: «ما از قبل کشتی‌های مین‌روب خود را در آنجا مستقر کرده‌ایم؛ همان‌طور که احتمالا شنیده‌اید، نیروهای ما در حال حاضر مشغول عملیات مین‌روبی در منطقه هستند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243579
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243579_1780527360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید درباره ایران گفت: «ما از سه تیم رهبری عبور کرده‌ایم. این یک وضعیت نظامی است و هیچ ارتشی مانند ارتش ما وجود ندارد. می‌توانیم دو یا سه هفته دیگر ادامه دهیم و همه‌چیز را کاملا نابود کنیم، اما ترجیح می‌دهم این کار را نکنم. انجامش آسان است و آن‌ها آماده انجام آن هستند.»
+
+او افزود: «اما اگر بتوانیم چیزی را به‌صورت مکتوب به دست بیاوریم که همان نتیجه را بدون کشتن همه به همراه داشته باشد، آن را ترجیح می‌دهم. فکر می‌کنم بیشتر افراد من هم همین را می‌خواهند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243578
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243578_1780527360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۱۳ خرداد در گفتگو با خبرنگاران در کاخ سفید با اشاره به توانمندی‌های نظامی ایالات متحده و در پاسخ به موضوعات مربوط به ایران اعلام کرد که واشنگتن از قدرتمندترین ارتش تاریخ خود برخوردار است. ترامپ تاکید کرد: «ما می‌توانیم دو تا سه هفته دیگر ادامه دهیم و همه را نابود کنیم؛ انجام این کار بسیار آسان است و نیروهای ما آماده و خواستار آن هستند، اما من ترجیح می‌دهم این کار را نکنم.»
+ترامپ در ادامه گفت: «اگر بتوانیم به چیزی مکتوب برسیم که همان نتیجه را بدون کشتن همه به دست آورد، ترجیح می‌دهم همان کار را انجام دهم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243577
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243577_1780527361.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید درباره حمله تهران به کویت و نقض آتش‌بس گفت: «سه‌شنبه شب ضربه سنگینی به جمهوری اسلامی زدیم و دیشب هم همین‌طور. وقتی موضوع را برایم توضیح دادند، گفتم بسیار خب، همین کار را انجام می‌دهیم، اما ما هم شدید به آن‌ها ضربه می‌زدیم.»
+او افزود: «مذاکرات بسیار خوب پیش می‌رود. ممکن است به نتیجه برسد یا نرسد، اما اگر قرار باشد اتفاقی بیفتد، شاید همین آخر هفته رخ دهد. آن منطقه بخش متفاوتی از جهان است؛ آنجا آتش‌بس یعنی به شکلی ملایم‌تر به تیراندازی ادامه دادن.»
+ترامپ گفت: «هر اتفاقی ممکن است بیفتد وقتی با جمهوری اسلامی طرف هستید. این یکی از بی‌ثبات‌ترین مناطق جهان است.»
+او همچنین گفت: «ما از سه تیم رهبری عبور کرده‌ایم. این یک وضعیت نظامی است و هیچ ارتشی مانند ارتش ما نیست. می‌توانیم دو یا سه هفته دیگر ادامه دهیم و همه را کاملا نابود کنیم، اما ترجیح می‌دهم این کار را نکنم. انجامش آسان است و آن‌ها آماده انجام آن هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243576
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243576_1780527362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده، چهارشنبه‌شب ۱۳ خردادماه در کاخ سفید و در پاسخ به سوالی درباره مذاکرات با جمهوری اسلامی گفت احتمال دارد این مذاکرات به نتیجه برسد و حتی ممکن است این اتفاق همین آخر هفته رخ دهد.
+
+ترامپ گفت: «ممکن است این اتفاق بیفتد. اگر رخ دهد، هرچند ممکن است هم رخ ندهد، چه کسی می‌داند، اما اگر اتفاق بیفتد، احتمال دارد همین آخر هفته به نتیجه برسد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13462
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13462_1780527363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوربین‌های مداربسته لحظه‌ای را ثبت کردند که یک پهپاد کامیکازه شاهد-۱۳۶ ایرانی، اوایل صبح چهارشنبه به ترمینال ۱ فرودگاه بین‌المللی کویت حمله کرد.
+@withyashar 😟
+</div>
+
+## WithYashar — post 13461
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13461_1780527366.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان ایالات متحده قطعنامه‌ای درباره اختیارات جنگ مرتبط با جنگ ایران را با رای ۲۱۵ به ۲۰۸ تصویب کرد.
+این قطعنامه تا زمانی که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود است.
+با این حال، این اولین رای موفق مجلس نمایندگان است که قدرت‌های جنگی کنگره را در مورد جنگ ایران تأیید می‌کند و اقدام نظامی آینده بدون تأیید کنگره را محدود می‌سازد.
+چهار جمهوری‌خواه به نفع آن رای دادند.
+@withyashar
+</div>
+
+## WithYashar — post 13460
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13460_1780527369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش اون بحث خیلی طولانیه اون میشه زمان ریست فکتوری طوفان بزرگ ( که با داستان خیالی نوح میشناسید ) تا اینجا بدون که قبلش تمدنهای بسیار پیشرفته بود روی زمین ، باشه برای بعد از آزادی 
+😂
+</div>
+
+## WithYashar — post 13459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود ولی من‌میرملاس لرستان رفتم اونجا دیوار نوشته هست‌مربوط به 12000 سال پیش
+</div>
+
+## WithYashar — post 13458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار : دمت آقا دایی ، مردی ، خواستم تکمیل کنم که عدد ۲۵۰۰ سال به طور مشخص به سابقه پادشاهی شاهنشاهی ایران اشاره دارد، نه به کل تمدن ایران ، تمدن در فلات ایران ۵۰۰۰ الی ۷۰۰۰ سال حتی بیشتر سابقه دارد
+@withyashar 😁🙌🏾
+</div>
+
+## WithYashar — post 13457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی دایی: هیچ قدرتی توان شکستن تمدن ۲۵۰۰ ساله ایران را ندارد
+
+هرگز قدرتی نتوانسته و نخواهد توانست تمدن و فرهنگ ۲۵۰۰ ساله ایران باستان را که در قلب و جان یکایک ماست در هم بشکند.
+‏ایران زمین، روزگارها دیده است آنچه سرافراز می‌ماند همیشه تا ابد وطن است.
+@withyashar
+</div>
+
+## WithYashar — post 13456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو منبع مطلع در مذاکرات به i24NEWS عبری:
+مذاکرات بین آمریکا و ایران به دلیل اصرار ایرانی‌ها بر آزادسازی پول‌ها، «پول نقد»، از میلیاردهایی که مسدود شده‌اند، حتی در مرحله اول، متوقف شده است .
+در روزهای اخیر، میانجی‌ها تلاش کرده‌اند در این موضوع مصالحه کنند اما ایرانی‌ها بر دریافت پول در همان مرحله اول، در چارچوب توافق کلی، قبل از انجام هر اقدام واقعی در میدان، اصرار دارند.
+مقامات ارشد آمریکایی تأکید می‌کنند: در ابتدا پولی آزاد نخواهیم کرد مگر اینکه ایران گام مهمی در مسئله هسته‌ای و هرمز بردارد و همچنین توافق کلی بسیار معنادارتر باشد.
+@withyashar
+</div>
+
+## WithYashar — post 13455
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13455_1780527370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات آمریکا جمشید قومی، شهروند دوتابعیتی ایران و آمریکا و مدیرعامل شرکت «فرار پرداز رایانه» در تهران را به نقض تحریم‌ها متهم کرده‌اند. طبق ادعای دادستانی، او طی بیش از یک دهه تجهیزات شبکه، امنیتی و رمزنگاری ساخت آمریکا را از طریق واسطه‌هایی در دبی به ایران، از جمله سازمان انرژی اتمی و وزارت دفاع، منتقل کرده است. همچنین متهم است حدود ۱۵ میلیون دلار درآمد حاصل از این فعالیت‌ها را به آمریکا منتقل کرده و با آن یک عمارت ۳۵ میلیون دلاری در کالیفرنیا ساخته است. در صورت محکومیت، با حداکثر ۲۰ سال زندان فدرال روبه‌رو خواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 13454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع العربیه: پیشرفت‌هایی در مذاکرات لبنان و اسرائیل حاصل شده است، اما هنوز توافق دائمی به دست نیامده است
+
+اختلاف بر سر سلاح‌های حزب‌الله همچنان مانع اصلی هرگونه توافق بلندمدت است
+@withyashar
+</div>
+
+## WithYashar — post 13453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما در واقع برای اولین بار با حزب‌الله صحبت کردیم. نمی‌دانستیم آن‌ها صحبت می‌کنند.
+@withyashar
+</div>
+
+## WithYashar — post 13452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : تنگه هرمز فوراً باز می‌شه وقتی من یادداشت تفاهم رو با ایران امضا کنم
+تنگه هرمز باز خواهد شد، مین‌روب‌هامون اونجاست
+
+زیر آب هستن، خیلی خوبن، تکنولوژی‌شون فوق‌العاده‌ست
+
+ما مین‌ها رو جمع کردیم، بیشترش رو پاکسازی کردیم.
+@withyashar
+</div>
+
+## WithYashar — post 13451
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان خواهش میکنم دایرکت جای کامنت دادن به مطالب نیست 😟 خدایا به چه زبونی بگم ؟ بفرستید برای دوستون و باهاش‌چت کنید ، به بچه آدمیزاد چند بار میگن
+</div>
+
+## mwarmonitor — post 10119
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10119_1780527370.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس نمایندگان آمریکا قطعنامه‌ای را تصویب کرده که اختیارات جنگی رئیس‌جمهور ترامپ در قبال ایران را محدود می‌کند. بر اساس گزارش وال‌استریت ژورنال، این قطعنامه «به رئیس‌جمهور دستور می‌دهد نیروهای مسلح آمریکا را از درگیری‌ها علیه ایران خارج کند، مگر اینکه به‌طور صریح از سوی کنگره مجوز داده شده باشد؛ به‌جز در موارد دفاع از آمریکا، یک متحد یا شریک در برابر “حمله قریب‌الوقوع”».
+
+🔴این رأی‌گیری تنها چند هفته پس از آن انجام می‌شود که سنا نیز به محدود کردن اختیارات جنگی ترامپ درباره ایران رأی داده بود. این قطعنامه هنوز می‌تواند توسط رئیس‌جمهور ترامپ وتو شود؛ وتویی که تنها با رأی دوسوم اکثریت در هر دو مجلس نمایندگان و سنا قابل لغو است.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10117
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10117_1780527372.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«...توافق هسته‌ای ایران که به قلم باراک حسین اوباما نوشته شد. این یکی از احمقانه‌ترین توافق‌هایی بود که تا به حال دیده‌ام. و این [توافق جدید] هیچ ارتباطی... می‌دانید، من از این ابله‌ها خوشم می‌آید، این دموکرات‌ها (با تلفظ طعنه‌آمیز: D-U-M-B، دموکرات‌های کودن)، که به تلویزیون می‌روند و می‌گویند: "اوه، خب، این دقیقاً مثل همان کاری است که اوباما کرد." این دقیقاً عکس آن است.
+این [توافق جدید] هیچ راهی برای رسیدن به سلاح هسته‌ای باقی نمی‌گذارد؛ در حالی که آن [توافق قبلی] یک مسیر قطعی به سمت سلاح هسته‌ای بود که شما نمی‌توانستید هیچ کاری در موردش انجام دهید. این دقیقاً عکس آن است.
+آن‌ها میلیاردها میلیارد دلار به ایران دادند؛ از جمله ۱.۷ میلیارد دلار که در یک بوئینگ ۷۵۷ قرار داده شد، در حالی که صندلی‌های هواپیما را برداشته بودند، چون اگر صندلی‌ها سر جایشان می‌بود، فضای کافی وجود نداشت. با ۱.۷ میلیارد دلار پول نقد که از بانک‌های دی‌سی (واشنگتن)، مریلند و ویرجینیا برداشته و به ایران فرستاده شد؛ ۱.۷ میلیارد دلار پول نقدِ سبز! و سپس، ده‌ها میلیارد دلار دیگر که توسط دولت ما به ایران داده شد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵خبرنگار: دو سوال درباره ایران، قربان. اول اینکه، شما هفته گذشته گفتید که ایالات متحده وارد خواهد شد و مواد هسته‌ای دفن شده را با همکاری آن‌ها [ایران] بیرون خواهد کشید...
+🔴دونالد ترامپ: با آن‌ها، درسته.
+🔵خبرنگار: ...با آن‌ها. درسته. آیا ایران واقعاً با این موضوع موافقت کرد؟
+🔴دونالد ترامپ: خب، بستگی دارد که درباره کدام روز صحبت کنید. آن‌ها موافقت کردند و بعد گاهی اوقات... آن‌ها موافقت کردند. خب، این همان چیزی است که می‌گویم، این یکی از چیزهایی است که درباره‌اش صحبت می‌کنیم.
+این موضوع خیلی بزرگ‌نمایی شده است؛ من کسی هستم که آن را بزرگ‌نمایی کرد. از نظر من این موضوع مهم بود، برای بقیه مهم نیست؛ چون آن بی‌-۲های (B-2) زیبایِ آنجا، بمب‌افکن‌های بی‌-۲، آن‌ها نابودش کردند.
+می‌دانید، وقتی سی‌ان‌ان (CNN) گفت: «شاید این یک نابودی کامل نبوده»، آن‌ها می‌دانستند... یعنی حتی قبل از اینکه خلبان‌ها به خانه برگردند، قبل از اینکه کسی محل را ببیند. اما بعداً کمیسیون انرژی اتمی به آنجا رفت و گفتند که کاملاً نابود شده است.
+آن مواد زیر کوهی دفن شده‌اند که تقریباً ریزش کرده است. دسترسی به آن بسیار بسیار سخت است. اما با این وجود، من می‌خواهم آن را به دست بیاورم. ما تنها کسانی هستیم... ما و احتمالاً چین، تنها دو کشوری هستیم که تجهیزات لازم برای انجام این کار را داریم. بنابراین، بله، من می‌خواهم آن را به دست بیاورم.
+ما در زمان‌های مختلف، چیزهای مختلفی... منظورم این است که آن‌ها چند بار نظرشان را عوض کرده‌اند، اما در حال حاضر، وضعیت این‌گونه است که ما در آینده‌ای نه چندان دور وارد خواهیم شد. اکنون آنجا بسیار امن است. می‌دانید، ما با «نیروی فضایی»، دوربین‌هایی داریم که از هر زاویه‌ای، آن سه سایت را در تمام اوقات تحت نظر دارند. اگر کسی به آنجا برود، دقیقاً خواهیم دید چه اتفاقی در حال رخ دادن است و ما آن را کمی بیشتر منفجر خواهیم کرد!
+اما تا جایی که به به دست آوردن آن مربوط می‌شود، بسیار... بمب‌افکن‌های بی‌-۲ کاری کردند که تا به حال کسی مشابهش را ندیده است. در شب، بدون ماه، تاریکی مطلق، حدود ساعت ۱ بامداد یا همان حدود. آن‌ها آن بمب‌ها را رها کردند، بزرگ‌ترین بمب‌هایی که می‌توانید پیدا کنید، و دقیقاً اصابت کرد؛ از هواکش‌ها پایین رفت. باورش سخت است که بتوانند چنین کاری را با این فناوری انجام دهند. یک پرتو [لیزر] را دقیقاً تا داخل هواکش‌ها دنبال کرد و همان‌جا منفجر شد.
+به دست آوردن آن مواد بسیار سخت است، اما من با این وجود، هنوز آن را می‌خواهم. و من نمی‌خواهم این کار را در زمان درگیری انجام دهم؛ نمی‌خواهم نیروها را در چنین خطری قرار دهم. من به یاد دارم که جیمی کارتر مشکلات بدی در ایران با گروگان‌ها داشت. من هرگز نمی‌خواهم مردم خودمان را در چنین خطری قرار دهم. اما وقتی [درگیری] تمام شود، تا این لحظه توافق شده است که ما با همراهی خودِ آن‌ها وارد خواهیم شد، آن را به دست خواهیم آورد و نابودش خواهیم کرد. نابود خواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10115
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10115_1780527375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 10114
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10114_1780527377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔵خبرنگار: «آقای رئیس‌جمهور، با توجه به حملات ایران به کویت... این آخرین حمله به کویت؛ آیا آتش‌بس با ایران همچنان برقرار است؟»
+🔴دونالد ترامپ: «خب، می‌دونید، هر چیزی دلیلی داره. و ما شب قبلش و در واقع دیشب، ضربه نسبتاً سختی به اون‌ها زدیم. و وقتی این موضوع برام توضیح داده شد، گفتم: "خیلی خب، پس ما این کار رو انجام می‌دیم." اما ما... ما ضربه نسبتاً سختی به اون‌ها زدیم، یه جورایی. بنابراین برای بعضی چیزها دلیلی وجود داره و معمولاً دلیلی هست که... ما کمی تحریک شدیم، چون ما به دلیل دیگه‌ای اقدام شدیدی انجام دادیم. و خود... خود مذاکره در واقع خیلی خوب پیش رفته، خیلی خوب. اگر قرار باشه اتفاقی بیفته... شاید هم نیفته، کسی چه می‌دونه؟ اما اگر اتفاق بیفته، ممکنه مثلاً در طول آخر هفته رخ بده.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342585
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342585_1780527379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: The House has passed a war powers resolution directing President Trump to either end U.S. military action against Iran or seek authorization from Congress to continue it, according to FOX News' @BillMelugin_.
+</div>
+
+## FoxNewsTwitter — post 342584
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342584_1780527382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump suffered a rare defeat in the House after Democrats and a handful of Republicans voted to sharply curb his war powers in Iran.
+
+Lawmakers voted 215-208 to withdraw troops from using military force against Iran absent congressional authorization.
+
+All Democrats present backed the measure, joined by Reps. Thomas Massie, Warren Davidson, Brian Fitzpatrick, and Tom Barrett — the only Republicans to break with the president.
+
+The vote is largely symbolic for now. Trump is expected to veto the resolution, and supporters do not have the votes needed to override it. But the bipartisan rebuke highlights growing divisions on Capitol Hill over U.S. involvement in Iran.
+</div>
+
+## FoxNewsTwitter — post 342583
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342583_1780527383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The NBA Finals are coming back to Madison Square Garden — and President Trump is expected to be in the building.
+
+Trump plans to attend Game 3 when the Knicks host the Spurs in New York, adding another layer of attention to the franchise's first Finals appearance since 1999.
+
+The president has openly praised the Knicks' playoff run and said he was invited by owner James Dolan to attend a game.
+
+Now all eyes turn to the Garden as New York gets ready for one of the biggest basketball nights the city has seen in a generation.
+</div>
+
+## FoxNewsTwitter — post 342582
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342582_1780527384.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"[America is] truly a bastion of freedom and liberty... and that's what we need to continue to hold on to and fight for." — Actor Zachary Levi
+</div>
+
+## FoxNewsTwitter — post 342581
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342581_1780527387.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Dem Rep. Al Green tells Secretary Mullin to "shut up" during a heated committee hearing:
+
+MULLIN: "Are you calling me a racist?"
+
+GREEN: "Reclaiming my time. Ask him to shut up."
+
+MULLIN: "That's a pretty..."
+
+GREEN: "Shut up, up, up, up. Shut up. It's my time."
+
+MULLIN: "I'm not gonna let anyone call me a racist, Chairman."
+</div>
+
+## FoxNewsTwitter — post 342580
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342580_1780527389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“We don't have to live like this. We don't have to put up with this.”
+
+Steve Hilton rips into the current Democratic leadership over rising costs for Californians, warning voters that crushing living costs and high taxes are a direct result of choices made by those in power.
+
+“We don't have to have the highest housing costs in the country.”
+
+“We don't have to have the highest gas prices in the country.”
+
+“We don't have to have the highest taxes in the country for the worst results. These are all choices. These are choices made by the people in charge.”
+</div>
+
+## pm_afshaa — post 92244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز:ترامپ مدعی شد ایران موافقت کرده که سلاح هسته‌ای نداشته باشد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92243
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92243_1780527391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: خود مذاکرات خیلی خوب پیش میره؛ ممکنه انجام نشه، اما اگر انجام بشه، احتمالا در آخر هفته خواهد بود. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز : جمشید قمی، مدیرعامل یه شرکت فناوری تو ایالت کالیفرنیا، به اتهام تأمین تجهیزات برای برنامه‌های هسته‌ای و نظامی ایران بازداشت شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92241
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92241_1780527392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: خود مذاکرات خیلی خوب پیش میره؛ ممکنه انجام نشه، اما اگر انجام بشه، احتمالا در آخر هفته خواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75931
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75931_1780527392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه اصابت پهپاد انتحاری شاهد 136 به ترمینال فرودگاه کویت از دید دوربین مدار بسته.
+mohsenreyhani01
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75930
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75930_1780527393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا روز چهارشنبه از قطعنامه‌ای به رهبری دموکرات‌ها حمایت کرد که هدف آن متوقف کردن جنگ با حکومت ایران تا زمان صدور مجوز از سوی کنگره است.
+
+به گزارش رویترز این قطعنامه با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف تصویب شد و چهار نماینده جمهوری‌خواه نیز به دموکرات‌ها پیوستند.
+
+این رای‌گیری تازه‌ترین شکست سیاسی دونالد ترامپ در کنگره به شمار می‌رود؛ با وجود آنکه جمهوری‌خواهان در هر دو مجلس اکثریت شکننده‌ای دارند.
+
+بنا به این گزارش، این اقدام عمدتا جنبه نمادین دارد، زیرا برای اجرایی شدن باید در سنا نیز تصویب شود و همچنین برای عبور از وتوی احتمالی دونالد ترامپ به حمایت دو سوم اعضای هر دو مجلس نیاز دارد.
+
+با این حال، این رای‌گیری نشان‌دهنده افزایش نگرانی در کنگره درباره جنگ با حکومت ایران است.
+سه قطعنامه مشابه پیشین در مجلس نمایندگان شکست خورده بودند، اما با اختلاف آرای کمتر از دفعات قبل.
+همچنین سنا ماه گذشته یک قطعنامه مشابه را در یک رای‌گیری رویه‌ای به پیش برد؛ اتفاقی که پس از هفت تلاش ناموفق قبلی رخ داد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340449
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340449_1780527394.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور کویت در شبکه اجتماعی ایکس ویدیویی منتشر کرده است که میزان تخریب ناشی از حملات پهپادی جمهوری اسلامی به فرودگاه بین‌المللی این کشور را نشان می‌دهد.
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرده است جمهوری اسلامی با پهپاد به این فرودگاه غیرنظامی حمله کرده و این اقدام را «عامدانه، محاسبه‌شده و بی‌دلیل» توصیف کرده است.
+وزارت دفاع کویت نیز از حمله ۱۳ موشک و ۱۷ پهپاد از سوی جمهوری اسلامی به این کشور خبر داده بود.
+</div>
+
+## IranIntlTV — post 340448
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340448_1780527396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در نامه‌ای به مجتبی؛
+نمایندگان مجلس: باید بُرد موشک‌ها به دفتر ترامپ برسد
+
+گروهی از نمایندگان مجلس در نامه‌ای به مجتبی خامنه‌ای خواستار افزایش بُرد موشک‌های جمهوری اسلامی تا سطحی شدند که به گفته آن‌ها «به دفتر کار دونالد ترامپ برسد».
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340447
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340447_1780527397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری سپاهی فارس خبر داد:
+پویش «فعال‌سازی قطع داوطلبانه دسترسی به اینترنت بین‌الملل»
+
+خبرگزاری فارس از راه‌اندازی پویش «فعال‌سازی قطع داوطلبانه دسترسی به اینترنت بین‌الملل» خبر داده است.
+
+در حالی که میلیون‌ها ایرانی برای کار، آموزش، ارتباطات و کسب‌وکار به اینترنت وابسته‌اند و سال‌ها با فیلترینگ و محدودیت دست‌وپنجه نرم کرده‌اند، حالا عده‌ای پیشنهاد می‌کنند مردم داوطلبانه اینترنت جهانی را برای خودشان قطع کنند.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340446
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340446_1780527399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرین از تهران: ما برای خودمان رفتیم به خیابان و جنگیدیم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340445
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340445_1780527401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین از اهواز: در هر محله ۲۰ نفر با پرچم حزب‌الله بیرون می‌آیند، بعد به ما می‌گویند وطن‌فروش
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340444
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340444_1780527404.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشکان از تهران: در این سه ماهی که ما نبودیم...
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/6zvdzHHR308
+@iranintltv
+</div>
+
+## IranIntlTV — post 340443
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340443" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: ایرانِ امروز؛ میراث سیاه و خونین خمینی و خامنه‌ای
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340442
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340442_1780527406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با گزارش‌ها از مذاکرات میان تهران و واشینگتن، حملات موشکی و پهپادی سپاه به مواضعی در کشورهای منطقه، از جمله کویت و بحرین، با واکنش‌های گسترده مواجه شده است. قالیباف نیز گفت دوران تهدید بی‌هزینه جمهوری اسلامی به پایان رسیده است.
+
+گفت‌وگو با بیژن کیان، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 340441
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340441_1780527408.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های آمریکایی از بازداشت جمشید قمی، مدیرعامل ایرانی-آمریکایی، در کالیفرنیا خبر دادند. او متهم است تجهیزات پیشرفته ساخت آمریکا را به نهادهای نظامی و هسته‌ای جمهوری اسلامی منتقل و میلیون‌ها دلار درآمد کسب کرده است.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340440
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340440_1780527410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا چهارشنبه با ۲۱۵ رای موافق و ۲۰۸ رای مخالف قطعنامه‌ مربوط به اختیارات جنگی ترامپ را که هدف آن توقف جنگ با جمهوری اسلامی و مشروط کردن درگیری‌ها به مجوز کنگره است، تصویب کرد. چهار جمهوری‌خواه نیز به این قطعنامه پیشنهادی دموکرات‌ها رای مثبت دادند.
+این رای‌گیری تا حد زیادی جنبه نمادین دارد. هر قطعنامه‌ای برای اجرایی شدن باید در سنا نیز تصویب شود و برای غلبه بر وتوی ترامپ، به اکثریت دوسوم در هر دو مجلس نیاز دارد.
+با این حال، این اقدام پس از آن صورت گرفت که سه قطعنامه پیشین درباره اختیارات جنگی در مجلس نمایندگان با اختلاف آرای رو به کاهش ناکام مانده بودند. سنا نیز ماه گذشته در یک رای‌گیری رویه‌ای، قطعنامه‌ای جداگانه اما مشابه را پیش برد که قبل از آن هفت بار رد شده بود.
+
+https://iranintl.com/202606031436
+</div>
+
+## IranIntlTV — post 340439
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340439_1780527411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «پس از جنایت بزرگ جمهوری اسلامی در دی‌ماه، بسیاری از ایرانیان در برابر یک انتخاب قرار گرفته‌اند؛ ایستادن در کنار جمهوری اسلامی یا در کنار بازپس‌گیری ایران؟ ترساندن مردم از تغییر دیگر کارایی گذشته را ندارد و بسیاری بر سرنگونی و براندازی جمهوری اسلامی اصرار دارند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340438
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340438_1780527413.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «مردم ایران در طول سال‌های حکومت خمینی و خامنه‌ای، آرام‌آرام بخش‌های مختلف زندگی و رفاه خود را از دست داده‌اند تا جایی که امروز دغدغه بسیاری از آنها به تامین هزینه‌های اولیه زندگی، اجاره یا قسط خانه محدود شده است. پرسش مشترک بسیاری از ایرانیان این است که چگونه کار به جایی رسیده که سفر، تفریح، پس‌انداز و حتی گذران ماهانه زندگی به آرزو تبدیل شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340437
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340437" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ خمینی و خامنه‌ای چه گلی به سر ایران زدند؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340436
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340436_1780527415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در جلسه کمیته روابط خارجی مجلس نمایندگان آمریکا، مارکو روبیو، وزیر خارجه آمریکا، گفت پیش‌شرط آغاز مذاکرات با جمهوری اسلامی، بازگشایی تنگه هرمز و تعهد کتبی آن‌ها به عدم حمله به کشتی‌ها در خلیج فارس است. او تاکید کرد در برابر این اقدام، هیچ امتیازی به ایران داده نخواهد شد.
+روبیو در این جلسه از پایان عملیات خشم حماسی در جنگ با جمهوری اسلامی خبر داد.
+مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340435
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340435_1780527417.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ایرانی که دغدغه بسیاری از مردمش تامین گوشت، مرغ، تخم‌مرغ، شیر، نان و برنج شده، ایرانی که یخچال‌های خالی، رویای دست‌نیافتنی خرید خانه و اجاره‌های سرسام‌آور زندگی را برای میلیون‌ها نفر دشوار کرده است؛ این وضعیت، میراث ۴۸ سال حکومت خمینی و خامنه‌ای است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340434
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340434_1780527420.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های دولتی کره شمالی روز سه‌شنبه گزارش دادند که کیم جونگ اون، رهبر این کشور، در پیونگ‌یانگ از تیم‌های قهرمان فوتبال زنان استقبال کرده است.
+
+🔹در ویدیویی که از تلویزیون دولتی KRT پخش شد، بازیکنان باشگاه نائگو‌هی‌انگ زنان و تیم ملی زیر ۱۷ سال زنان در حالی دیده می‌شدند که هنگام دیدار با رهبر کشور، تشویق می‌کردند و اشک می‌ریختند.
+
+🔹کیم و مقام‌های همراهش همچنین یک دیدار دوستانه میان دو تیم را تماشا کردند.
+
+🔹باشگاه نائگو‌هی‌انگ زنان در ماه گذشته به کره جنوبی سفر کرد و با شکست توکیو وردی بِلِزا قهرمان لیگ قهرمانان زنان آسیا شد. این تیم نخستین ورزشکاران کره شمالی بودند که پس از هشت سال به کره جنوبی سفر کردند و با این قهرمانی، سهمیه حضور در جام قهرمانان زنان فیفا در سال آینده را نیز به دست آوردند.
+
+🔹همچنین تیم ملی زیر ۱۷ سال زنان کره شمالی در ماه گذشته قهرمان جام ملت‌های زنان زیر ۱۷ سال آسیا شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340433
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340433_1780527422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید درباره ایران گفت: «ما از سه تیم رهبری عبور کرده‌ایم. این یک وضعیت نظامی است و هیچ ارتشی مانند ارتش ما وجود ندارد. می‌توانیم دو یا سه هفته دیگر ادامه دهیم و همه‌چیز را کاملا نابود کنیم، اما ترجیح می‌دهم این کار را نکنم. انجامش آسان است و آن‌ها آماده انجام آن هستند.»
+
+او افزود: «اما اگر بتوانیم چیزی را به‌صورت مکتوب به دست بیاوریم که همان نتیجه را بدون کشتن همه به همراه داشته باشد، آن را ترجیح می‌دهم. فکر می‌کنم بیشتر افراد من هم همین را می‌خواهند.»
+https://iranintl.com/202606038118
+</div>
+
+## IranIntlTV — post 340432
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340432_1780527423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید درباره حمله تهران به کویت و نقض آتش‌بس گفت: «سه‌شنبه شب ضربه سنگینی به جمهوری اسلامی زدیم و دیشب هم همین‌طور. وقتی موضوع را برایم توضیح دادند، گفتم بسیار خب، همین کار را انجام می‌دهیم، اما ما هم شدید به آن‌ها ضربه می‌زدیم.»
+او افزود: «مذاکرات بسیار خوب پیش می‌رود. ممکن است به نتیجه برسد یا نرسد، اما اگر قرار باشد اتفاقی بیفتد، شاید همین آخر هفته رخ دهد. آن منطقه بخش متفاوتی از جهان است؛ آنجا آتش‌بس یعنی به شکلی ملایم‌تر به تیراندازی ادامه دادن.»
+ترامپ گفت: «هر اتفاقی ممکن است بیفتد وقتی با جمهوری اسلامی طرف هستید. این یکی از بی‌ثبات‌ترین مناطق جهان است.»
+او همچنین گفت: «ما از سه تیم رهبری عبور کرده‌ایم. این یک وضعیت نظامی است و هیچ ارتشی مانند ارتش ما نیست. می‌توانیم دو یا سه هفته دیگر ادامه دهیم و همه را کاملا نابود کنیم، اما ترجیح می‌دهم این کار را نکنم. انجامش آسان است و آن‌ها آماده انجام آن هستند.»
+https://iranintl.com/202606036172
+</div>
+
+## IranIntlTV — post 340431
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340431_1780527424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس‌جمهوری آمریکا در مصاحبه با نیویورک‌پست لحن صریح خود در گفت‌وگوی تلفنی با بنیامین نتانیاهو درباره موضوع لبنان را تایید کرد. دونالد ترامپ گفت از جنگ اسرائیل با لبنان راضی نیست اما روابط او با نتانیاهو همچنان بسیار خوب است.
+
+گفت‌وگو با بهنام بن‌طالب‌لو، مدیر ارشد برنامه ایران در بنیاد دفاع از دموکراسی‌ها
+@iranintltv
+</div>
+
+## FarsiVOA — post 219526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا، چهارشنبه ۱۳ خرداد در جریان امضای چند فرمان اجرایی در کاخ سفید به پرسش‌های خبرنگاران درباره وضعیت جاری در تنگه هرمز، شرایط منطقه، و مذاکره با جمهوری اسلامی پاسخ داد. صدای آمریکا این مراسم را با پوشش ویژه و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219525
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219525_1780527426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شاهین مدرس در برنامه تفسیر خبر: دیدار احتمالی پرزیدنت ترامپ با مجتبی خامنه‌ای مشروعیت‌زدایی از جمهوری اسلامی است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219524
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219524_1780527427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حسن هاشمیان در برنامه تفسیر خبر: انتخاب جمهوری اسلامی محاصره دریایی با درگیری محدود است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روایت مژده هاشمی بازرگانی از زندان قزوین؛ از شکنجه و بازجویی تا پرونده‌سازی‌های امنیتی
+
+▪️مژده هاشمی بازرگانی، شهروند زندانی در زندان مرکزی قزوین، در یک فایل صوتی از زندان به بیان روایتی تکان‌دهنده از بازداشت شبانه، ضرب‌وشتم، بازجویی‌های طولانی، فشار برای اعتراف اجباری و نگرانی از وضعیت مادر سالخورده‌اش پرداخته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iranian-protester-mojdeh-hashemi-abuse-qazvin-prison/8157026.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اتحادیه اروپا پیشنهاد کرده است مأموریت دریایی «آسپیدس» نقش اصلی را در پاک‌سازی مین‌ها در تنگه هرمز بر عهده بگیرد؛ اقدامی که می‌تواند در قالب یک ائتلاف به رهبری فرانسه و بریتانیا انجام شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدور حکم سه سال زندان علیه سوری بابایی چگینی، از بازداشت‌شدگان اعتراضات دی
+
+▪️سوری بابایی چگینی، از بازداشت‌شدگان اعتراضات دی‌ ۱۴۰۴، به سه سال حبس محکوم شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iranian-protester-souri-babaei-chegini-sentenced-three-years/8157018.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219520
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219520_1780527428.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رضا پرچیزاده در برنامه تفسیر خبر: پرزیدنت ترامپ حرف آخر را همان اول زده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ابلاغ حکم اعدام حسن مصلاوی، فعال مدنی محبوس در زندان شیبان اهواز
+
+▪️سازمان حقوق بشر کارون روز چهارشنبه ۱۳ خرداد ۱۴۰۵ اعلام کرد که حکم اعدام حسن مصلاوی (طرفی)، فعال مدنی و فرهنگی ۳۸ ساله اهل خوزستان، پس از گذشت بیش از دو سال از تایید آن در دیوان عالی کشور، به‌تازگی به‌طور رسمی در زندان شیبان اهواز به او ابلاغ شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/death-sentence-served-to-ahvaz-activist-hassan-maslawi/8157016.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ از احتمال دستیابی به نتایجی در مذاکرات با جمهوری اسلامی تا پایان این هفته خبر داد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اظهارات تازه یک مقام جمهوری اسلامی نشان می‌دهد خبر کشته شدن علی خامنه‌ای ساعت‌ها پس از اطمینان مقام‌ها از مرگ او اعلام شد. همزمان، گزارش‌های داخلی حاکی از آن است که با وجود اعلام بازگشایی اینترنت، فیلترینگ و ابزارهای محدودسازی دسترسی کاربران با سرعت در حال بازگشت و به‌روزرسانی هستند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: مذاکرات با جمهوری اسلامی خیلی خوب پیش می‌رود؛ به امضای توافق خیلی نزدیک‌ شده‌ایم
+
+▪️دونالد ترامپ رئیس جمهوری آمریکا چهارشنبه ۱۳ خرداد طی مراسم امضای چند فرمان اجرایی در کاخ سفید به خبرنگاران گفت مذاکرات با جمهوری اسلامی خیلی خوب پیش می‌رود و «به امضای یک توافق با ایران خیلی نزدیک‌ هستیم»، اما نتیجه این مذاکرات همچنان معلوم نیست شاید تا آخر هفته مشخص ‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157006.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219515
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219515_1780527429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مارکو روبیو وزیر امور خارجه آمریکا در پاسخ به درخواست تقویت صدای آمریکا و رادیوفردا توسط سناتور میچ مک‌کانل به قطع اینترنت توسط رژیم ایران اشاره کرد و گفت که سازمان رسانه‌های جهانی آمریکا ابزاری ارزشمند برای ایالات متحده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219514
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219514_1780527430.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در گفت‌وگو با معصومه طاهرخانی به تحریم صرافی‌های رمزارز، سقوط ۳۲ درصدی واردات، موج تازه گرانی و ارزیابی‌ نشریه واشنگتن اگزمینر درباره «جنگ ژئواکونومیک» آمریکا علیه جمهوری اسلامی پرداختیم.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15662
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15662_1780527431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیمای Boeing RC-135W Rivet Joint یکی از مهم‌ترین و محرمانه‌ترین هواپیماهای جاسوسی آمریکا و بریتانیاست؛ پرنده‌ای که مأموریت اصلی آن نه حمله است، نه رهگیری، نه بمباران؛ بلکه شنیدن، کشف کردن و نقشه‌برداری از میدان نبرد الکترونیکی دشمن است.
+این هواپیما در اصل بر پایه بدنه بوئینگ ۷۰۷ ساخته شده، اما آنچه آن را خطرناک می‌کند ظاهرش نیست؛ مجموعه عظیمی از آنتن‌ها، گیرنده‌ها، پردازنده‌ها و اپراتورهای اطلاعاتی داخل آن است. RC-135W می‌تواند از فاصله صدها کیلومتری، بدون ورود به حریم هوایی دشمن، امواج راداری، مکالمات نظامی، ارتباطات رمزگذاری‌شده، فعالیت سامانه‌های پدافندی و حتی الگوی کار شبکه فرماندهی و کنترل طرف مقابل را رصد کند.
+مهم‌ترین قابلیت Rivet Joint، جمع‌آوری اطلاعات SIGINT یا اطلاعات سیگنالی است. یعنی این پرنده می‌تواند بفهمد چه راداری روشن شده، از کجا سیگنال می‌فرستد، چه نوع سامانه‌ای فعال است، چه فرکانسی استفاده می‌شود و احتمالاً به چه شبکه‌ای متصل است. این اطلاعات برای طراحی حمله هوایی، شناسایی پدافند دشمن، آماده‌سازی جنگ الکترونیک و حتی تعیین مسیر امن برای جنگنده‌ها و موشک‌ها حیاتی است.
+
+RC-135W معمولاً در نزدیکی مناطق بحران‌زده پرواز می‌کند؛ نه آن‌قدر نزدیک که هدف آسان باشد، و نه آن‌قدر دور که اطلاعات ارزشمند از دست برود. برای همین حضور آن در نزدیکی روسیه، دریای سیاه، بالتیک، خلیج فارس، عراق، سوریه یا شرق مدیترانه معمولاً نشانه‌ای از افزایش سطح رصد اطلاعاتی غرب است.
+این هواپیما همچنین می‌تواند در عملیات‌های مشترک با جنگنده‌ها، آواکس‌ها، پهپادها و ناوهای جنگی نقش «گوش بزرگ میدان نبرد» را بازی کند. به زبان ساده، اگر آواکس چشم آسمان باشد، Rivet Joint گوش الکترونیکی جنگ است؛ پرنده‌ای که سکوت رادیویی دشمن، روشن شدن رادارها و حتی تغییرات کوچک در فعالیت شبکه‌های نظامی را به داده قابل تحلیل تبدیل می‌کند.
+در جنگ مدرن، فقط موشک و جنگنده تعیین‌کننده نیستند. هر ارتشی که زودتر بفهمد دشمن چه سامانه‌ای را روشن کرده، از کجا ارتباط می‌گیرد و چه زمانی در حال آماده‌سازی عملیات است، یک قدم جلوتر است. به همین دلیل RC-135W یکی از ارزشمندترین دارایی‌های اطلاعاتی آمریکا و ناتو محسوب می‌شود؛ پرنده‌ای بدون سلاح، اما با تأثیری مستقیم بر نتیجه عملیات‌های نظامی.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15661
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15661_1780527432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر موافقید امشب یکم بیشتر بیدار باشیم ...
+</div>
+
+## RadioFarda — post 157874
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157874" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۴خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21336
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21336_1780527433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس نمایندگان ایالات متحده، قطعنامه‌ای درباره اختیارات جنگی مرتبط با جنگ ایران با رأی ۲۱۵ به ۲۰۸ تصویب کرد.
+این قطعنامه تا وقتی‌که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود می‌باشد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282805
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282805_1780527435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻مقام‌های لبنانی اعلام کردند در حملات روز چهارشنبه اسرائيل به جنوب لبنان دست کم ۹ نفر کشته شدند. همزمان، حزب الله اعلام کرد که راکت‌هايی را به سوی شمال اسرائيل شليک کرده است.
+
+وزارت بهداشت لبنان اعلام کرد در ميان کشته شدگان دو امدادگر حضور دارند که آمبولانس آنها در حمله ای در منطقه چحور در جنوب لبنان هدف قرار گرفت.
+
+همچنين يک خودرو در منطقه‌ای در جنوب بيروت هدف حمله قرار گرفت.
+
+در مقابل، ارتش اسرائيل اعلام کرد يک پهپاد و دو پرتابه را که از مرز این کشور عبور کرده بودند رهگيری کرده است. حزب الله نيز گفت يک تجمع نيروهای اسرائيلی را هدف قرار داده است.
+ادامه از:
+
+📷Getty
+@BBCPersian
+</div>
+
+## BBCPersian — post 282804
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282804_1780527436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻مجلس نمايندگان آمريکا روز چهارشنبه در اقدامی کم سابقه، با تصويب يک قطعنامه که به رهبری دموکرات‌ها تهیه و دنبال شده است، مخالفت خود را با جنگ دونالد ترامپ عليه ايران ابراز کرد؛ اقدامی که برخلاف خواست رهبران جمهوری‌خواه مجلس انجام شد.
+
+قطعنامه اختيارات جنگی مربوط به ايران که از سوی گرگوری ميکس، نماينده دموکرات ايالت نيويورک و عضو ارشد کميته روابط خارجی مجلس ارائه شده بود، قرار بود پيش از آغاز تعطيلات روز يادبود کنگره در ۲۱ مه - دو هفته پیش - به رأی گذاشته شود. اما زمانی که مشخص شد شمار زيادی از جمهوری‌خواهان برای رأی‌گيری حضور ندارند و احتمال شکست آن وجود دارد، ناگهان از دستور کار خارج شد.
+
+اين قطعنامه سرانجام روز چهارشنبه با ۲۱۵ رأی موافق در برابر ۲۰۸ رأی مخالف تصويب شد. چهار نماينده جمهوری‌خواه نيز همراه با تمامی دموکرات‌ها به آن رأی مثبت دادند.
+
+بر اساس اين قطعنامه، از دونالد ترامپ خواسته می‌شود نيروهای مسلح آمريکا را از درگيری‌های نظامی با ايران خارج کند، مگر آنکه کنگره رسما اعلان جنگ کند يا مجوز استفاده از نيروی نظامی عليه ايران را صادر کند.
+ادامه از:
+https://bbc.in/4eqwgb1
+📷EPA
+@BBCPersian
+</div>
+
+## BBCPersian — post 282803
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282803_1780527437.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری‌های داخل ایران به نقل از نیروی دریایی ارتش این کشور، از «هدف قرار دادن یک ناوشکن آمریکایی» خبر داده‌اند و تصاویری منتسب به شلیک موشک مرتبط با این حمله را هم منتشر کرده‌اند.
+
+در بیانیه چهارشنبه شب نیروی دریایی ارتش ایران که خبرگزاری فارس و چند رسانه دیگر داخل ایران منتشر کرده‌اند آمده است: «ساعاتی قبل و درپی اقدامات تجاوزکارانه، نقض مقررات تنگهٔ هرمز و شرارت علیه شناورهای تجاری ایرانی در دریای عمان از سوی ارتش تروریستی و متجاوز آمریکا، نیروی دریایی ارتش جمهوری اسلامی ایران، به‌محض کشف و شناسایی، «مرکز فرماندهی و کنترل» این شرارت، مستقر در یک فروند ناوشکن آمریکایی که قصد نزدیک‌شدن به آب‌های جمهوری اسلامی ایران در دریای عمان را داشت، هدف قرار داد.»
+
+ستاد فرماندهی مرکزی ارتش آمریکا - سنتکام - دقایقی پیش با رد ادعای حمله به یک ناوشکن این کشور گزارش ایران را «دروغ» خواند و اعلام کرد تمام نیروهای آمریکایی در منطقه «سالم و فعالند».
+
+تصویر آرشیوی
+📷PA
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅ توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌 کانال کازینو…
+</div>
+
+## Dirty_Kids — post 390949
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390949_1780527438.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+A13
+🎯همین حالا عضو شو و شروع کن👇N
+https://t.me/+6ckCmywafrxiYzk0
+https://t.me/+6ckCmywafrxiYzk0
+</div>
+
+## Dirty_Kids — post 390948
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390948_1780527441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390947
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390947_1780527441.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به زودی در مشهد 😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390946
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390946_1780527442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#شهبازی‌ کان پر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390945
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390945_1780527444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این دختر استریمر اخیرا بدلیل بسیار، مودب بودن، با نزاکت بودن، باشعور بودن، کص بودن، صورتی بودن و ممه بزرگ بودن خیلی معروف شده:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390944
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390944_1780527446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نزدیک بود تو تجمعات شبانه تلفات بدن که مویی رد شد :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390943
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390943_1780527447.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوس پسرم جوابمو نمیده حتما داره بهم خیانت میکنه😡💔 همون موقع دوس پسرش تو باشگاه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390942
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390942_1780527448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+مذاکره با ایران خیلی خوب پیش میره... ممکنه انجام نشه، ولی اگه بشه، احتمالاً تا آخر هفته میشه..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390941
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390941_1780527450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام ادعای حمله به ناو آمریکایی رو رد کرد.
+
+حقیقت اینه که ایران دروغ میگه؛
+تمام دارایی‌های نظامی ایالات متحده تو دریا همچنان به پرواز، حرکت و عملیات خود به طور ایمن و بدون هیچ مانعی ادامه میدن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390940
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390940_1780527451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 واکنش شهبازی(سوراخ فوری)، مجری پاورقی به خبری که توش گفته بودن کونش گذاشتن :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390939
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390939_1780527453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عرزشیا بنر گرفتن دستشون خسته شدی از بس مجردی اومدی تجمع؟ بیا ما برات خانوم جور میکنیم، دو نفری یه صفای دیگه داره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390938
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390938_1780527453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینقدر با نمک بازی در اوردی تا کردنت😕
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124945
+
+<div align="center">
+  <a href="telegram/content/alonews_124945_1780527454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 اینترنت مخصوص جنگ 
+🚀
+✅
+
+
+⭐️ فقط گیگی 8 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+📈تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 124944
+
+<div align="center">
+  <a href="telegram/content/alonews_124944_1780527454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجلس نمایندگان ایالات متحده قطعنامه‌ای درباره اختیارات جنگ مرتبط با جنگ ایران را با رای ۲۱۵ به ۲۰۸ تصویب کرد. 
+🔴این قطعنامه تا زمانی که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود است. 
+🔴با این حال، این اولین رای موفق…
+</div>
+
+## alonews — post 124943
+
+<div align="center">
+  <a href="telegram/content/alonews_124943_1780527454.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجلس نمایندگان ایالات متحده قطعنامه‌ای درباره اختیارات جنگ مرتبط با جنگ ایران را با رای ۲۱۵ به ۲۰۸ تصویب کرد.
+
+
+🔴این قطعنامه تا زمانی که توسط سنا نیز تصویب نشود، اثر قانونی الزام‌آور ندارد و بنابراین تأثیر فوری آن محدود است.
+
+
+🔴با این حال، این اولین رای موفق مجلس نمایندگان است که قدرت‌های جنگی کنگره را در مورد جنگ ایران تأیید می‌کند و اقدام نظامی آینده بدون تأیید کنگره را محدود می‌سازد.
+
+
+🔴چهار جمهوری‌خواه به نفع آن رای دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124942
+
+<div align="center">
+  <a href="telegram/content/alonews_124942_1780527457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی دایی: هیچ قدرتی توان شکستن تمدن ۲۵۰۰ ساله ایران را ندارد
+
+
+🔴هرگز قدرتی نتوانسته و نخواهد توانست تمدن و فرهنگ ۲۵۰۰ ساله ایران باستان را که در قلب و جان یکایک ماست در هم بشکند.
+
+
+🔴‏ایران زمین، روزگارها دیده است آنچه سرافراز می‌ماند همیشه تا ابد وطن است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124941
+
+<div align="center">
+  <a href="telegram/content/alonews_124941_1780527457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صحنه‌ای آخرالزمانی از بمباران پایگاه چهارم شکاری دزفول در ۱فروردین
+
+
+🔴موج انفجار رو فقط ببینید
+‼️
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124940
+
+<div align="center">
+  <a href="telegram/content/alonews_124940_1780527460.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهبازی مجری محبوب صدا و سیما: من سالم هستم و خبر تجاوز گروپ به من کاملا کذبه 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124939
+
+<div align="center">
+  <a href="telegram/content/alonews_124939_1780527460.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهبازی مجری محبوب صدا و سیما: من سالم هستم و خبر تجاوز گروپ به من کاملا کذبه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124938
+
+<div align="center">
+  <a href="telegram/content/alonews_124938_1780527460.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تجمعات شبانه تلفات داد
+‼️
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جهت رزرو تبلیغات فوتبالی ویژه جام جهانی و vpn در الونیوز به اینجا مراجعه کنید
+⬇️
+
+https://t.me/ads_alonews
+https://t.me/ads_alonews
+</div>
+
+## alonews — post 124936
+
+<div align="center">
+  <a href="telegram/content/alonews_124936_1780527461.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 آلمان برای اولین بار در تاریخ مدرن خود در کسب کرسی شورای امنیت سازمان ملل شکست خورد و تنها ۱۰۴ رای دریافت کرد.
+
+
+🔴به جای آن، پرتغال و اتریش انتخاب شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124935
+
+<div align="center">
+  <a href="telegram/content/alonews_124935_1780527464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع العربیه: پیشرفت‌هایی در مذاکرات لبنان و اسرائیل حاصل شده است، اما هنوز توافق دائمی به دست نیامده است
+
+
+🔴اختلاف بر سر سلاح‌های حزب‌الله همچنان مانع اصلی هرگونه توافق بلندمدت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124934
+
+<div align="center">
+  <a href="telegram/content/alonews_124934_1780527464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما طبق توافقی که با ایران در حال مذاکره است، ذخایر اورانیوم با غنای بالای ایران را دریافت خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 00:10
 ---
 
