@@ -7,6 +7,598 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 02:18
+---
+
+## VahidOOnLine — post 243727
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243727_1780613312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت نیروی فضایی آمریکا «دوربین‌های بسیار قدرتمندی» را بر سایت‌های هسته‌ای تخریب‌شده ایران متمرکز کرده است تا هرگونه تلاشی از سوی ایران برای دسترسی به اورانیوم غنی‌شده‌ای را که همچنان در اعماق زمین مدفون است، زیر نظر داشته باشد.
+او گفت: «تمام وجب‌به‌وجب آن منطقه زیر پوشش دوربین‌ها است. حدود ۹ دوربین داریم که فعال هستند و کل منطقه را پوشش می‌دهند. بنابراین اگر کسی حتی به آنجا نزدیک شود، از آن مطلع خواهیم شد و می‌دانیم چه اتفاقی در حال رخ دادن است.»
+
+ترامپ همچنین احتمال اعزام قریب‌الوقوع نیروهای آمریکایی به این سایت‌ها برای بیرون آوردن مواد هسته‌ای مدفون‌شده را کم‌اهمیت جلوه داد و گفت اگر تصمیم به چنین اقدامی گرفته شود، آمریکا «همین حالا هم می‌تواند آن را به دست آورد.»
+او گفت: «فکر نمی‌کنم [ایران] بتواند مانع ما شود اگر بخواهیم این کار را انجام دهیم، اما دلیلی برای آن وجود ندارد. ما دوربین‌های بسیار قدرتمندی داریم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، معترضان پنجشنبه شب ۱۴ خرداد در تیرانا، پایتخت آلبانی، در اعتراض به پروژه‌ای مرتبط با جرد کوشنر، داماد دونالد ترامپ، تجمع کردند.
+بر اساس این گزارش، این پروژه ۱.۴ میلیارد یورویی که حدود ۱.۶ میلیارد دلار ارزش دارد، از طرف شرکت سرمایه‌گذاری جرد کوشنر در جزیره سزن و بخش‌هایی از سواحل نزدیک منطقه حفاظت‌شده ویوسا–نارتا در ساحل دریای آدریاتیک دنبال می‌شود؛ پروژه‌ای که رسانه‌ها از آن با عنوان «جزیره ایوانکا ترامپ» یاد می‌کنند.
+ایوانکا ترامپ در گفتگو با دیوید سنرا، نویسنده و مصاحبه‌گر آمریکایی، درباره این پروژه گفت: «روی پروژه‌ای باورنکردنی همراه همسرم در مدیترانه کار می‌کنم. این پروژه از نظر مقیاس بسیار بزرگ است.» او گفت نخستین بار زمانی که با قایق یکی از دوستانشان برای شنا توقف کرده بودند، این جزیره را دیدند و پس از پیاده‌روی در آن، مجذوب منطقه شدند. ایوانکا ترامپ همچنین این مکان را «جزیره‌ای خصوصی به وسعت ۱۴۰۰ هکتار در قلب مدیترانه» توصیف کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243725
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243725_1780613313.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، با انتشار تصاویری از تجهیزات نیروی فضایی مرکزی ایالات متحده، بخش فضایی سنتکام، گفت هم‌زمان با عملیات جنگنده‌های آمریکا در خاورمیانه، بخش فضایی سنتکام دارای قابلیت‌های تهاجمی و دفاعی تمام‌وقت است و جایگاه برتر را در سراسر منظقه در اختیار دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه آمریکا روز پنجشنبه ۱۴ خردادماه، در پیامی مستقیم به مردم ایران، رهبری جمهوری اسلامی را عامل مشکلات کشور دانست و تاکید کرد آینده ایران باید به دست خود ایرانیان ساخته شود.
+در این پیام، وزارت خارجه آمریکا با تمجید از تاریخ و فرهنگ ایران اعلام کرد: «برای هزاران سال، مردم ایران تمدن بشری را شکل داده‌اند؛ شعر، علم، پزشکی، معماری و هنر.» این نهاد همچنین تاکید کرد میلیون‌ها ایرانی خواهان فرصت، ثبات، آزادی بیان و زندگی بدون ترس هستند و ایران از ظرفیت تبدیل شدن به یکی از مرفه‌ترین کشورهای جهان برخوردار است.
+
+وزارت خارجه آمریکا در ادامه اعلام کرد: «مشکل مردم ایران نیستند. مشکل رهبری‌ای است که از تعامل می‌ترسد و به جای فرصت، تقابل را انتخاب می‌کند.»
+
+تامی پیگوت، سخنگوی وزارت امور خارجه آمریکا، نیز به فاکس نیوز گفت اختلاف واشنگتن هرگز با مردم ایران نبوده، بلکه با حکومتی است که تامین مالی تروریسم و دنبال کردن سلاح هسته‌ای را بر رفاه و آزادی مردم ایران ترجیح می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243723
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243723_1780613314.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ وزارت خارجه آمریکا پنجشنبه ۱۴ خرداد از شهروندان آمریکایی حاضر در خاورمیانه خواست به دلیل تنش‌های شدید منطقه‌ای احتیاط کنند و تحولات امنیتی را از نزدیک دنبال کنند. این وزارتخانه اعلام کرد وضعیت امنیتی در خاورمیانه همچنان پیچیده است و ممکن است به‌سرعت تغییر کند.
+
+بر اساس این اطلاعیه، هشدار سفر برای بحرین، اسرائیل، کرانه باختری، اردن، کویت، عمان، قطر، عربستان سعودی و امارات متحده عربی همچنان در سطح ۳، «تجدیدنظر در سفر»، باقی مانده است.
+
+وزارت خارجه آمریکا همچنین اعلام کرد ایران، عراق، لبنان، سوریه، غزه و یمن همچنان در سطح ۴، «از سفر خودداری کنید»، قرار دارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243722
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243722_1780613315.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ،رئیس‌جمهوری آمریکا، روز پنجشنبه ۱۴ خرداد در گفتگو با خبرنگاران در کاخ سفید، درباره احتمال دیدار با مجتبی خامنه‌ای گفت تمایلی به چنین دیداری ندارد.
+ترامپ گفت: «اگر ملاقات کنیم، با احترام برخورد می‌کنم»، اما تاکید کرد شخصا به دنبال چنین دیداری نیست.
+رئیس‌جمهوری آمریکا همچنین در پاسخ به سوالی درباره اینکه آیا به دلیل کشته شدن اعضای خانواده مجتبی خامنه‌ای، احتمال دارد او تمایلی به دیدار نداشته باشد، گفت: «من شخص مورد علاقه او نیستم.»
+ترامپ افزود در صورت شکل‌گیری توافق، احتمال انجام چنین دیداری وجود دارد، اما تاکید کرد در حال حاضر به دنبال آن نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243721
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243721_1780613316.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۱۴ خرداد در اظهاراتی درباره جمهوری اسلامی تاکید کرد که ایالات متحده «به هر حال» پیروز خواهد شد؛ چه از طریق توافق و چه از راه نظامی.
+
+ترامپ گفت: «فکر می‌کنم اوضاع برای ما خیلی خوب پیش می‌رود، اما خواهیم دید که به چه شکلی پیروز می‌شویم. به هر حال ما پیروز خواهیم شد؛ یا روی کاغذ و از طریق توافق، یا از راه نظامی.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13534
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13534_1780613317.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر اختصاصی جدید CNN خسارت ناشی از آتش‌سوزی در ناو هواپیمابر USS Gerald R. Ford (CVN-78) را نشان می‌دهد؛ آتش‌سوزی‌ای که در بخش لباسشویی کشتی رخ داده و در زمان استقرار آن در دریای سرخ و در چارچوب عملیات آمریکا علیه ایران گزارش شده است.
+
+این حادثه در ماه مارس حین جنگ با ایران رخ داد و نیروی دریایی آمریکا فوری اعلام کردن آتش «مهار شده»، دو ملوان با جراحات غیرمرگبار درمان شده‌اند و ناو همچنان «کاملاً عملیاتی» است.
+اما ویدیوی جدید CNN نشان می‌دهد خسارت بسیار شدیدتر از گزارش اولیه بوده است و منابع به CNN گفته‌اند سامانه اطفای حریق ناو از کار افتاده بود.
+
+یکی از ملوانان گفته است خدمه حدود ۳۰ ساعت به‌صورت دستی با آتش مقابله کرده‌اند و حتی نگرانی درباره احتمال از دست رفتن ناو وجود داشته است.
+مقامات تأیید کرده‌اند این آتش‌سوزی به‌طور موقت عملیات را مختل کرده، پرواز جنگنده‌ها را دو روز به تأخیر انداخته و باعث شده ناو برای تعمیرات اضطراری در یونان پهلو بگیرد
+@withyashar
+</div>
+
+## WithYashar — post 13533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید دولتش بررسی کرده بود که نیروهایی را برای تصرف اورانیوم ایران بفرستد، اما در نهایت این ایده را رد کرد چون خیلی پرخطر بود و می‌توانست به تلفات آمریکایی‌ها منجر شود، و این موضوع را با مأموریت ناموفق نجات گروگان‌های کارتر مقایسه کرد.
+@withyashar
+</div>
+
+## WithYashar — post 13532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ ۲۵ بهمن ۱۴۰۴: میخوام با آیت الله علی خامنه ای دیدار کنم.
+۹ اسفند بخارش‌ کرد.
+
+ترامپ ۱۴ خرداد ۱۴۰۵: میخوام با آیت الله مجتبی خامنه ای دیدار کنم.
+
+چه تاریخی بخار میشه؟!
+@withyashar
+</div>
+
+## mwarmonitor — post 10161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درگیری در تنگه هرمز گزارش شده
+</div>
+
+## mwarmonitor — post 10160
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وقتی در ماه مارس یک آتش‌سوزی روی ناو هواپیمابر USS Gerald R. Ford نیروی دریایی آمریکا رخ داد، نیروی دریایی در یک بیانیه کوتاه اعلام کرد که آتش «مهار شده است»، دو ملوان برای «جراحات غیرمرگبار» تحت درمان قرار گرفته‌اند و این ناو همچنان «کاملاً عملیاتی» است.
+
+اما ویدیوی جدیدی که توسط منتشر شده نشان می‌دهد که این آتش‌سوزی بسیار شدیدتر و آسیب‌زننده‌تر از آن چیزی بوده که نیروی دریایی اعلام کرده بود. منابع به CNN گفته‌اند که سامانه اطفای حریق این کشتی از کار افتاده بود.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342625
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342625_1780613319.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: SURVEILLANCE VIDEO FROM TRACK MEET FATAL STABBING DEBUNKS 4-ON-1 ATTACK NARRATIVE: “NOT EVEN CLOSE”
+
+Attorney Todd Shapiro debunks a viral claim suggested that Karmelo Anthony was attacked by four men before the stabbing of Austin Metcalf.
+</div>
+
+## FoxNewsTwitter — post 342624
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342624_1780613321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I pray for the NYPD."
+
+Karl-Anthony Towns is giving credit where he says it’s due as Knicks fans flood the streets during New York’s first NBA Finals run in more than two decades.
+
+With watch parties drawing massive crowds outside Madison Square Garden — and some celebrations turning chaotic enough to lead to arrests — Towns praised officers for helping keep fans safe while the city rallies around the team.
+
+The Knicks are now three wins away from a title, and the energy across New York is only getting louder.
+</div>
+
+## FoxNewsTwitter — post 342623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump on Biden: "He was never the sharpest guy, you do know that, right?"
+
+"It wasn't like he was sharp as a tack."
+
+"Something happened to him during the debate. It could have been me."
+</div>
+
+## FoxNewsTwitter — post 342622
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342622_1780613323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump reacts to Hunter Biden teasing a potential 2028 presidential run, taking the opportunity to roast other Democrats Graham Platner and James Talarico.
+
+"You would think that, you know, past has something to do with winning an election. And I would say his past is not the greatest."
+
+"Hey, if the guy from Maine can do well, I guess Hunter could do well, too, because the guy from Maine is a basket case."
+
+"And I would say worse than him is the one from Texas that looks like Alfred E. Neuman."
+
+"I would say that if he can do well, maybe Hunter can do well."
+
+@pdoocy
+</div>
+
+## FoxNewsTwitter — post 342621
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342621_1780613325.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump declines to reveal specific details of his own proposed compromises to end the Russia-Ukraine war:
+
+"I'd rather not say."
+
+"I'm very responsible when that happens. It's going to happen. They're going to both make compromises — I suggested those compromises."
+
+"They're two very incredible countries, beautiful countries."
+
+"They've got to stop. Last month, they had 25,000 people killed. Soldiers, mostly soldiers, some people, but mostly soldiers."
+</div>
+
+## IranIntlTV — post 340580
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340580_1780613328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، با انتشار تصاویری از تجهیزات نیروی فضایی مرکزی ایالات متحده، بخش فضایی سنتکام، گفت هم‌زمان با عملیات جنگنده‌های آمریکا در خاورمیانه، بخش فضایی سنتکام دارای قابلیت‌های تهاجمی و دفاعی تمام‌وقت است و جایگاه برتر را در سراسر منظقه در اختیار دارد.
+https://iranintl.com/202606041344
+</div>
+
+## IranIntlTV — post 340579
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340579_1780613329.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا چهارشنبه با ۲۱۵ رای موافق و ۲۰۸ رای مخالف قطعنامه‌ مربوط به اختیارات جنگی ترامپ را که هدف آن توقف جنگ با جمهوری اسلامی و مشروط کردن درگیری‌ها به مجوز کنگره است، تصویب کرد.
+
+مرضیه حسینی گزارش می‌دهد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340578
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340578_1780613330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی تاج در پاسخ به پرسش نیویورک تایمز درباره اطمینان از برگزاری نخستین بازی ایران در جام جهانی گفت: «باید از فیفا پرسیده شود.»
+
+این در حالی است که کمتر از یک هفته تا آغاز جام جهانی، تیم ملی ایران همچنان در انتظار دریافت ویزای آمریکا است.
+
+گزارش رضا محدث، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340577
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340577" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ ویژه برنامه درگذشت مرجان ساتراپی با حضور مانا نیستانی و امید کشتکار
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340576
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340576_1780613333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال در خبری اختصاصی گزارش داد هواداران جبهه پایداری در پی درخواست مسعود پزشکیان و محمدباقر قالیباف از حضور در تجمع‌های حمایت از جمهوری اسلامی منع شده‌اند.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340575
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340575_1780613335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اندکی پس از تصویب قطعنامه مجلس نمایندگان آمریکا درباره محدود کردن اختیارات جنگی رییس‌جمهوری در قبال ایران، دونالد ترامپ این اقدام را بی‌معنی توصیف کرد و گفت آنها ترجیح می‌دهند کشور شکست بخورد تا شاهد یک پیروزی دیگر از او باشند.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340574
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340574_1780613337.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل ایرانی یک شرکت فناوری در کالیفرنیا به اتهام همکاری با جمهوری اسلامی بازداشت شد. او متهم است بیش از ۲۵۰ تُن تجهیزات شبکه ساخت آمریکا را با استفاده از شرکت‌های پوششی به ایران منتقل کرده که بخشی از آن به نهادهای نظامی و هسته‌ای رسیده است.
+
+نیلوفر منصوری گزارش می‌دهد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219622
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ می‌گوید در مورد اورانیوم غنی شده در ایران منتظر توافق نمی‌ماند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219621
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219621_1780613339.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از جنگ تا میز مذاکره؛ وقت خریدن به روش جمهوری اسلامی از زبان کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219620
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219620_1780613340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برنامه امروز تفسیر خبر را با اجرای مهدی آقازمانی از طریق لینک زیر در یوتیوب مشاهده بفرمایید:
+https://youtu.be/GXI9_tsXsR4
+</div>
+
+## FarsiVOA — post 219619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: اگر نیروهای آمریکایی در حملات جمهوری اسلامی کشته شوند عملیات نظامی علیه آن از سر گرفته می‌شود
+
+▪️دونالد ترامپ، رئیس جمهوری آمریکا روز پنجشنبه ۱۴ خرداد در مراسم سرمایه‌گذاری در حوزه انرژی و زغال‌سنگ در کاخ سفید در هشداری به جمهوری اسلامی گفت اگر نیروهای آمریکایی در حملات جمهوری اسلامی کشته شوند، عملیات نظامی علیه رژیم از سر گرفته خواهد شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157398.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21399
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21399_1780613341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت جدید اتاق جنگ اسرائیل بازم ساعت شنی
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «من نمی‌خواهم با آیت‌الله ملاقات کنم، اما اگر با او ملاقات می‌کردم، برایم افتخار بود که با او دیدار کنم. با احترام رفتار می‌کردم.» @IranianMinds
+</div>
+
+## BBCPersian — post 282893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نخست وزیر و وزیر خارجه قطر در تماسی تلفنی با هاکان فیدان تلاش‌های میانجی‌گرانه میان تهران و واشنگتن را بررسی کردند
+
+محمد بن عبدالرحمن بن جاسم آل‌ثانی، نخست‌وزیر و وزیر امور خارجه قطر، در تماس تلفنی با هاکان فیدان، وزیر امور خارجه ترکیه، درباره روابط دوجانبه و راه‌های تقویت همکاری‌های میان دو کشور گفت‌وگو کردند.
+
+وزارت خارجه قطر در پیامی در شبکه ایکس گفته است که دو طرف تلاش‌های میانجی‌گرانه میان ایالات متحده و جمهوری اسلامی ایران و راه‌های حمایت از این روند را مورد بررسی قرار دادند.
+
+وزرای خارجه قطر و ترکیه همچنین بر هماهنگی برای پشتیبانی از ابتکارهای دیپلماتیک با هدف کاهش تنش‌ها و تقویت امنیت و ثبات منطقه تأکید کردند.
+
+نخست‌وزیر و وزیر امور خارجه قطر در این گفت‌وگو بر ضرورت همراهی همه طرف‌ها با تلاش‌های جاری برای میانجی‌گری تأکید کرد و گفت این روند می‌تواند زمینه را برای رسیدگی به ریشه‌های بحران از طریق گفت‌وگو و راهکارهای مسالمت‌آمیز فراهم کرده و به دستیابی به توافقی پایدار که مانع از تشدید دوباره تنش‌ها شود، منجر شود.
+
+https://bbc.in/4dS78uI
+@BBCPersian
+</div>
+
+## BBCPersian — post 282885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊 نازنین کیان، روزنامه‌نگار
+
+🔻 در آستانه بزرگ‌ترین رویداد فوتبالی جهان در قاره آمریکا، اردوی تیم ملی فوتبال ایران بیش از آنکه تحت تاثیر تاکتیک‌های ورزشی باشد، درگیر یک جنجال دیپلماتیک شده است؛ جنجالی که در مرکز آن مرد شماره یک فدراسیون فوتبال، مهدی تاج، ایستاده است.
+
+بیشتر بخوانید:
+https://bbc.in/49G2Pju
+📸GettyImages/ Reuters/ AFP via Getty Images/ EPA/Shutterstock/ Social media/ tasnim
+@BBCPersian
+</div>
+
+## BBCPersian — post 282884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 خانواده مرجان ساتراپی، خالق رمان پرسپولیس، می‌گویند او از اندوه جان باخت؛ این غم جانکاه از کجا نشات گرفت؟
+
+گزیده‌هایی از گفتگوی سرور کسمایی، نویسنده و از دوستان مرجان ساتراپی را با پریزاد نوبخت ببینید.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391015
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391015_1780613341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
++ بنظرت به ترامپ بگیم مجتبی رو هم ترور کردیم یا هنوز زوده؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391014
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391014_1780613341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هرچه موشک زدی مرا
+نقض نشد، علاقه شد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391013
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391013_1780613342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت داریم شب جمعه‌ها روز ورزش و ورزشکاران است
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391012
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391012_1780613345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شنیدم میخوای با آیت‌الله جدید(مجتبی خامنه‌ای) ملاقات کنی. ترامپ: نه من نمیخوام باهاش ملاقات کنم، ولی باعث افتخاره که باهاش دیدار داشته باشم؛ دوست دارم ببینم میتونیم آیا باهم یه قرار داد خوبی داشته باشیم یا نه، ولی اگه باهاشون قرارداد ببندیم، ممکنه…
+</div>
+
+## Dirty_Kids — post 391011
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391011_1780613347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شنیدم میخوای با آیت‌الله جدید(مجتبی خامنه‌ای) ملاقات کنی.
+
+ترامپ: نه من نمیخوام باهاش ملاقات کنم، ولی باعث افتخاره که باهاش دیدار داشته باشم؛
+
+دوست دارم ببینم میتونیم آیا باهم یه قرار داد خوبی داشته باشیم یا نه، ولی اگه باهاشون قرارداد ببندیم، ممکنه همو ببینیم حتی توآمریکا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391010
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391010_1780613349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این که قیصره و خواننده‌ی درجه ۴ هم حساب نمی‌شد و معلوم بود سرش تو کون آخونده
+اگر میا خلیفه هم بیارید اصلا تعجب نمی‌کنیم چون هرچی کونده و جنده‌ دوزاریه طرفدار آخونداس.
+*با احترام به تن‌فروشان شریف*
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125191
+
+<div align="center">
+  <a href="telegram/content/alonews_125191_1780613351.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 
+🚀
+💙
+
+
+🔥 نامحدود فقط 690 تومن 
+🔥
+
+
+⭐️ فقط گیگی 7 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+✅ تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 125190
+
+<div align="center">
+  <a href="telegram/content/alonews_125190_1780613351.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محسن رضایی : یک سیلی دیگر ممکن است بیاید تا اسرائیل و آمریکا را سر جای خودشان بنشاند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125189
+
+<div align="center">
+  <a href="telegram/content/alonews_125189_1780613351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صدا و سیما:
+پولی در قطر نداریم، پول ایران در آلمان است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125188
+
+<div align="center">
+  <a href="telegram/content/alonews_125188_1780613354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت جدید اتاق جنگ اسرائیل: ⌛️
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125187
+
+<div align="center">
+  <a href="telegram/content/alonews_125187_1780613354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ ۲۵ بهمن ۱۴۰۴:
+میخوام با آیت الله علی خامنه ای دیدار کنم.
+
+
+🔴ترامپ ۱۴ خرداد ۱۴۰۵:
+میخوام با آیت الله مجتبی خامنه ای دیدار کنم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 00:36
 ---
 
