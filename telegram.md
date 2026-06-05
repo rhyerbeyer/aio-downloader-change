@@ -7,6 +7,780 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 03:22
+---
+
+## VahidOOnLine — post 243878
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243878_1780703541.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گروک در سیریک را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243877
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243877_1780703541.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شرکت «متا»، روز جمعه، ۱۵ خردادماه، رسما از سرویس اشتراکی جدید خود تحت عنوان «اینستاگرام پلاس» (Instagram Plus) رونمایی کرد که به صورت یک ارتقای اختیاری و پولی در اختیار کاربران علاقه‌مند قرار می‌گیرد؛ نسخه رایگان و معمول اینستاگرام کماکان بدون تغییر باقی خواهد ماند. این اشتراک «پیشرفته» مجموعه مفصلی از قابلیت‌های جدید را در سه محور تعامل، آمار و شخصی‌سازی ارائه می‌دهد که از شاخص‌ترین آن‌ها می‌توان به تمدید مدت‌زمان ماندگاری روایتگر تا ۴۸ ساعت، امکان «پیش‌نمایش روایتگرها» بدون ثبت بازدید، ردیابی تعداد دفعات بازبینی (Rewatch) روایتگر توسط دیگران و ابزار جستجوی مستقیم یک شخص خاص در میان بینندگان روایتگر اشاره کرد. علاوه بر این، کاربران نسخه پلاس می‌توانند تا ۶ محتوا را در صفحه خود سنجاق کنند، فونت بخش «درباره من» و آیکون برنامه خود را تغییر دهند و حتی محتوای جدید را بدون ایجاد مزاحمت و فرستادن به صفحه خبرخوان اصلی دوستان، مستقیما روی صفحه خود بارگزاری نمایند. براساس این گزارش، این سرویس فرآیند عرضه جهانی خود را از امروز آغاز کرده و از بخش تنظیمات و پرداخت ماهیانه ۳.۹۹ دلار قابل فعال‌سازی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با برنامه «میت د پرس» شبکه «ان‌بی‌سی نیوز» اعلام کرد که بر اساس ارزیابی‌ها، در حال حاضر تنها حدود ۲۱ تا ۲۲ درصد از توان موشکی اولیه ایران باقی مانده است. ترامپ در این مصاحبه با اشاره به حجم تخریب توان نظامی تهران افزود: «این میزان هنوز تعداد زیادی موشک محسوب می‌شود، اما با آنچه در زمان اولین حمله ما در اختیار داشتند، قابل مقایسه نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243875
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243875_1780703542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گورک بوشهر را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243873
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243873_1780703543.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام)، بامداد شنبه، ۱۶ خردادماه، با انتشار بیانیه‌ای رسمی اعلام کرد که نیروهای ارتش آمریکا چهار فروند پهپاد انتحاری (یک‌طرفه) ایران را که به سمت تنگه هرمز پرتاب شده و تهدیدی فوری برای تردد دریایی منطقه به شمار می‌رفتند، سرنگون کرده‌اند. بر اساس این بیانیه، نیروهای آمریکایی متعاقب و با هدف دفاع از خود در برابر حملات بیشتر، سایت‌های راداری نظارت ساحلی ایران را در منطقه «گروک» و «جزیره قشم» هدف حمله قرار دادند. سنتکام در پایان با تاکید بر حفظ آمادگی کامل نیروهای آمریکایی افزود که واشنگتن برای دفاع از خود و پاسخ به «تجاوزات توجیه‌ناپذیر ایران»، در حالت آماده‌باش قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243872
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243872_1780703544.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در گفت‌وگو با ان‌بی‌سی گفت که حکومت ایران هنوز ۲۱ تا ۲۲ درصد از موشک‌های خود را حفظ کرده است. او گفت که رهبران حکومت ایران هنوز با آمریکا برای پایان جنگ به توافق نرسیده‌اند، زیرا آنها «قوی» و «مغرور» هستند، اما در نهایت «آنها چاره‌ای جز توافق ندارند و کمی طول می‌کشد.»
+او افزود: «بیشتر کارخانه‌های پهپادسازی ‌آن‌ها از کار افتاده‌، بیشتر سکوهای پرتاب از کار افتاده‌ و بیشتر مناطق تولید موشک از کار افتاده‌اند. اما آن‌ها هنوز ظرفیت تولید دارند. آن‌ها تعدادی موشک و تعدادی پهپاد دارند. به نظر من، شاید ۲۱ تا ۲۲ درصد از موشک‌های‌شان. این تعداد زیادی موشک است، اما این میزان، آن چیزی نیست که در زمان حمله اولیه ما بود.»
+ترامپ مدت زمان درگیری جاری را با جنگ ویتنام مقایسه کرد و گفت: «من خیلی سریع پیش می‌روم. سه ماه است که درگیر آن هستم. می‌دانید، ویتنام ۱۹ سال طول کشید. من در ماه سوم هستم و تنها کاری که آن‌ها می‌کنند، این است که می‌گویند کی قرار است پیروز شویم. اگر من یک دموکرات بودم، هیچ کس این‌طور صحبت نمی‌کرد، اما برای من مهم نیست. من به آن عادت کرده‌ام.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13607
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13607_1780703545.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشتک نیم وارو پهپاد های شناسایی اسمون بندر عباس همین الان
+@withyashar
+</div>
+
+## WithYashar — post 13606
+
+
+
+
+## WithYashar — post 13605
+
+
+
+
+## WithYashar — post 13604
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13604_1780703548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar منتظر زارتان زورتان
+</div>
+
+## WithYashar — post 13603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳پا باید یه جوابی بده چیزی‌ دیدن یا شنیدین بگین
+</div>
+
+## WithYashar — post 13602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار در سيريك 🚨🚨🚨🚨🚨🚨🚨 @withyashar
+</div>
+
+## WithYashar — post 13601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴: همه امیدوار بودند که آتش بس برقرار شود، اما بازی به طور کامل در حال تغییر است. برای یک آخر هفته فوق العاده گرم در خاورمیانه آماده می شوند، زیرا ایران و آمریکا از اعتصابات تصادفی شبانه به رویارویی های روز روشن تغییر می کنند!
+@withyashar
+</div>
+
+## WithYashar — post 13600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام : چند لحظه پیش، نیروهای سنتکام چهار پهپاد تهاجمی یک‌طرفهٔ ایرانی را که به سمت تنگهٔ هرمز پرتاب شده بودند، سرنگون کردند. این پهپادهای تهاجمی تهدیدی فوری برای تردد دریایی منطقه ایجاد کرده بودند. در ادامه، نیروهای آمریکا برای دفاع در برابر حملات بیشتر، سایت‌های رادار مراقبت ساحلی ایران در گورک و جزیرهٔ قشم را هدف قرار دادند.
+نیروهای آمریکایی همچنان هوشیار هستند و برای پاسخ‌دادن به تجاوز بی‌دلیل ایران در چارچوب دفاع از خود، در حالت آماده‌باش قرار دارند.
+🚨🚨🚨🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 13599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سنتکام از حمله به سایت های راداری قشم خبر داد!
+@withyashar
+</div>
+
+## WithYashar — post 13598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار در سيريك
+🚨🚨🚨🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 13597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌بی‌اس نیوز به نقل از یک مقام آمریکایی: نیروهای آمریکایی حداقل ۴ پهپاد را که توسط ایران به سمت تنگه هرمز پرتاب شده بود، سرنگون کرده‌اند.🚨
+@withyashar بچه جنگ شده باز
+</div>
+
+## FoxNewsTwitter — post 342667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Graham Platner holds a Get Out the Vote rally with Rep. Ro Khanna https://twitter.com/i/broadcasts/1RJjppoygVdKw
+</div>
+
+## FoxNewsTwitter — post 342666
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342666_1780703549.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump wears Olympic gold.
+
+Olympic speed skating champion Jordan Stolz placed his gold medal around the president's neck during an agriculture roundtable at Custer Farms in Chippewa Falls, Wisconsin.
+
+The Wisconsin native later shook hands with Trump at the event, which focused on policies impacting American farmers.
+</div>
+
+## pm_afshaa — post 92352
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92352_1780703549.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم…
+</div>
+
+## pm_afshaa — post 92351
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92351_1780703550.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم…
+</div>
+
+## pm_afshaa — post 92350
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92350_1780703551.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پایگاه دریایی بندر سیریک هم بمباران شده، و گزارش‌ها از کشته شدن دست کم یک عضو نیرو دریایی سپاه در این حملات هوایی.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92349
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92349_1780703552.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم…
+</div>
+
+## pm_afshaa — post 92348
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92348_1780703552.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن.
+
+پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم حمله کردن تا در برابر حملات بیشتر دفاع کنند.
+
+نیروهای آمریکایی هوشیار و آماده پاسخگویی به تهاجم غیرموجه ایران در دفاع از خود هستند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92347
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92347_1780703553.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: امشب ایران پهپادهایی رو به سمت تنگه هرمز پرتاب کرده و نیروهای آمریکایی 3 فروند پهباد رو سرنگون کردن. هدف این پهپادها یا کشتی‌های تجاری عبوری از منطقه بوده یا نیروهای آمریکایی مستقر در اطراف تنگه هرمز. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino…
+</div>
+
+## VahidOnline — post 75958
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75958_1780703554.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام)، بامداد شنبه، ۱۶ خردادماه، با انتشار بیانیه‌ای رسمی اعلام کرد که نیروهای ارتش آمریکا چهار فروند پهپاد انتحاری (یک‌طرفه) ایران را که به سمت تنگه هرمز پرتاب شده و تهدیدی فوری برای تردد دریایی منطقه به شمار می‌رفتند، سرنگون کرده‌اند. بر اساس این بیانیه، نیروهای آمریکایی متعاقب و با هدف دفاع از خود در برابر حملات بیشتر، سایت‌های راداری نظارت ساحلی ایران را در منطقه «گروک» و «جزیره قشم» هدف حمله قرار دادند. سنتکام در پایان با تاکید بر حفظ آمادگی کامل نیروهای آمریکایی افزود که واشنگتن برای دفاع از خود و پاسخ به «تجاوزات توجیه‌ناپذیر ایران»، در حالت آماده‌باش قرار دارد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیریک در هرمزگان
+
+پیام‌های دریافتی:
+پایگاه نیروی دریایی سپاه بندر سیریک رو همین الان دوباره زدند. همون لوکیشن چند روز پیش.
+
+شهرستان سیریک صدای لانچ موشک ساعت ۲:۱۴
+
+سلام ساعت دو ده دیقه
+پنج تا انفجار نیرو دریای سپاه سیرک هرمزگان
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75956
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75956_1780703555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وب‌سایت آکسیوس گزارش داده است که استیو ویتکاف و جرد کوشنر، فرستادگان دونالد ترامپ، روز پنجشنبه برای رایزنی با گروهی از کارشناسان فنی به آزمایشگاه ملی اوک‌ریج در ایالت تنسی سفر کردند.
+
+به نوشته آکسیوس، کاخ سفید در تلاش است با ایران بر سر یک تفاهم‌نامه برای پایان دادن به جنگ و آغاز مذاکرات تفصیلی هسته‌ای «به توافق برسد» و می‌خواهد در صورت آغاز این مذاکرات، تیم کارشناسی لازم را آماده داشته باشد.
+
+به گفته منابع آمریکایی و منطقه‌ای، تهران و واشنگتن همچنان بر سر برخی جزئیات این تفاهم‌نامه اختلاف دارند، اما مذاکرات وارد مراحل پایانی شده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340739
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340739_1780703556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گروک در سیریک را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+https://iranintl.com/202606054048
+</div>
+
+## IranIntlTV — post 340736
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340736_1780703556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در گفت‌وگو با ان‌بی‌سی گفت که حکومت ایران هنوز ۲۱ تا ۲۲ درصد از موشک‌های خود را حفظ کرده است. او گفت که رهبران حکومت ایران هنوز با آمریکا برای پایان جنگ به توافق نرسیده‌اند، زیرا آنها «قوی» و «مغرور» هستند، اما در نهایت «آنها چاره‌ای جز توافق ندارند و کمی طول می‌کشد.»
+او افزود: «بیشتر کارخانه‌های پهپادسازی ‌آن‌ها از کار افتاده‌، بیشتر سکوهای پرتاب از کار افتاده‌ و بیشتر مناطق تولید موشک از کار افتاده‌اند. اما آن‌ها هنوز ظرفیت تولید دارند. آن‌ها تعدادی موشک و تعدادی پهپاد دارند. به نظر من، شاید ۲۱ تا ۲۲ درصد از موشک‌های‌شان. این تعداد زیادی موشک است، اما این میزان، آن چیزی نیست که در زمان حمله اولیه ما بود.»
+ترامپ مدت زمان درگیری جاری را با جنگ ویتنام مقایسه کرد و گفت: «من خیلی سریع پیش می‌روم. سه ماه است که درگیر آن هستم. می‌دانید، ویتنام ۱۹ سال طول کشید. من در ماه سوم هستم و تنها کاری که آن‌ها می‌کنند، این است که می‌گویند کی قرار است پیروز شویم. اگر من یک دموکرات بودم، هیچ کس این‌طور صحبت نمی‌کرد، اما برای من مهم نیست. من به آن عادت کرده‌ام.»
+https://iranintl.com/202606057759
+</div>
+
+## IranIntlTV — post 340735
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340735_1780703557.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ساعاتی پیش از سفر تیم ملی فوتبال به مکزیک برای اقامت در کمپ اصلی تمرینی جام جهانی ۲۰۲۶، خبرگزاری رویترز گزارش داد آمریکا برای همه بازیکنان تیم ملی، ویزا صادر کرده است.
+
+🔹در ادامه، شبکه تلویزیونی الجزیره هم به نقل از منابعی آگاه نوشت که آمریکا دست‌کم برای ۱۵ نفر از کادر فنی و اجرایی تیم ملی، ویزا صادر نکرده است.
+
+🔹قرار است تیم فوتبال ایران در مرحله گروهی جام جهانی ۲۰۲۶ در شهرهای لس آنجلس و سیاتل با نیوزیلند، بلژیک و مصر بازی کند.
+
+🔹رضا محدث، خبرنگار ایران اینترنشنال گزارش می‌دهد.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6555
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6555_1780703559.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 23:15:52 UTC
+
+State-owned Mehr News confirms the explosions in Sirik.
+
+فارسی
+
+خبرگزاری دولتی مهر وقوع انفجارها در سیریک را تأیید کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 23:14:05 UTC
+
+There are casualties amongst IRGC terrorists in Sirik Naval base.
+One identified so far:
+Saeed Chileh Var (سعید چیله ور) from the missile squad
+
+فارسی
+
+تلفاتی در میان تروریست‌های سپاه پاسداران انقلاب اسلامی (IRGC) در پایگاه دریایی سیریک وجود دارد.
+تاکنون یک نفر شناسایی شده است:
+سعید چیله‌ور از واحد موشکی
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این یارو قیصر بود رفت تهران واسه عرزشیا خوند؟ اسم اصلیش بینش بلوره :)))
+</div>
+
+## Shin_Persian — post 6551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Tammuz Intel ✓ @Tammuz_Intel
+Fri, 05 Jun 2026 22:44:56 UTC
+
+Unknown drone was shot down over Baiji Oilfields by Iraqi security forces.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یک پهپاد ناشناس توسط نیروهای امنیتی عراق بر فراز میدان‌های نفتی بیجی سرنگون شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:51:15 UTC
+
+Sirik Naval Base has been targeted @ 2240Z Hormozgan Province, #Iran
+
+فارسی
+
+پایگاه دریایی سیریک در ساعت ۲۲۴۰ زولو (۰۲:۱۰ به وقت تهران) در استان هرمزگان هدف قرار گرفته است. #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:49:10 UTC
+
+CENTCOM: U.S. forces shot down four Iranian one-way attack drones heading toward the Strait of Hormuz, then struck Iranian coastal radar sites in Goruk and Qeshm Island. The drones posed an immediate threat to maritime traffic.
+
+فارسی
+
+سنتکام (ستاد فرماندهی مرکزی ایالات متحده): نیروهای آمریکایی چهار پهپاد تهاجمی یک‌طرفه ایرانی را که به سمت تنگه هرمز در حرکت بودند سرنگون کردند و سپس سایت‌های راداری ساحلی ایران در گروک و جزیره قشم را مورد هدف قرار دادند. این پهپادها تهدیدی فوری برای تردد دریایی بودند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:44:10 UTC
+
+Numerous #USAF 🇺🇸 tankers up in the region
+
+فارسی
+
+تعداد زیادی تانکر سوخت‌رسان نیروی هوایی ایالات متحده (USAF) 🇺🇸 در منطقه حضور دارند #USAF
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افزایش اعتیاد و کشت خشخاش به جای برنج در ایران؛ ‌گفت‌وگو با فریدون رحمانی جامعه‌شناس
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219719
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219719_1780703560.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هزینه اعدام‌ها برای جمهوری اسلامی چگونه زیاد خواهد شد؟ گفت‌وگو با حسن بنی‌هاشم مدافع حقوق بشر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش شبکه آمریکایی از شلیک چند پهپاد از سوی جمهوری اسلامی به سمت تنگه هرمز
+
+▪️شبکه سی‌ان‌ان به نقل از یک مقام آمریکایی گزارش داده است که جمهوری اسلامی چندین پهپاد را به سمت تنگه هرمز شلیک کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157796.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نفوذ شرکت‌های وابسته به سپاه در پروژه‌های عراق و افشای پرداخت‌های میلیاردی به اسماعیل قاآنی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نیروهای آمریکایی در واکنش به حملات پهپادی جمهوری اسلامی به مواضع آن در شهر گروک و جزیره قشم حمله کردند
+
+▪️ستاد فرماندهی مرکزی آمریکا (سنتکام) جمعه شب به وقت واشنگتن گفت: «لحظاتی پیش، نیروهای سنتکام چهار پهپاد تهاجمی یک‌طرفه [جمهوری اسلامی] ایران را که به سمت تنگه هرمز پرواز کرده بودند، سرنگون کردند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157796.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آخرین صحبت‌های مجتبی ویسی با مأموران، پیش از قتل؛ وداع باشکوه مردم کرمانشاه با برادران ویسی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکاف عمیق میان صفوف گروه‌های مسلح تحت امر جمهوری اسلامی در عراق
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219713
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219713_1780703561.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: ما برای خارج کردن اورانیوم غنی‌شده مدفون در ایران نیازی به توافق با جمهوری اسلامی نداریم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رضا ولی‌زاده، روزنامه‌نگار آمریکایی-ایرانی زندانی در ایران خواستار کمک واشنگتن برای رسیدگی درمانی شد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15780
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15780_1780703563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای جنگنده احتمالا امریکایی در نزدیکی شهر بصره عراق
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15779
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15779_1780703564.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز چهار تانکر سوخت رسان امریکایی برفراز خلیج‌ فارس و دریای عمان
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15778
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15778_1780703565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: چند لحظه پیش، نیروهای سنتکام چهار پهپاد انتحاری ایرانی را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند.
+
+این پهپادهای تهاجمی تهدیدی فوری برای تردد دریایی منطقه محسوب می‌شدند. در ادامه، نیروهای آمریکایی برای جلوگیری از حملات بیشتر، سایت‌های رادار مراقبت ساحلی ایران در گورک و جزیره قشم را هدف قرار دادند.
+
+نیروهای آمریکایی همچنان در حالت آماده‌باش و هوشیار قرار دارند و برای پاسخ به هرگونه اقدام تهاجمی غیرموجه ایران در چارچوب دفاع از خود، آماده هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15777
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15777_1780703566.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌌
+F-16 Falcon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21467
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21467_1780703568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایشون زینب دشتی هستن مجری تلویزیون کویت، که اومد از جمهوری اسلامی حمایت کرد و دولت کویت هم برای همیشه اخراجش کرد و از کارای دولتی کاملا محرومش کرد و به سه سال زندان هم محکوم شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21466
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21466_1780703569.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤩
+🤩
+🤩
+🤩 بونوس اضافه به ازای هر واریز 
+💰
+
+🔴فرصت تکرارنشدنی به مناسبت افتتاحیه
+🔴
+
+⚡️هر چقدر شارژ کنی، بیشتر هدیه می‌گیری
+⚡️
+
+🔴تا سقف ۳ میلیون تومان
+🔴
+
+⌛ فقط برای مدت محدود
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+aa15
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+و هزاران امکانات خاص دیگه
+💰
+
+
+🚩
+🚩 خرداد افتتاحیه بزرگ سایت وینرو
+🟥 همین الان ثبت نام کن و علاوه بر ۵۰۰ هزار تومن بونوس ثبت نام با هر شارژ تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگیر
+
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا 
+🌟
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 21461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این پرستوی حکومتی صدف طاهریان هم‌ اومد کل عکسای لختیشو از پیجش پاک کرد و گفت برگشتم به وطن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری تسنیم :
+
+آمریکا دوباره بهمون اتک زد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش حملات آمریکا به سایت های رژیم جمهوری اسلامی
+
+چند انفجار در پایگاه نیرو دریایی سپاه سیریک
+
++ نقض چیه؟؟؟ داریم توافق میکنیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنت‌کام: لحظاتی پیش، نیروهای سنتکام چهار پهپاد حمله یک‌طرفه ایرانی را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند. این پهپادهای حمله تهدید فوری برای ترافیک دریایی منطقه بودند. نیروهای آمریکایی سپس سایت‌های رادار نظارت ساحلی ایرانی در خارک و جزیره قشم…
+</div>
+
+## IranianMinds — post 21457
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21457_1780703570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنت‌کام:
+
+لحظاتی پیش، نیروهای سنتکام چهار پهپاد حمله یک‌طرفه ایرانی را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند. این پهپادهای حمله تهدید فوری برای ترافیک دریایی منطقه بودند.
+
+نیروهای آمریکایی سپس سایت‌های رادار نظارت ساحلی ایرانی در خارک و جزیره قشم را برای دفاع در برابر حملات بیشتر هدف قرار دادند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجب جَو عجیبی شده
+مخالفای جمهوری اسلامی شدن هیتر ترامپ
+موافقای جمهوری اسلامی دارن میشن هیتر جمهوری اسلامی
+
+چرا هیچی سر جاش نیست؟
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282935
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282935_1780703571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تام باراک، سفیر آمریکا در ترکیه، روز جمعه در پیامی در شبکه ایکس تایید کرد که برای اعضای تیم ملی فوتبال ایران جهت شرکت در جام جهانی ویزای ورود به آمریکا صادر شده است.
+
+او با اشاره به گزارش‌هایی درباره صدور ویزا برای بازیکنان تیم ملی ایران نوشت: «به تیم فوق‌العاده سفارت آمریکا در آنکارا برای تلاش‌هایشان در صدور ویزا برای تیم ملی فوتبال ایران در مسیر حضور در جام جهانی فوتبال در آمریکا افتخار می‌کنم.»
+
+آقای باراک افزود: «ورزش فراتر از مرزهاست و ما مشتاق استقبال از ورزشکاران و هواداران از سراسر جهان هستیم.»
+
+تیم ملی ایران قرار است روز شنبه از ترکیه راهی اسپانیا شود و سپس به اردوی خود در مکزیک برود. مقام‌های مکزیک نیز برای اعضای این تیم ویزا صادر کرده‌اند.
+
+ایران در جریان مسابقات جام جهانی در مکزیک مستقر خواهد بود، اما هر سه دیدار مرحله گروهی خود را در آمریکا برگزار می‌کند.
+
+قرار بود اردوی تیم ملی ابتدا در آمریکا برپا شود، اما به دلیل تنش‌های میان تهران و واشنگتن، محل اردو به مکزیک تغییر یافت.
+
+متن کامل خبر : https://bbc.in/4g3J4pS
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282934
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282934_1780703571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت دارایی آمریکا روز جمعه اعلام کرد که تحریم‌هایی را علیه یک شبکه اعمال کرده است که به گفته این وزارتخانه با صدور گاز مایع(ال‌پی‌جی) از ایران به جنوب و شرق آسیا، برای دور زدن تحریم‌ها، مبدا آن را به‌طور جعلی عمان اعلام می‌کرده است.
+
+بر اساس بیانیه وزارت دارایی آمریکا، این شبکه از شرکت‌های صوری در امارات متحده عربی و چین و همچنین ناوگانی موسوم به «ناوگان سایه» استفاده می‌کرده است.
+
+وزارت دارایی آمریکا می‌گوید که این سازوکار با هدف دور زدن تحریم‌های موجود آمریکا طراحی شده و محموله‌هایی به ارزش صدها میلیون دلار(ال‌پی‌جی) را جابه‌جا کرده است.
+
+واشنگتن همچنین روز جمعه یک صرافی ایرانی و افراد مرتبط با آن را به اتهام کمک به ایران برای انجام میلیاردها دلار تراکنش مالی تحریم کرد.
+
+تامى پیگوت، سخنگوی وزارت خارجه آمریکا، این اقدامات را بخشی از «کارزار فشار حداکثری اقتصادی» دولت دانست و گفت هدف آن محدود کردن توان ایران در تأمین مالی برنامه‌های تسلیحاتی، حمایت از گروه‌های نیابتی و اقدامات منطقه‌ای است. ادامه خبر را اینجا بخوانید
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 02:08
 ---
 
