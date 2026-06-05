@@ -7,6 +7,541 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 08:22
+---
+
+## VahidOOnLine — post 243756
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243756_1780635178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید رسایی، نماینده مجلس، در سخنرانی در تجمع حامیان حکومت گفت: «این جنگ حتما با پیروزی ایران تمام خواهد شد اما مشکل بعد از جنگ است. ممکن است لیبرال‌ها، غربزده‌ها، پشیمان‌ها و مسئولینی که سیستم محاسباتی آنها تغییر کرده، روی کار بیایند و وضع همین خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243755
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243755_1780635178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مقامات ایالات متحده ویدئویی را منتشر کردند که نشان می‌دهد یک قایق چوبی حامل ۲۴۰ مهاجر هائیتی در دریا رهگیری و متوقف شده است.
+به گزارش رویترز و به گفته مقامات، این قایق که بیش از حد ظرفیت خود مسافر حمل می‌کرد، یکی از موتورهایش را از دست داده بود و آب به آرامی در حال نفوذ به داخل آن بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243754
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243754_1780635181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از دو منبع آگاه گزارش داد در پی یک حمله پهپادی و وقوع انفجار در نزدیکی اسکله‌های پهلوگیری پایانه مینا الفحل عمان، بارگیری نفت در این پایانه متوقف شده است. هنوز مشخص نیست این حمله دقیقا چه زمانی روی داده است.
+بر اساس داده‌های کشتیرانی ال‌اس‌ای‌جی، روز جمعه چند نفتکش بسیار بزرگ در نزدیکی این بندر لنگر انداخته بودند.
+رسانه‌های دولتی ایران روز چهارشنبه گزارش دادند جمهوری اسلامی یک کشتی نظامی آمریکا را که «مرکز کنترل و فرماندهی» توصیف شده بود، هنگام نزدیک شدن به آب‌های سرزمینی ایران در دریای عمان هدف قرار داده است، اما ستاد فرماندهی مرکزی آمریکا، سنتکام، این گزارش‌ها را رد کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243753
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243753_1780635181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، بارگیری نفت خام در پایانه مینا الفحل عمان پس از وقوع انفجار در نزدیکی محل بارگیری نفت متوقف شد.
+منابع آگاه به رویترز گفته‌اند انفجار میان دو محل پهلوگیری نفتکش‌ها رخ داده و احتمال می‌رود حمله پهپادی عامل این حادثه بوده باشد.
+بر اساس این گزارش، مقام‌های عمانی هنوز به‌صورت رسمی درباره علت انفجار اظهار نظر نکرده‌اند، اما عملیات بارگیری نفت خام در این پایانه متوقف شده است.
+پایانه مینا الفحل یکی از مراکز اصلی صادرات نفت عمان به شمار می‌رود و توقف فعالیت آن می‌تواند بر روند صادرات نفت این کشور تاثیر بگذارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243752
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243752_1780635182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهنام بن‌طالب‌لو، مدیر ارشد برنامه ایران در بنیاد دفاع از دموکراسی‌ها، در گفت‌وگو با ای‌بی‌سی نیوز با اشاره به حمله‌های اخیر جمهوری اسلامی به اهداف غیرنظامی در کویت گفت: «جمهوری اسلامی از حمله به همسایه‌ها استفاده تبلیغاتی می‌کند تا بگوید شکست نخورده است.»
+او افزود: با وجود اصطلاح آتش‌بس، جمهوری اسلامی و حتی تا حدی آمریکا، با شلیک به یکدیگر یا به منافع یکدیگر مشکلی ندارند.
+بن‌طالب‌لو گفت: «ساختار حکومت ایران تا حدی دچار شکاف و ضعف شده، اما آنچه باقی مانده نوعی ساختار عمیق حکومتی است که همچنان منسجم است و به نظر می‌رسد بیش از گفت‌وگو، به تقابل تمایل دارد یا دست‌کم به همزمانی تقابل و گفت‌وگو رضایت داده است.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243751
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243751_1780635182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آژانس بین المللی انرژی اتمی روز پنج‌شنبه گزارشی برای کشورهای عضو ارسال کرد که در آن با وجود سه ماه جنگ آمریکا و اسرائیل با هدف اعلام‌شده جلوگیری از ساخت بمب اتمی توسط ایران، هیچ تغییر عمده‌ای در ارزیابی این نهاد از برنامه هسته‌ای ایران دیده نمی‌شود.
+به گزارش رویترز، آژانس بین المللی انرژی اتمی در نخستین گزارش درباره برنامه هسته‌ای ایران از روز قبل از آغاز حملات هوایی آمریکا و اسرائیل به ایران در اواخر فوریه، بار دیگر از تهران خواست توضیح دهد ذخایر اورانیوم غنی‌شده چه سرنوشتی پیدا کرده‌اند.
+این گزارش محرمانه درباره ایران یکی از دو گزارشی بود که روز پنج‌شنبه منتشر شد و رویترز پیش از نشست فصلی هفته آینده شورای حکام ۳۵ عضوی آژانس بین‌المللی انرژی اتمی آن را مشاهده کرده است. این گزارش‌ها نشان می‌دهند که نسبت به گزارش‌های قبلی در اواخر فوریه، درست پیش از آغاز جنگ جدید، تغییر بسیار کمی وجود دارد.
+در این گزارش آمده است: «مدیرکل آژانس تاکید کرده است که اجرای مؤثر توافق پادمان‌های معاهده منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) برای ایران ضروری و فوری است و این اجرای تعهدات تحت هیچ شرایطی نمی‌تواند از سوی ایران تعلیق شود.»
+آژانس بین‌المللی انرژی اتمی نتوانسته است به سایت‌های هسته‌ای که اسرائیل و آمریکا در ژوئن گذشته بمباران کردند بازگردد. ایران هنوز آژانس را از سرنوشت ذخایر اورانیوم کم‌غنی‌شده (LEU) و بسیار غنی‌شده (HEU) خود، از جمله اورانیوم غنی‌شده تا سطح ۶۰ درصد، که تنها یک گام تا حدود ۹۰ درصد مورد نیاز برای تسلیحات هسته‌ای فاصله دارد، مطلع نکرده است.
+در گزارش آمده است: «عدم دسترسی آژانس برای راستی‌آزمایی HEU و LEU اعلام‌شده قبلی، برای نزدیک به یک سال - که بسیار فراتر از رویه‌های استاندارد پادمانی است - موضوعی نگران‌کننده از نظر اشاعه و همچنین پایبندی به توافق پادمان‌های مه اشاعه هسته‌ای است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243750
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243750_1780635183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مدونا، خواننده و هنرمند مشهور آمریکایی، پنجشنبه ۱۴ خرداد با برگزاری یک کنسرت غافلگیرکننده در میدان تایمز نیویورک بار دیگر توجه هواداران را جلب کرد. این اجرای حدود ۱۵ دقیقه‌ای، چند هفته پیش از انتشار آلبوم جدید این خواننده برگزار شد.
+مدونا در جریان این اجرا برای نخستین بار قطعه «احساس عشق» (Love Sensation) از آلبوم جدیدش را اجرا کرد و در بخشی از برنامه خطاب به جمعیت گفت: «آماده‌اید؟ مادر اینجاست.»
+این خواننده ۶۷ ساله با پوشش و حرکات نمایشی روی صحنه، بار دیگر لقب «مادر پاپ» را یادآوری کرد و اجرای او با استقبال و تشویق گسترده هواداران همراه شد.
+آلبوم جدید مدونا که دنباله‌ای بر آلبوم موفق سال ۲۰۰۵ است، قرار است ۱۲ تیر منتشر شود. مدونا پیش‌تر درباره این آلبوم گفته بود: «مردم فکر می‌کنند موسیقی رقص سطحی است، اما کاملا اشتباه می‌کنند؛ پیست رقص فقط یک مکان نیست، بلکه فضایی است که در آن حرکت جایگزین زبان می‌شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243749
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243749_1780635185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شانگهای دیلی، روزنامه رسمی انگلیسی‌زبان شهر شانگهای در چین، چهارشنبه ویدیویی منتشر کرد که نشان می‌دهد یک ربات انسان‌نما در جریان نمایش کونگ‌فو در باغ گیاه‌شناسی ارومچی در منطقه سین‌کیانگ، هنگام اجرای حرکت «لگد پرشی» به شکم یک پسربچه تماشاگر لگد زد و او را نقش زمین کرد. گزارش‌ها حاکی است این کودک در این حادثه آسیب جدی ندید.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243748
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن رضایی، مشاور مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی، روز پنجشنبه ۱۴ خرداد در گفتگو با صداوسیما با انتقاد شدید از توافق و هم‌پیمانی برخی کشورهای منطقه با اسرائیل گفت: «این‌ها نمی‌فهمند اصلا زیربنای کشور خودشان را دارند متزلزل می‌کنند؛ چون رفتند با رژیمی به نام اسرائیل هم‌پیمان شدند که می‌گوید من باید نقشه خاورمیانه را عوض کنم.»
+رضایی با طرح ادعاهای مرزی در منطقه و هشدار به مقامات امارات متحده عربی و کویت افزود: «اگر تفکر نتانیاهو برای تغییر نقشه‌ها را قبول دارید، فردا باید ابوظبی را به عربستان و جزیره بوبیان را به عراق بدهید؟ حرکت در مسیر نقشه‌های خارجی، کل منطقه را دچار نوساناتی می‌کند که به ضرر خود این کشورهاست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243747
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243747_1780635185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معمر الاریانی، وزیر اطلاع‌رسانی یمن، با اشاره به استقبال حوثی‌ها از حملات جمهوری اسلامی به کشورهای عربی خلیج فارس، گفت افزود حوثی‌ها صرفا متحد تهران نیستند، بلکه بخشی از ساختار نظامی، امنیتی و سیاسی فرامرزی حکومت ایران محسوب می‌شوند.
+او گفت ستایش حوثی‌ها از حمله‌های جمهوری اسلامی به تاسیسات غیرنظامی منطقه، ادعاهای این گروه درباره تهدید نبودن برای همسایگان یمن و امنیت کشتیرانی منطقه‌ای را بی‌اعتبار می‌کند.
+الاریانی تاکید کرد حوثی‌ها یمن را به عرصه‌ای برای خدمت به طرح جمهوری اسلامی تبدیل کرده‌اند و با طولانی کردن جنگ، این کشور را وارد درگیری‌هایی می‌کنند که با منافع مردم یمن و امنیت منطقه در تضاد است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243746
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243746_1780635186.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در گفتگو با شبکه المیادین، وابسته به حزب‌الله لبنان، در واکنش به اظهارات اخیر دونالد ترامپ مبنی بر احتمال دیدار با مجتبی خامنه‌ای گفت: «فکر می‌کنم ما باید واقع‌بین باشیم و در دنیای واقعی فکر و زندگی کنیم.»
+این اظهارات پس از آن مطرح شد که دونالد ترامپ پیش‌تر درباره احتمال دیدار با «آیت‌الله جدید» گفته بود اگر توافقی شکل بگیرد، احتمال چنین دیداری وجود دارد.
+با این حال، ترامپ روز پنجشنبه ۱۴ خرداد در گفتگو با خبرنگاران در کاخ سفید گفت تمایلی به دیدار با مجتبی خامنه‌ای ندارد و افزود: «من شخص مورد علاقه او نیستم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس جمهوری آمریکا روز پنجشنبه ۱۴ خرداد در مراسم سرمایه‌گذاری در حوزه انرژی و زغال‌سنگ در کاخ سفید در پاسخ به سوالی درباره احتمال دیدار با «رهبر جدید» جمهوری اسلامی گفت: «من تمایلی به دیدار ندارم، اما اگر دیداری داشته باشم، مایه افتخار خواهد بود که با او ملاقات کنم.»
+
+ترامپ افزود: «دوست دارم ببینم آیا می‌توانیم به یک توافق برسیم یا خیر. اگر به توافقی برسیم، این احتمال وجود دارد که با او دیدار کنم و با این موضوع مشکلی ندارم.»
+
+او همچنین در پاسخ به سوالی درباره اینکه آیا رهبر جدید جمهوری اسلامی ممکن است به دلیل کشته شدن اعضای خانواده‌اش در عملیات «خشم حماسی» تمایلی به دیدار با او نداشته باشد، گفت: «من محبوب‌ترین فرد نزد او نیستم.»
+
+ترامپ در ادامه افزود: «او احتمالا فردی حرفه‌ای است. من او را نمی‌شناسم، اما در برخی محافل شهرت بسیار خوبی دارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243744
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243744_1780635187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جمشید قمی ۶۳ ساله که متهم است هزینه زندگی لوکس خود را از طریق انتقال داده‌ها و تجهیزات پیشرفته و حساس به برنامه هسته‌ای و نظامی ایران تامین کرده،به دستور داگلاس مک‌کورمیک، قاضی دادگاه فدرال آمریکا، بدون امکان آزادی موقت در بازداشت ماند.
+به گزارش نیویورک‌پست، قمی که تابعیت دوگانه ایرانی آمریکایی دارد، روز پنجشنبه تحت اسکورت ماموران مارشال آمریکا، در حالی که دست و پایش در زنجیر بود، با لباس نارنجی زندان وارد دادگاه فدرال سانتا آنا شد.
+ او بامداد چهارشنبه در جریان یورشی که پیش از طلوع آفتاب به عمارت ۳۵ میلیون دلاری‌اش در منطقه حفاظت‌شده نیوپورت کوست انجام شد، بازداشت شده بود.
+دیوید لاخمن، دادستان فدرال، در دادگاه استدلال کرد که قومی هم خطر جدی فرار دارد و هم تهدیدی برای امنیت ملی محسوب می‌شود. او گفت دولت آمریکا حدود ۱۰۰ هزار سند و مدرک علیه او جمع‌آوری کرده است.
+دادستان‌ها اعلام کردند که قومی تا ماه گذشته نیز با همدستان خود در ایران در ارتباط بوده و از اواخر سال ۲۰۲۳ تا زمان بازگشت به آمریکا در پنجم مه، در ایران زندگی می‌کرده است.
+همچنین در دادگاه مطرح شد که همسر قومی نیز شهروند دوتابعیتی ایران و آمریکا است.
+لاخمن با تاکید بر لزوم ادامه بازداشت متهم گفت: «خانواده و ثروت او در ایران است» و او «مقدار نامعلومی پول در ایران در اختیار دارد.»
+او استدلال کرد که اگر قومی به حبس خانگی محکوم شود، می‌تواند پابند الکترونیکی خود را قطع کرده و «به مکزیک فرار کند.
+با این حال، تیم حقوقی قومی خواستار آزادی او با قرار وثیقه و انتقال به حبس خانگی شد. گرگ برنستاین، وکیل او، گفت موکلش قصد ندارد «به منطقه جنگی (ایران) بازگردد.
+دادستان‌ها می‌گویند قومی، مدیر یک شرکت فناوری مستقر در تهران، تجهیزات شبکه و رمزنگاری آمریکایی را در اختیار برنامه هسته‌ای و نهادهای نظامی ایران قرار داده و همزمان میلیون‌ها دلار پول‌شویی کرده و برای پنهان کردن این معاملات با حکومت ایران از روش‌های پیچیده استفاده کرده است.
+بر اساس این ادعاها، او سپس درآمد حاصل از این معاملات غیرقانونی را صرف ساخت عمارت باشکوه خود به سبک توسکانی در منطقه‌ای ساحلی و مشرف به اقیانوس در یکی از گران‌ترین مناطق مسکونی آمریکا کرده است.
+بر اساس اعلام وزارت دادگستری آمریکا، شرکت قومی با نام «فراز پرداز رایانه» بین سال‌های ۲۰۱۷ تا ۲۰۲۳ فناوری مورد نیاز سازمان انرژی اتمی ایران و بین سال‌های ۲۰۱۴ تا ۲۰۲۲ تجهیزات مورد نیاز وزارت دفاع و پشتیبانی نیروهای مسلح جمهوری اسلامی را تامین کرده است
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342639
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342639_1780635187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Donald Trump or Kamala Harris?
+
+Waka Flocka Flame compared the choice to Kobe Bryant vs. LeBron James — and made it clear he'd pick Trump. But the rapper also revealed he's never actually voted.
+
+"I never vote for nobody. Never in my life voted," Waka told Tomi Lahren, explaining that he grew up believing votes didn't matter for people from "the hood, the trenches, the ghetto."
+
+Waka said his support for Trump isn't about agreeing with everything he says or does, adding: "The only thing I learned from Trump was how to delegate my capital and how to structure my business."
+
+Waka also praised Nicki Minaj as "a huge influence on female rappers" and argued critics have targeted her politically, saying after she endorsed Trump, "they want her canceled."
+</div>
+
+## FoxNewsTwitter — post 342638
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Alexandria Ocasio-Cortez declined to weigh in when asked about the growing controversy surrounding Democratic Senate candidate Graham Platner.
+
+The questions came after multiple women accused Platner of abusive behavior and raised concerns about a Totenkopf tattoo — an emblem historically associated with Nazi death camp guards.
+
+One former girlfriend alleged Platner fantasized about rape and violence, while another described what she said were troubling encounters during their relationship. Platner has denied wrongdoing and pushed back on the allegations.
+
+As scrutiny surrounding the candidate intensifies, Ocasio-Cortez repeatedly avoided directly addressing the claims when pressed by reporters.
+</div>
+
+## FoxNewsTwitter — post 342637
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342637_1780635188.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Three of his exes paint the same picture: volatile, reckless, demeaning to women."
+
+Jesse Watters on the latest scandalous allegations against Maine Democratic Senate candidate Graham Platner. https://twitter.com/JesseBWatters/status/2062694583293632738#m
+</div>
+
+## FoxNewsTwitter — post 342636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/politics/hated-women-explosive-abuse-new-nazi-tattoo-allegations-exes-rock-platners-campaign
+</div>
+
+## FoxNewsTwitter — post 342635
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342635_1780635189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A former girlfriend of Maine Democratic Senate candidate Graham Platner is making explosive new allegations, reportedly claiming Platner would sharpen an ax while watching television and ruminate about raping home invaders.
+
+The ex-partner also alleged Platner once pulled her from a taxi by her wrist during an argument, pushed her into a bedroom and held the door shut, and regularly fantasized about killing people he viewed as threats.
+
+She further claimed Platner joked about his Totenkopf tattoo — an emblem associated with Nazi death camp guards — and said members of his military unit chose the symbol because they viewed themselves as a "death unit" of "killers."
+
+Platner has denied wrongdoing, but the allegations are now putting his campaign under intense scrutiny.
+</div>
+
+## VahidOnline — post 75944
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75944_1780635189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از دو منبع در روز جمعه گزارش داد که پایانه نفتی مینا الفحل در عمان پس از وقوع یک انفجار در نزدیکی اسکله‌ها، عملیات بارگیری نفت را متوقف کرده است. به گفته این منابع، انفجار ظاهراً در پی یک حمله پهپادی رخ داده است.
+@VahidHeadline
+AJENews
+هنوز مشخص نیست این حمله دقیقا چه زمانی روی داده است.
+بر اساس داده‌های کشتیرانی ال‌اس‌ای‌جی، روز جمعه چند نفتکش بسیار بزرگ در نزدیکی این بندر لنگر انداخته بودند.
+
+رویترز در ادامه نوشته:‌ رسانه‌های دولتی ایران روز چهارشنبه گزارش دادند جمهوری اسلامی یک کشتی نظامی آمریکا را که «مرکز کنترل و فرماندهی» توصیف شده بود، هنگام نزدیک شدن به آب‌های سرزمینی ایران در دریای عمان هدف قرار داده است، اما ستاد فرماندهی مرکزی آمریکا، سنتکام، این گزارش‌ها را رد کرد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340601
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340601_1780635190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید رسایی، نماینده مجلس، در سخنرانی در تجمع حامیان حکومت گفت: «این جنگ حتما با پیروزی ایران تمام خواهد شد اما مشکل بعد از جنگ است. ممکن است لیبرال‌ها، غربزده‌ها، پشیمان‌ها و مسئولینی که سیستم محاسباتی آنها تغییر کرده، روی کار بیایند و وضع همین خواهد شد.»
+https://iranintl.com/202606054095
+</div>
+
+## IranIntlTV — post 340600
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340600_1780635190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از دو منبع آگاه گزارش داد در پی یک حمله پهپادی و وقوع انفجار در نزدیکی اسکله‌های پهلوگیری پایانه مینا الفحل عمان، بارگیری نفت در این پایانه متوقف شده است. هنوز مشخص نیست این حمله دقیقا چه زمانی روی داده است.
+بر اساس داده‌های کشتیرانی ال‌اس‌ای‌جی، روز جمعه چند نفتکش بسیار بزرگ در نزدیکی این بندر لنگر انداخته بودند.
+رسانه‌های دولتی ایران روز چهارشنبه گزارش دادند جمهوری اسلامی یک کشتی نظامی آمریکا را که «مرکز کنترل و فرماندهی» توصیف شده بود، هنگام نزدیک شدن به آب‌های سرزمینی ایران در دریای عمان هدف قرار داده است، اما ستاد فرماندهی مرکزی آمریکا، سنتکام، این گزارش‌ها را رد کرد.
+
+https://iranintl.com/202606059835
+</div>
+
+## IranIntlTV — post 340599
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340599_1780635191.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهنام بن‌طالب‌لو، مدیر ارشد برنامه ایران در بنیاد دفاع از دموکراسی‌ها، در گفت‌وگو با ای‌بی‌سی نیوز با اشاره به حمله‌های اخیر جمهوری اسلامی به اهداف غیرنظامی در کویت گفت: «جمهوری اسلامی از حمله به همسایه‌ها استفاده تبلیغاتی می‌کند تا بگوید شکست نخورده است.»
+او افزود: با وجود اصطلاح آتش‌بس، جمهوری اسلامی و حتی تا حدی آمریکا، با شلیک به یکدیگر یا به منافع یکدیگر مشکلی ندارند.
+بن‌طالب‌لو گفت: «ساختار حکومت ایران تا حدی دچار شکاف و ضعف شده، اما آنچه باقی مانده نوعی ساختار عمیق حکومتی است که همچنان منسجم است و به نظر می‌رسد بیش از گفت‌وگو، به تقابل تمایل دارد یا دست‌کم به همزمانی تقابل و گفت‌وگو رضایت داده است.»
+
+https://iranintl.com/202606059804
+</div>
+
+## IranIntlTV — post 340598
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340598_1780635191.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معمر الاریانی، وزیر اطلاع‌رسانی یمن، با اشاره به استقبال حوثی‌ها از حملات جمهوری اسلامی به کشورهای عربی خلیج فارس، گفت افزود حوثی‌ها صرفا متحد تهران نیستند، بلکه بخشی از ساختار نظامی، امنیتی و سیاسی فرامرزی حکومت ایران محسوب می‌شوند.
+او گفت ستایش حوثی‌ها از حمله‌های جمهوری اسلامی به تاسیسات غیرنظامی منطقه، ادعاهای این گروه درباره تهدید نبودن برای همسایگان یمن و امنیت کشتیرانی منطقه‌ای را بی‌اعتبار می‌کند.
+الاریانی تاکید کرد حوثی‌ها یمن را به عرصه‌ای برای خدمت به طرح جمهوری اسلامی تبدیل کرده‌اند و با طولانی کردن جنگ، این کشور را وارد درگیری‌هایی می‌کنند که با منافع مردم یمن و امنیت منطقه در تضاد است.
+
+https://iranintl.com/202606043296
+</div>
+
+## FarsiVOA — post 219639
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned an audio file
+</div>
+
+## FarsiVOA — post 219638
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219638" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری پنجشنبه ۱۴خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما را هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## FarsiVOA — post 219637
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219637_1780635192.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری رویترز به نقل از دو منبع در روز جمعه گزارش داد که پایانه نفتی مینا الفحل در عمان پس از وقوع یک انفجار در نزدیکی اسکله‌ها، عملیات بارگیری نفت را متوقف کرده است. به گفته این منابع، انفجار ظاهراً در پی یک حمله پهپادی رخ داده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: تولید انرژی اهمیت بسیاری دارد از جمله برای پیشرو بودن در عرصه «هوش مصنوعی»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ در مراسم «زغال سنگ زیبا و تمیز»: جمهوری اسلامی بمب هسته‌ای نخواهد داشت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ در مراسم «زغال سنگ زیبا و تمیز»: تولید نفت آمریکا از عربستان و روسیه بیشتر است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پوشش ویژه | سخنان دونالد ترامپ در مراسم «زغال سنگ زیبا و تمیز» در کاخ سفید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ می‌گوید پس از گفت‌وگوی او با اسرائیل و حزب‌الله، هر دو در مسیر پایان دادن به درگیری «پیشرفت» کرده‌اند
+
+▪️رئیس‌جمهوری آمریکا، دونالد ترامپ اعلام کرد که معتقد است اسرائیل و گروه شبه‌نظامی حزب‌الله لبنان، پس از گفت‌وگوهایی که او در روزهای اخیر با هر دو طرف داشته است، در مسیر پایان دادن به درگیری طولانی‌مدت خود «پیشرفت» کرده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157631.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دلایل و پیامدهای بازماندن کودکان ایران از تحصیل؛ گفت‌وگو با رقیه رضایی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تغییرات اقلیمی و بحران جهانی محیط زیست
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویژگی‌های شخصیتی مرجان ساتراپی؛ گفت‌وگو با هلن همتی از دوستان نزدیک مرجان ساتراپی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15720
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15720_1780635193.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر 🌄
+J-35 Blue Shark
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157908
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157908_1780635194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور ایالات متحده بار دیگر تأکید کرد که ایران نمی‌تواند سلاح هسته‌ای داشته باشد.
+
+🔸دونالد ترامپ که در کاخ سفید با خبرنگاران صحبت می‌کرد، گفت برای گرفتن اورانیوم غنی‌شدۀ ایران، دستیابی به توافق الزامی نیست.
+اگر بخواهیم می‌توانیم همین الان این ذخیره را از ایران خارج کنیم. ولی دلیلی برای این‌کار وجود ندارد. آنها مدفون شده‌اند.
+
+🔸او در عین حال، در پاسخ به سوالی دربارۀ احتمال دیدار رو در رو با رهبر جمهوری اسلامی گفت: «من نمی‌خواهم ملاقات کنیم، اما اگر دو کشور به توافق برسند، امکانش خواهد بود». رئیس‌جمهور آمریکا ادامه داد «اگر این اتفاق بی‌افتد، برخورد من محترمانه خواهد بود».
+
+🔸دونالد ترامپ با اشاره به افزایش نسبی تنش در منطقه خلیج فارس طی روزهای اخیر گفت: «اگر سربازان آمریکایی را کشته بودند، دلیل خوبی برای آغاز مجدد درگیری داشتیم».
+
+🔸رئیس‌جمهور آمریکا تأکید کرد که چه از راه نظامی باشد و چه روی کاغذ [از راه توافق]، «ما پیروز خواهیم شد».
+
+🔸دونالد ترامپ بازگشایی فوری تنگۀ هرمز را یکی از ارکان اصلی توافق احتمالی توصیف کرد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157907
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157907" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۱۵ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21402
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21402_1780635195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایشون سردار غلامرضا جلالی رئیس سازمان پدافند غیرعامل جمهوری اسلامی هستن
+
+فقط سردارو‌ با جرثقیل جا به جا میکنن؟
+
+@IranianMinds
+</div>
+
+## alonews — post 125193
+
+<div align="center">
+  <a href="telegram/content/alonews_125193_1780635195.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر جدید و اختصاصی CNN خسارت وارده به ناو هواپیمابر USS Gerald R. Ford (CVN-78) پس از یک «آتش‌سوزی در بخش لباسشویی» روی این کشتی را نشان می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125192
+
+<div align="center">
+  <a href="telegram/content/alonews_125192_1780635196.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران:
+«یادداشت تفاهم در مرحله نهایی خود قرار دارد و در انتظار موضع نهایی، چه مثبت و چه منفی، است.
+
+
+🔴تا این لحظه هنوز در تهران تصمیم نهایی اتخاذ نشده و واشنگتن در حال انتظار است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 03:46
 ---
 
