@@ -7,6 +7,567 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 02:16
+---
+
+## VahidOOnLine — post 244010
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244010_1780785987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فداحسین مالکی، عضو کمیسیون امنیت ملی مجلس، به تابناک گفت: «حتی اگر توافقی بین جمهوری اسلامی و آمریکا حاصل شود، با توجه به شرایط موجود و رفتارهای متناقض آمریکا، این توافق در مرحله نخست توافقی محدود و نیم‌بند خواهد بود و مسیر گفت‌وگوها در مراحل بعدی ادامه خواهد یافت.»
+او گفت: «رفتار‌های متناقض واشنگتن از یک سو با طرح مذاکره و از سوی دیگر با اقدامات نظامی، فضای گفت‌و‌گو‌ها را پیچیده کرده است. میز مذاکره همچنان برقرار است، اما طرف ایرانی به دلیل بی‌اعتمادی به آمریکا، رغبت چندانی برای پیشبرد مذاکرات نشان نمی‌دهد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244009
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244009_1780785987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️چند روز پس از گزارش اختصاصی ایندیپندنت فارسی درباره صدور نوعی مجوز ورود بسیار محدود و کوتاه‌مدت برای تیم ملی فوتبال ایران، خبرگزاری فرانسه گزارش داد، ابوالفضل پسندیده، سفیر جمهوری اسلامی در مکزیک به خبرنگاران گفته است بر اساس شروط تعیین‌شده برای ویزای اعضای تیم ملی، بازیکنان و کادر فنی تنها در روز برگزاری مسابقات خود اجازه ورود به خاک ایالات متحده را دارند و باید بلافاصله پس از پایان بازی، این کشور را ترک کنند. این محدودیت سخت‌گیرانه در شرایطی ابلاغ شده است که کاروان تیم ملی ایران روز شنبه، تحت سایه یک بحران دیپلماتیک شدید میان تهران و واشنگتن، اردوی تمرینی خود در ترکیه را به مقصد مقر جدید خود در شهر تیخوانای مکزیک ترک کرد. براساس این گزارش، با توجه به اینکه هر سه بازی مرحله گروهی ایران قرار است در خاک آمریکا برگزار شود، این اولین بار در تاریخ جام جهانی است که یک کشور میزبان، پذیرای تیم ملی کشوری می‌شود که با آن در وضعیت جنگی قرار دارد.
+این دستورالعمل جدید واشنگتن در تضاد کامل با اظهارات قبلی امیرمهدی علوی، سخنگوی تیم ملی قرار دارد که پیش‌تر مدعی شده بود ویزاها «چندبار ورود» هستند و تیم یک یا دو روز پیش از مسابقات به محل بازی‌ها خواهد رسید. پیش از این نیز ایالات متحده از صدور ویزا برای ۱۵ نفر از همراهان و کادر مدیریتی تیم خودداری کرد و سفارت ایران در ترکیه با «تبعیض‌آمیز» خواندن این رفتار، از فیفا خواسته است تا آمریکا را به دلیل نقض صریح قوانین جام جهانی، که شامل ضرورت حضور سرمربی در کنفرانس مطبوعاتی یک روز پیش از بازی است، پاسخگو کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244008
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244008_1780785988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تالاب پریشان، به عنوان یکی از بزرگ‌ترین تالاب‌های آب شیرین ایران، در حالی شانزدهمین سال خشکی مداوم خود را سپری می‌کند که به گفته لاهیجان‌زاده، معاون سازمان حفاظت محیط‌زیست، برداشت بی‌رویه آب توسط ۴۹۰ چاه غیرمجاز و همچنین فراتر از ظرفیت چاه‌های مجاز منطقه، رمقی برای احیای آن باقی نگذاشته است. بحرانی که مسئولان مربوطه تاکید دارند تا زمان تعیین‌تکلیف نهایی این چاه‌ها و توقف دزدی آب از حق‌آبه محیط‌زیستی، هرگونه تلاش برای احیای این تالاب بین‌المللی عملا ناممکن خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244007
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244007_1780785989.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری رویترز به نقل از یک منبع آگاه، روز شنبه گزارش داد، ایالات متحده در نظر دارد دارایی‌های مسدود شده ایران را در اختیار متحدان خود در حاشیه خلیج فارس قرار دهد تا از آن برای «بازسازی و جبران خسارت‌های احتمالی آینده و همچنین صدمات گذشته ناشی از اقدامات ایران» استفاده شود. در همین راستا، این منبع اعلام کرده است که اسکات بسنت، وزیر خزانه‌داری آمریکا، به تیمی ماموریت داده تا میزان خسارت‌هایی را که تاکنون از سوی ایران به متحدان منطقه‌ای واشنگتن وارد شده است، برآورد و ارزیابی کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: اسرائیل پرسنل نظامی و اطلاعاتی خود را به‌صورت پنهانی در طول درگیری با ایران به جمهوری آذربایجان اعزام کرده @withyashar
+</div>
+
+## WithYashar — post 13658
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13658_1780785990.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : خدای‌دریا
+@withyashar
+</div>
+
+## WithYashar — post 13657
+
+
+
+
+## WithYashar — post 13656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار در حوالی سیریک🚨
+@withyashar
+</div>
+
+## pm_afshaa — post 92421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رومن گافمن، رئیس موساد، معاون اول خود را برکنار کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقدر همه ی اخبار شبیه قبل موج دوم جنگه
+</div>
+
+## pm_afshaa — post 92419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=141.95.135.243&port=443&secret=ddfb2ebf06b1c708b06f46137a4faed9be
+
+پروکسی مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهدید رسمی سپاه به کشورهای خلیج فارس: اجازه ندهید آمریکا در کشور شما پایگاه تأسیس کند چون روزی آن‌ها خواهند رفت و شما و ما باقی خواهیم ماند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی پر سرعت مخصوص دانلود
+
+https://t.me/proxy?server=116.202.35.160&port=25565&secret=FgMBAgABAAH8AxOG4kw63Q
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2659
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2659_1780785993.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نصب خودکار داکر روی سرورهای ایران
+
+اگر روی سرورهای داخل ایران داکر نصب می‌کنید، حتماً می‌دانید که به خاطر تحریم‌ها و اختلالات شبکه، باز کردن مخازن داکر و دانلود ایمیج‌ها مکافات است. این اسکریپت متن‌باز و امن، کل فرآیند نصب داکر را خودکار کرده و در انتها به شما اجازه می‌دهد از بین ۶ میرور ایرانی (ابرآروان، داکر آی‌آر، لیارا و...) بهترین را برای رفع تحریم انتخاب کنید.
+
+
+💻 روش اجرا: کد زیر رو کپی کنید و در سرور اجرا کنید:
+
+curl -fsSL https://gist.githubusercontent.com/ShahinDadashpour/35892443c09d582e53b36d09fb5a5df6/raw/install-docker.sh | sudo bash
+
+
+🔗 لینک سورس کد در گیت‌هاب جهت بررسی
+
+
+🆔 @iAghapour
+</div>
+
+## IranIntlTV — post 340896
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340896" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: جمهوری‌اسلامی؛ کنسرسیوم جنایتکاران، فاسدان و اشغالگران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340895
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340895_1780785995.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوان عالی کشور حکم اعدام پنج زندانی سیاسی محبوس در زندان شیبان اهواز را تایید کرد. سه تن از این زندانیان، مسعود جامعی، علیرضا مرداسی و فرشاد اعتمادی‌فر، به اتهام افساد فی‌الارض و عضویت در گروه‌های مخالف جمهوری اسلامی به اعدام محکوم شده‌اند.
+
+گفت‌وگو با رقیه رضایی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 340894
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340894_1780785998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فداحسین مالکی، عضو کمیسیون امنیت ملی مجلس، به تابناک گفت: «حتی اگر توافقی بین جمهوری اسلامی و آمریکا حاصل شود، با توجه به شرایط موجود و رفتارهای متناقض آمریکا، این توافق در مرحله نخست توافقی محدود و نیم‌بند خواهد بود و مسیر گفت‌وگوها در مراحل بعدی ادامه خواهد یافت.»
+او گفت: «رفتار‌های متناقض واشنگتن از یک سو با طرح مذاکره و از سوی دیگر با اقدامات نظامی، فضای گفت‌و‌گو‌ها را پیچیده کرده است. میز مذاکره همچنان برقرار است، اما طرف ایرانی به دلیل بی‌اعتمادی به آمریکا، رغبت چندانی برای پیشبرد مذاکرات نشان نمی‌دهد.»
+
+https://iranintl.com/202606063723
+</div>
+
+## IranIntlTV — post 340893
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340893_1780785999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی به جنایت به‌عنوان روشی برای تحکیم و ماندگاری نظام نگاه می‌کند. جنایت، جزیی از روش بقای حکومت است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340892
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340892_1780786003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خراتیان، کارشناس وابسته به حکومت، در گفت‌وگو با محمد فاضلی، جامعه‌شناس، در برنامه «ایران‌تاک»، با رد پایگاه اجتماعی شاهزاده رضا پهلوی در اعتراضات ۱۸ و ۱۹ دی‌ماه ۱۴۰۴، این اعتراضات را ناشی از افزایش قیمت روغن و سایر محصولات دانست.
+
+او در ادامه افزود ما دقیق اطلاع داریم که لیدرهای اعتراضات، جمعیت را طوری هُل می‌دادند که سپر انسانی مقابل ماموران جمهوری اسلامی شوند.
+
+خراتیان در این گفت‌وگو اذعان می‌کند که حدود ۱۰۰ شهر در آستانه سقوط بودند یا سقوط کردند و برخی فرمانداری‌ها نیز به‌راحتی سقوط کردند. به گفته او، بعد از آن نیروهای یگان ویژه وارد شدند و تعداد کشته‌شدگان افزایش یافت.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340891
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340891_1780786005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های حکومتی در ایران گزارش دادند وزیر کشور پاکستان برای تحویل نامه‌ای ویژه از سوی رییس ستاد کل ارتش و نخست‌وزیر این کشور به مجتبی خامنه‌ای به تهران رفته است.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340890
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340890_1780786008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی از همان روزهای نخست شکل‌گیری با خشونت و سرکوب همراه بود و این خشونت‌ها بخش مهمی از هویت سیاسی آن است. از آتش زدن سینما رکس آبادان تا اعدام‌های اوایل انقلاب، سپس کشتار زندانیان در سال ۶۷ و کشتارهای اخیر خیابانی، همگی نشانگر وجود عنصر قوی جنایت در ساختار نظام سیاسی جمهوری اسلامی است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340889
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340889_1780786012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه تجمع اعتراضی ایرانیان در واشینگتن، سیامک آرام، برگزارکننده، به اردوان روزبه، خبرنگار ایران‌اینترنشنال، گفت: «مبارزه یک امر مستمر است و باید ادامه پیدا کند. بخش مهمی از این مبارزه، آگاهی‌رسانی است. اگر می‌خواهیم همراهی مردم کشورهای مختلف، افکار عمومی، رسانه‌ها و سیاستمداران را داشته باشیم، باید آن‌ها را نسبت به اهمیت این موضوع آگاه کنیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340888
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340888_1780786014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «زمان به نفع جمهوری اسلامی نمی‌گذرد؛ هرچه تصمیم‌گیری درباره توافق بیشتر به تعویق بیفتد، هزینه‌ها برای جمهوری اسلامی سنگین‌تر می‌شود.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15827
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15827_1780786017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گاردین در گزارشی با اشاره به وضعیت شکننده ایران پس از جنگ، نوشت جمهوری اسلامی خود را برای دوره‌ای از «صلحِ پرتنش» آماده می‌کند؛ دوره‌ای که به‌گفته تحلیلگران می‌تواند با بحران‌های هم‌زمان اقتصادی، ساختاری و اجتماعی همراه باشد. در این گزارش تأکید شده که حتی در صورت رسیدن به توافق یا کاهش تنش‌ها، مشکلاتی مانند ابرتورم، قطعی‌های مکرر برق، رکود اقتصادی و نارضایتی‌های عمومی همچنان پابرجا خواهند ماند و فشار بیشتری بر جامعه وارد خواهند کرد.
+
+به‌نوشته گاردین، شرایط امروز ایران از جهات مختلف از فضای پیش از جنگ هم دشوارتر شده و همین موضوع نگرانی‌ها درباره بروز ناآرامی‌های تازه را افزایش داده است. این روزنامه همچنین گزارش داده که در سطوحی از ساختار قدرت، بحث‌هایی درباره آینده کشور در جریان است و حاکمان ایران به‌خوبی می‌دانند که مسئله اصلی فقط عبور از جنگ نیست، بلکه حفظ ثبات و کنترل در دوران پس از آن است.
+
+جمله محوری گزارش این است که ایران، حتی اگر از مرحله درگیری مستقیم عبور کند، همچنان با مجموعه‌ای از بحران‌های درهم‌تنیده روبه‌رو خواهد بود؛ بحران‌هایی که می‌توانند نارضایتی اجتماعی را عمیق‌تر و چشم‌انداز سیاسی کشور را پیچیده‌تر کنند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا در فکر بالاکشیدن اموال ایران برای بازسازی کشورهای عربی
+</div>
+
+## IranianMinds — post 21528
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21528_1780786018.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تظاهرات بزرگ ایرانیان مقیم آلمان در شهر دوسلدورف، شنبه ۱۶ خرداد ۱۴۰۵.
+همصدا با مردم دلیر ایران و صدای بی‌صدای زندانیان در ایران.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر جمهوری اسلامی در مکزیک اعلام کرد:
+
+تیم فوتبال جمهوری اسلامی ایران اطلاع یافته که باید در همان روز مسابقه وارد خاک آمریکا بشود و پس از پایان بازی، از خاک آمریکا خارج و به مکزیک برگردد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283005
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283005_1780786022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سفیر ایران در مکزیک گفته است که تیم ملی فوتبال ایران برای حضور در مسابقات جام جهانی ملزم شده است در روز برگزاری هر مسابقه وارد خاک آمریکا شود و همان روز هم خاک آن کشور را ترک کند.
+
+ابوالفضل پسندیده، روز شنبه به خبرنگاران گفت: «ما می‌توانیم صبح وارد آمریکا شویم، اما باید همان روز خاک این کشور را ترک کنیم.»
+
+در پی تنش‌ها و درگیری‌های جاری میان آمریکا و ایران، محل استقرار تیم ملی ایران از شهر توسان در ایالت آریزونا به تیخوانا در مکزیک منتقل شده است.
+
+اعضای تیم ملی ایران ساعاتی پیش ترکیه را به مقصد مکزیک ترک کردند.
+
+📸AFP via Getty Images
+https://bbc.in/4odjwZr
+@BBCPersian
+</div>
+
+## BBCPersian — post 283004
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283004_1780786023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک عضو هیئت رئیسه مجلس ایران گفته است که «قانونگذاری» درباره تنگه هرمز در «صلاحیت مجلس» است.
+
+علیرضا سلیمی گفت که «تنگه هرمز بخشی از قلمرو حاکمیتی ایران» محسوب می‌شود و در زمره «آب‌های آزاد قرار ندارد»؛ بنابراین وضع هرگونه قانون و مقررات در این محدوده، تنها در «صلاحیت مجلس» است.
+
+او در واکنش به برخی انتقادها درباره صلاحیت مجلس برای قانون‌گذاری درباره تنگه هرمز گفت: «ای کاش برخی به جای تخریب و توهین، با مطالعه سخن گویند تا دچار چنین اشتباهاتی نشوند.»
+
+این عضو هیأت رئیسه مجلس افزود هدف مجلس این است که «چارچوب اعمال حاکمیت ایران بر این آبراه راهبردی را در قالب قانون مشخص و مدون کند.»
+
+آقای سلیمی همچنین با اشاره به این که نحوه بررسی این طرح در مجلس، اعم از عادی یا فوری بودن آن، موضوعی جداگانه است، گفت اما «زیر سؤال بردن اصل حق قانون‌گذاری مجلس درباره تنگه هرمز، رویکردی منصفانه نیست.»
+
+ایران از زمان شروع جنگ در ۲۸ فوریه (نهم اسفند ۱۴۰۴) تنگه هرمز را به روی عبور و مرور کشتی ها بسته است.
+📸GettyImages
+https://bbc.in/4fqL9vW
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A16 
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391184
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391184_1780786025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A16
+
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391183
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391183_1780786026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مدرسه دیگر در کنار پایگاه نظامی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏پاکستان برا چی اعتراض میکنن؟ حموم اجباری شده؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینکارا خوب نیست ادامه بدید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391178
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391178_1780786026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لعنت بهت فکر کردم لاکپشته🐢
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده شده در تجمعات شبانه عرزشی‌ها
+سرباز صفرم هست امشب قراره صفر0شو آزاد کنن درجه بگیره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391176
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391176_1780786031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من 12 ساله وقتی خودمو به خواب میزدم که بابام از ماشین تا اتاقم بغلم کنه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکسای امروز آنا د آرمس مخصوص فوت فتیشا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391173
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391173_1780786031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمویم قیصر!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391172
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391172_1780786032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 محسن عراقی، خواننده حکومتی، خطاب به جمهوری اسلامی:
+
+تو رستم تهمتنی چرا دیگه نمیزنی؟
+تو شیر پیل افکنی چرا دیگه نمیزنی؟
+برنده‌ی صد درصدی، چرا دیگه نمیزنی؟
+خدایی تویی که انقدره خوب میزدی، چرا دیگه نمیزنی؟
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125664
+
+<div align="center">
+  <img src="telegram/content/alonews_125664_1780786038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐نامحدود فقط 90 تومن 😍
+فقط ۵۰ نفر اول 
+❤️
+
+
+✅با سابقه ۵ سال فعالیت مداوم
+
+🛡حتی بدون قطعی تو دوران جنگ
+
+بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 
+🚀
+
+ما چی؟ 
+💯
+💥 VPN نامحدود واقعی فقط 90 تومن
+🏷️
+
+
+💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+## alonews — post 125663
+
+<div align="center">
+  <a href="telegram/content/alonews_125663_1780786038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران:
+پیش‌نویس یادداشت تفاهم ایران و آمریکا در اختیار نهادی در تهران قرار دارد تا در آن بررسی شود.
+
+
+🔴این پیش‌نویس برای اینکه بدون مشکل به سمت اعلام توافق پیش برود، به آرای اکثریت مطلق نیاز دارد.
+
+
+🔴ممکن است در اواسط هفته شاهد تحولاتی استثنایی باشیم؛ البته به شرطی که دولت آمریکا مانند دو هفته پیش که تشریفات اعلام توافق آماده بود، در لحظه آخر نظرش را تغییر ندهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125662
+
+<div align="center">
+  <a href="telegram/content/alonews_125662_1780786039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کنعانی: حاضریم تو زمین بمیریم اما پرچم جمهوری اسلامی بالا باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 01:03
 ---
 
