@@ -7,6 +7,2948 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 17:55
+---
+
+## VahidOOnLine — post 244118
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244118_1780842333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «موضوع اصلی این است که آمریکایی‌ها باید حقوق جمهوری اسلامی را به رسمیت بشناسند، از جمله حق غنی‌سازی صلح‌آمیز هسته‌ای در چارچوب معاهده منع گسترش سلاح‌های هسته‌ای.»
+
+به گزارش رسانه‌های ایران، بقایی در واکنش به موضع آمریکا درباره دارایی‌های بلوکه شده، گفت: «در حالی که درباره دارایی‌های بلوکه‌شده ما صحبت می‌کنند، حاضر نیستند هیچ امتیازی در این زمینه بدهند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244117
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244117_1780842334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس جمهوری آمریکا روز یکشنبه ۱۶ خرداد در مصاحبه با ان‌بی‌سی گفت نمی‌خواهد درباره اینکه از محل حضور مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی اطلاعی دارد صحبت کند، اما تاکید کرد که «احتمال بالایی وجود دارد که بداند او کجا است.» ترامپ بار دیگر گفت که مجتبی خامنه‌ای به‌شدت مجروح شده است.
+
+ از زمان انتصاب مجتبی خامنه‌ای به مقام رهبری در اسفند ماه سال گذشته، هیچ صدا و تصویری از او منتشر نشده است.
+مارکو روبیو، وزیر امور خارجه و پیت هگست، وزیر دفاع آمریکا چند مرتبه تاکید کرده‌اند که مجتبی خامنه‌ای در جریان بمباران بیت رهبر در روز نخست جنگ به‌شدت آسیب دیده است. پیت هگست در هفته چهارم جنگ گفته بود که مجتبی خامنه‌ای «از ریخت و قیافه افتاده است».
+
+مارکو روبیو، وزیر خارجه دولت ترامپ هفته گذشته و در کمیته روابط خارجی کنگره آمریکا گفت مطمئنا مجتبی خامنه‌ای زنده است و نقش او در تصمیم‌گیری‌ها افزایش یافته است.
+
+رهبران آمریکا و اسرائیل در هفته دوم جنگ و در حالیکه شورای نگهبان برای انتصاب جایگزین خامنه‌ای تلاش می‌کرد، اعلام کرده بودند که هرکسی جانشین رهبر جمهوری اسلامی شود، کشته خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244116
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244116_1780842335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد ایرانیان مقیم بریتانیا یکشنبه ۱۷ خرداد علیه جمهوری اسلامی و در اعتراض به اعدام‌ها در ایران، در شهر شفیلد تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244115
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244115_1780842337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر مشاور در وزارت خارجه قطر در تماس تلفنی با وزیر خارجه سوریه، درباره تلاش‌های میانجی‌گرانه میان واشینگتن و تهران گفت‌وگو کرد.
+
+وزارت خارجه قطر در ایکس نوشت: «در این تماس درباره راه‌های تعمیق و گسترش همکاری‌های دوجانبه و همچنین تحولات جاری در سوریه و تلاش‌های میانجی‌گرانه میان ایالات متحده آمریکا و جمهوری اسلامی بحث و تبادل نظر شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244114
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244114_1780842338.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بخشی از گورستان تاریخی دارالسلام شیراز عصر روز شنبه ۱۶ خردادماه دچار آتش‌سوزی شد.
+
+به گزارش خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی،  هادی عیدی‌پور، رئیس سازمان آتش‌نشانی شیراز گفت این حادثه خسارت جدی در پی نداشته است.
+
+بر اساس گزارش‌ها، این حریق بر اثر آتش گرفتن علف‌های خشک و هرز در محدوده‌ای حدود دو هزار مترمربع رخ داد و با اعزام سریع نیروهای ایستگاه ۱۹ آتش‌نشانی، در کوتاه‌ترین زمان مهار شده است. با این حال، بررسی‌ها برای تعیین دقیق ابعاد حادثه ادامه دارد.
+
+ دارالسلام، یکی از کهن‌ترین گورستان‌های ایران در شیراز است که قدمت آن به قرون اولیه اسلامی و حتی پیش از آن نسبت داده می‌شود و محل دفن بسیاری از چهره‌های علمی و فرهنگی بوده است.
+
+حدود یک سال پیش در مرداد ۱۴۰۴، تصاویری از سنگ‌قبرهای شکسته و به آتش کشیده‌شده گورستان دارالسلام شیراز منتشر شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244113
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244113_1780842339.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ رئیس جمهوری ایالات متحده درمصاحبه با شبکه ان‌بی‌سی نیوز(NBC News) اعلام کرد تمایلی ندارد لبنان در توافق کوتاه‌مدت احتمالی میان آمریکا و ایران گنجانده شود.
+
+ترامپ در این مصاحبه که روز یکشنبه ۱۷ خردادماه پخش شد تأکید کرد هیچگونه لغو تحریم یا آزادسازی دارایی‌های مسدودشده ایران پیش از دستیابی به توافق انجام نخواهد شد.
+
+
+
+رئیس جمهوری آمریکا گفت که «در صورت پایبندی ایران به تعهدات و «رفتار مناسب»، امکان آغاز گفتگوها و بررسی اقدامات بعدی وجود خواهد داشت.
+
+مقام‌های جمهوری اسلامی می‌گویند باید دست‌کم نیمی از دارایی‌های مسدود شده ایران پیش از امضای هر توافقی آزاد شود.
+
+ترامپ در همین مصاحبه گفت در صورت دستیابی به توافق، آمریکا با ایران برای جمع‌آوری و نابودی ذخایر اورانیوم با غنای بالا همکاری خواهد کرد.
+
+رئیس‌جمهوری آمریکا در عین حال هشدار داد در صورت شکست مذاکرات، واشینگتن فشار نظامی بر ایران را افزایش خواهد داد تا بتواند به‌طور مستقیم این مواد را تحت کنترل درآورد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244112
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244112_1780842339.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به ان‌بی‌سی نیوز گفت که خواستار آن نیست لبنان بخشی از توافق کوتاه‌مدت با ایران باشد.
+
+او افزود که خواهان اضافه شدن بندی جدید به توافق است تا ایران نتواند با خرید سلاح هسته‌ای یا تجهیزات مرتبط، محدودیت‌های توافق را دور بزند.
+
+دونالد ترامپ گفت: «پرسیدم اگر آنها خودشان سلاح هسته‌ای تولید نکنند اما آن را خریداری یا به هر شکلی به دست آورند چه؟ من می‌خواهم در متن توافق عبارت خرید، تهیه یا کسب سلاح نیز گنجانده شود. آنها نه حق تولید سلاح هسته‌ای را دارند و نه حق خرید یا دستیابی به آن را.»
+
+او اضافه کرد که تهران در ابتدا با این درخواست مخالفت کرد اما از موضع خود عقب نشست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244111
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244111_1780842340.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنرانی «من رویایی در سر دارم» مارتین لوتر کینگ جونیور، یکی از برجسته‌ترین نمونه‌های قدرت کلام در سیاست و تاریخ معاصر است.
+
+اهمیت این سخنرانی فقط در موضوع تبعیض نژادی یا تاریخ آمریکا خلاصه نمی‌شود، بلکه در این است که نشان داد یک سخنرانی می‌تواند مطالبه عدالت را از سطح اعتراض روزمره به سطح یک افق اخلاقی و جهانی برساند.
+
+لوتر کینگ با زبانی شاعرانه، روشن و عمیقا انسانی، سیاست را به پرسشی درباره کرامت، برابری و آینده مشترک انسان‌ها تبدیل کرد. «من رویایی در سر دارم» یادآور این است که سخن سیاسی، وقتی با ایمان به عدالت و امید به تغییر همراه شود، می‌تواند از مرز زمان و مکان فراتر برود و الهام‌بخش نسل‌هایی باشد که هنوز برای آزادی و برابری مبارزه می‌کنند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244110
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244110_1780842344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه ان‌بی‌سی نیوز گفت که اصراری ندارد لبنان در توافق کوتاه‌مدت میان واشینگتن و تهران گنجانده شود.
+
+او همچنین گفت که به‌عنوان بخشی از هرگونه توافق، دارایی‌های مسدودشده ایران را از ابتدا آزاد نخواهد کرد و هیچ تحریمی را نیز پیشاپیش لغو نخواهد کرد.
+
+دونالد ترامپ در پاسخ به این پرسش که آیا این اقدامات پس از توافق انجام خواهد شد، گفت: «بله، بعد از آن. اگر رفتار مناسبی داشته باشند و به تعهدات خود عمل کنند، آن وقت گفت‌وگو را آغاز می‌کنیم.»
+
+او اضافه کرد اگر بتواند با تهران برای پایان دادن به جنگ سه‌ماهه میان دو کشور به توافق برسد، آمریکا با ایران برای جمع‌آوری و نابودی ذخایر اورانیوم با غنای بالای این کشور همکاری خواهد کرد.
+
+دونالد ترامپ افزود در صورت عدم دستیابی به توافق، واشینگتن توان نظامی جمهوری اسلامی را بیش از پیش تضعیف خواهد کرد تا نیروهای آمریکایی بتوانند با امنیت کامل این مواد را خودشان جمع‌آوری کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244109
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244109_1780842344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع اسرائیلی به اسکای‌نیوز عربی گفت که هدف حمله به ضاحیه، در حومه جنوبی بیروت، یک مقر وابسته به حزب‌الله بوده و این حمله فرد مشخصی را هدف قرار نداده است.
+
+پیش‌تر بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل اعلام کردند که دستور حمله به ضاحیه بیروت را صادر کرده‌اند.
+
+کاتز گفت حمله به ضاحیه در پاسخ به شلیک حزب‌الله به سمت خاک اسرائیل انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244108
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244108_1780842345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئوی ارسالی یک گزارشگر منوتو درباره تورم و تجمعات حکومتی
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244107
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244107_1780842347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خامنه‌ای صبح ۹ اسفند ۱۴۰۴ و در لحظات آغاز جنگ، با حمله به دفترش در قلب تهران، به همراه چندین نفر از فرماندهان ارشد نظامی، برخی مقام‌های سیاسی و اعضای دفترش کشته شد.
+
+در سال‌های اخیر و پس از گسترش حملات اسرائیل به مقام‌های حکومت ایران و فرماندهان و رهبران نیروهای نیابتی جمهوری اسلامی در منطقه، علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، نمازهای میت زیادی خوانده بود.
+
+در واقع یکی از بیشترین فعالیت‌های او همین اقامه نماز میت بر جنازه کشته‌شدگان بود، در حدی که برخی کاربران شبکه‌های اجتماعی به خامنه‌ای لقب «بلاگر نماز میت» دادند. حالا اما جنازه خود او ۱۰۰ روز شده که بر زمین مانده است.
+
+حکومت جمهوری اسلامی ۱۰۰ روز پس از واقعه، نه موفق شده تصویری از رهبر جدیدش نشان دهد و نه جنازه رهبر پیشین را دفن کند.
+
+متن کامل را در سایت ایران‌اینترنشنال را بخوانید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244106
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244106_1780842348.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم مونیخ در آلمان شنبه ۱۶ خرداد پرفورمنسی را علیه اعدام‌های جمهوری اسلامی اجرا کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244105
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244105_1780842351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فرانسه با انتشار ویدیویی گزارش داد هواپیمای حامل اعضای تیم ملی فوتبال ایران بامداد یکشنبه در شهر مرزی تیخوانا در مکزیک به زمین نشست؛ شهری که قرار است محل استقرار ملی‌پوشان ایران در جریان رقابت‌های جام جهانی ۲۰۲۶ باشد.
+ورود کاروان ایران به مکزیک پس از آن انجام شد که موضوع صدور ویزا برای اعضای تیم ملی و هیئت همراه، به یکی از محورهای اختلاف و تنش دیپلماتیک میان تهران و واشنگتن تبدیل شد.
+ایران که پیش‌تر قصد داشت اردوی خود را در ایالت آریزونای آمریکا برپا کند، در نهایت با موافقت فیفا، محل اقامت و تمرینات خود را به تیخوانا در شمال مکزیک منتقل کرد، شهری در نزدیکی مرز آمریکا که ملی‌پوشان از آنجا برای برگزاری مسابقات خود راهی خاک ایالات متحده خواهند شد.
+ابوالفضل پسندیده، سفیر ایران در مکزیک، روز شنبه ۱۶ خرداد ماه (به وقت محلی) اعلام کرده بود کاروان تیم ملی فوتبال ایران مطلع شده است بر اساس شرایط تعیین‌شده، اعضای تیم ملی فقط در روز برگزاری مسابقات اجازه ورود به خاک آمریکا را خواهند داشت و باید همان روز این کشور را ترک کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244104
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244104_1780842355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد آمریکا پیش‌نویس متن قطعنامه‌ای را برای نشست این هفته شورای حکام آژانس بین‌المللی انرژی اتمی توزیع کرده است.
+بر اساس این گزارش، در این پیش‌نویس از جمهوری اسلامی خواسته شده بدون تاخیر اطلاعات دقیق درباره مواد و تاسیسات هسته‌ای خود را در اختیار آژانس قرار دهد.
+رویترز همچنین نوشت در این قطعنامه از جمهوری اسلامی خواسته شده فورا تمامی دسترسی‌های مورد نیاز را برای بازرسان آژانس فراهم کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244103
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244103_1780842356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، با انتشار تصویری از یک افسر نگهبان روی ناوشکن موشک‌انداز یواس‌اس مایکل مورفی، اعلام کرد که از زمان آغاز عملیات محاصره بنادر ایران، ۱۳۲ کشتی تجاری مجبور به تغییر مسیر شده‌اند و ناوگان آمریکا شش کشتی را از کار انداخته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244102
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244102_1780842356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل اعلام کردند که دستور حمله به ضاحیه بیروت را صادر کرده‌اند.
+
+در پی این دستور، سخنگوی ارتش اسرائیل از حمله به ضاحیه بیروت خبر داد.
+
+کاتز اعلام کرد که حمله به ضاحیه بیروت، در پاسخ به شلیک حزب‌الله به سمت خاک اسرائیل انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244101
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244101_1780842357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در حالی که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در روز یکشنبه ۱۷ خرداد ماه اعلام کرد کشورش اجازه نخواهد داد حزب‌الله به سوی اسرائیل شلیک کند، ارتش اسرائیل هشدار جدید برای تخلیه مناطقی از شهر تاریخی صور در جنوب لبنان صادر کرد.
+نتانیاهو روز یکشنبه اعلام کرد در یک هفته گذشته ۳۵۰ نفر از نیروهای حزب‌الله را کشته و همچنان ضربات سنگینی به این گروه وارد می‌کند.
+همزمان ارتش اسرائیل از ساکنان چند محله و اردوگاه اطراف شهر ساحلی صور خواست این مناطق را ترک کنند. این شهر در شمال منطقه‌ای قرار دارد که همچنان در اشغال نیروهای اسرائیلی است.
+اسرائیل اعلام کرده است صدور این هشدار به دلیل آنچه «نقض توافق آتش‌بس از سوی حزب‌الله» خوانده، انجام شده است.
+تنش‌ها میان ارتش اسرائیل و حزب‌الله با وجود توافق آتش‌بس میان دولت‌های اسرائیل و لبنان که با میانجیگری آمریکا حاصل شده بود، همچنان ادامه دارد.
+حزب‌الله در این توافق آتش‌بس مشارکت نداشته و اعلام کرده تا زمانی که نیروهای اسرائیلی در خاک لبنان حضور داشته باشند، آن را نخواهد پذیرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه خبر: ساعات مهمی در پیش داریم
+@withyashar 🚨
+</div>
+
+## WithYashar — post 13700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: حزب‌الله پس از بمباران حومه جنوبی بیروت شوکه شده زیرا مقامات ایران به رهبران حزب اطمینان داده بودند که اسرائیل این منطقه را بمباران نخواهد کرد
+@withyashar
+</div>
+
+## WithYashar — post 13699
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13699_1780842358.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه پیاده‌شدن تیم ناملی از هواپیما؛
+این کاروان با نام میناب ۱۶۸ کمی پیش وارد تیخوانا مکزیک شد
+@withyashar
+</div>
+
+## WithYashar — post 13698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت امور خارجه ایران، در گفت‌وگو با CNN گفت:
+مشکل اصلی در مذاکرات با آمریکا اینه که اونا مدام موضع خودشون و خطوط قرمز رو تغییر میدن و حرف هاشون متناقضه.
+@withyashar
+</div>
+
+## WithYashar — post 13697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در رابطه با مجتبی:
+ولی اون به شدت زخمیه، دوست ندارم که بگم داخل ایرانه یا نه.
+@withyashar
+</div>
+
+## WithYashar — post 13696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : مجتبی خامنه‌ای به شدت زخمی شده اما بسیار شجاعه
+
+چون که خیلیا اگه جاش بودن عمرا تو این وضعیت به فکر اینکه با آمریکا چه مذاکره و توافقی داشته باشن اصلا فکر نمیکردن ولی اون براش مهمه پس شجاعه!
+@withyashar
+</div>
+
+## WithYashar — post 13695
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13695_1780842361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران: ما یک محاصره داریم. این بسیار مؤثر بوده است. و دلیل اینکه ما این محاصره را داریم این است که آنها تلاش کردند محاصره کنند، و حالا ما آنها را محاصره کرده‌ایم.
+
+آنها محاصره‌ای ایجاد کردند، پس ما آنها را محاصره کردیم. ما محاصره نهایی را داریم.
+
+من این را جنگ نمی‌دانم، اما اگر بخواهید آن را اینگونه تعریف کنید، فکر می‌کنم می‌توانید
+@withyashar
+</div>
+
+## WithYashar — post 13694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید جنگ ایران یک «تمرین نظامی» است و اضافه می‌کند، «این برای ما جنگ بزرگی نیست
+
+نیروهای آمریکایی را تا رسیدن به توافق نهایی با ایران در منطقه نگه خواهیم داشت
+
+آمریکایی ها با پایان جنگ احساس آرامش خواهند کرد ، من قصد ندارم نیروهای آمریکایی را حتی در صورت آتش‌بس خارج کنم
+
+بخشی از چالش در اجرای سریع صلح این است که مستلزم تغییر اساسی در نگرش دیرینه تهران نسبت به ماست.
+
+ایرانی‌ها قوی هستند و به خودشان افتخار می‌کنند، و کارهایی هست که هرگز انتظار انجامشان را نداشتند، اما مجبور به انجامشان خواهند شد.
+@withyashar
+</div>
+
+## WithYashar — post 13693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در مصاحبه‌ای با برنامه «Meet the Press» شبکه NBC News :
+
+ترامپ مدعی شد: «اگر به توافق نرسیم، آن‌ها را با اقدام نظامی بسیار سخت و شدید از میان خواهیم برد. و در آن صورت، پیش از رفتن ما این کار انجام خواهد شد؛ بنابراین به هر شکلی امنیت خواهیم داشت.»
+
+ترامپ همچنین ادعا کرد که ایالات متحده می‌تواند این فعالیت‌ها را زیر نظر داشته باشد، زیرا از ظریق «نیروی فضایی» آمریکا، «دوربین‌هایی در فضا» دارد.
+
+او گفت: «می‌دانید، ما آنجا را زیر نظر داریم؛ کاملاً و از همه جهات. اگر کسی آنجا قدم بزند، حتی اگر خود شما آنجا راه بروید، من می‌توانم نام کوچک شما را روی نشان سینه‌تان بخوانم.»
+
+ترامپ افزود: «و این‌ها دوربین‌ هایی هستند که در فضا قرار دارند. فناوری واقعاً شگفت‌انگیزی است.»
+@withyashar
+</div>
+
+## WithYashar — post 13692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «چند نکته باقی مانده است. حتی نکات بزرگی هم نیستند. آن‌ها پذیرفته‌اند که سلاح هسته‌ای نخواهند داشت.»
+
+«در توافق بندی داشتیم که می‌گفت آن‌ها سلاح هسته‌ای توسعه نخواهند داد و همه از آن راضی بودند، به جز من.»
+
+«من گفتم اگر آن‌ها خودشان سلاح هسته‌ای تولید نکنند، اما بروند و آن را بخرند یا به دست آورند، چه می‌شود؟ می‌خواهم واژه‌های “خریدن”، “تهیه کردن” یا “به دست آوردن” هم در متن باشد. چون این دیگر توسعه دادن نیست.»
+
+«بنابراین آن‌ها نه حق توسعه سلاح هسته‌ای را دارند و نه حق خریدن، تهیه کردن یا به دست آوردن آن را.»
+@withyashar
+</div>
+
+## WithYashar — post 13691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره‌ مجتبی خامنه‌ای به ان‌بی‌سی: اون منطقی‌تر از پدرشهِ
+
+نمی‌خوام بگم که میدونم اون کجاست یا نه، اما احتمال خوبی وجود داره که بدونم کجاست
+
+ترامپ: ما و ایران به امضای توافق بسیار نزدیک هستیم، اما من تهران را تحت فشار قرار می‌دهم تا از جاه‌طلبی‌های هسته‌ای خود دست بردارد
+@withyashar
+</div>
+
+## WithYashar — post 13690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ان بی سی: هیچ پولی از ایران آزاد نخواهم کرد. تحریم ها هم کاهش پیدا نمی کند
+
+اگر برای پایان جنگ به توافق برسیم، با ایران برای بازیابی و نابودی اورانیوم غنی‌شده با غنای بالا همکاری خواهیم کرد
+اگر به توافق نرسیم، ارتش ایران را بیش از پیش تضعیف خواهیم کرد تا زمانی که نیروهای ما بتوانند با خیال راحت اورانیوم را بردارند.
+@withyashar
+</div>
+
+## WithYashar — post 13689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار (t.me/withyashar) – (IG @yashar)‎⁨منتظریم کی شب حمله فرا می‌رسد⁩
+</div>
+
+## WithYashar — post 13688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ان‌بی‌سی نیوز می‌گوید که اصراری ندارد لبنان در توافق کوتاه‌مدت ایران گنجانده شود
+@withyashar
+</div>
+
+## WithYashar — post 13687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری I24news: دولت ترامپ راجب حمله مطلع شده بود!
+@withyashar
+</div>
+
+## WithYashar — post 13686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا سیما: اماده باش فوق العاده ای برای وعده صادق پنج برای حمله به اسرائیل تذبیر شده است
+@withyashar
+🚨🚨🚨🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 13685
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل: ما یک ترور هدفمند با ارزش بالا انجام دادیم.
+@withyashar
+</div>
+
+## WithYashar — post 13684
+
+
+
+
+## WithYashar — post 13683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار : من حمله های اسرائیل به لبنان رو پوشش نمیدم
+نتانیاهو: ی لحظه اجازه بدین 🤣🤣🤣
+</div>
+
+## WithYashar — post 13682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی 48 ساعت قبل به صورت رسمی اعلام کرد در صورت حمله اسرائیل به بیروت،جنگ آغاز خواهد شد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342692
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342692_1780842364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+An anti-ICE agitator holds up the middle finger and yells expletives while blocking a car from entering Delaney Hall as violent clashes continue outside the New Jersey detention center.
+</div>
+
+## FoxNewsTwitter — post 342691
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342691_1780842367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @foxandfriends: Lawrence Jones, Michael Duncan & John Ashbrook detail their experience in this morning's @Tunnel2Towers Climb. | @AdamKlotzFNC @RuthlessPodcast @LawrenceBJones3
+</div>
+
+## FoxNewsTwitter — post 342690
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342690_1780842368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“I thought it was an Amazon package.”
+
+A Texas homeowner got quite the surprise when he bumped into an alligator sitting on his front porch while heading out for a morning walk.
+
+Police shared video of the reptile lounging outside the home before officers stepped in and safely removed it.
+
+The gator was later released into a nearby pond as residents were reminded to leave wildlife encounters to the professionals.
+</div>
+
+## FoxNewsTwitter — post 342689
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342689_1780842371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Frightening video captures the moment gunshots ring out at a festival in Toledo, Ohio.
+
+At least 12 people were wounded, 2 of them critically, authorities say. An urgent search is underway for the suspects as police believe more than one gunman was involved.
+</div>
+
+## pm_afshaa — post 92482
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92482_1780842374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری: اسرائیل به بیروت حمله کرد. ارتش اسرائیل: طبق دستور نتانیاهو، در پاسخ به شلیک موشک، مقر عملیاتی حزب الله در بیروت رو بمباران کردیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92481
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92481_1780842375.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، در گفت‌وگو با سی‌ان‌ان:
+
+مشکل اصلی در مذاکرات با آمریکا اینه که اونا مدام موضع خودشون، قوانین و خطوط قرمز رو تغییر میدن و حرف‌هاشون متناقضه.
+
+آمریکایی‌ها باید درک کنن که باید حقوق ایران، از جمله حق غنی‌سازی صلح‌آمیز هسته‌ای تحت معاهده منع گسترش سلاح‌های هسته‌ای رو به رسمیت بشناسن.
+
+در مورد تحریم‌ها و دارایی‌های مسدود شده، آنها فقط باید اجازه بدن دارایی‌های ایران آزاد بشه و در دسترس ایرانیان قرار بگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92480
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92480_1780842375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما یک محاصره داریم و این بسیار مؤثر بوده و دلیلشم اینه که اونا تلاش کردن محاصره کنند، و حالا ما اونارو محاصره کردیم.
+
+آنها محاصره‌ای ایجاد کردن، پس ما آنها رو محاصره کردیم و ما محاصره نهایی رو داریم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92479
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92479_1780842378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: جنگ با ایران فقط یه تمرین نظامیه و جنگی بزرگی برای ما نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92478
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92478_1780842379.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: مجتبی خامنه‌ای به شدت مجروح شده اما بسیار شجاعه و از پدرش عاقل‌تره.
+
+چون که خیلیا اگه جاش بودن عمرا تو این وضعیت به فکر اینکه با آمریکا چه مذاکره و توافقی داشته باشن اصلا فکر نمیکردن ولی اون براش مهمه پس شجاعه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه های لبنانی:حزب‌الله از این حمله غافلگیر شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92476
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92476_1780842379.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ: چند نکته باقی مونده ولی نکات بزرگی نیستن. اونا پذیرفتن که سلاح هسته‌ای نداشته باشن.
+
+در توافق بندی داشتیم که می‌گفت آنها سلاح هسته‌ای توسعه نخواهند داد و همه راضی بودن، به جز من.
+
+من گفتم اگر خودشون سلاح هسته‌ای تولید نکنن، اما برن بخرن یا به دست بیارن چی؟ میخوام واژه‌های «خریدن، تهیه کردن یا به دست آوردن» هم در متن توافق باشه.
+
+بنابراین ایران نه حق توسعه سلاح هسته‌ای رو داره و نه حق خریدن، تهیه کردن یا به دست آوردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92475
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92475_1780842380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+آمریکا از طریق تجهیزات و دوربین‌های فضایی، فعالیت‌های ایران رو به‌طور کامل زیر نظر داره.
+
+ما به امضای توافق با ایران بسیار نزدیک شدیم، اما تهران باید امتیازهای بیشتری بده. من ایران رو تحت فشار قرار میدم تا از جاه‌طلبی‌های هسته‌ای خود دست برداره.
+
+ایران نه‌تنها نباید سلاح هسته‌ای تولید کنه، بلکه نباید آن را بخرد، تهیه کند یا به هر شکلی به دست آورد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92474
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92474_1780842381.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در مورد مجتبی خامنه‌ای:
+نمیخوام بگم که میدونم او کجاست یا نه، اما احتمال خوبی وجود داره که بدونم کجاست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92473
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92473_1780842382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر برای پایان جنگ به توافق برسیم، با ایران برای بازیابی و نابودی اورانیوم غنی‌شده با غنای بالا همکاری خواهیم کرد.
+
+اگر به توافق نرسیم، ارتش ایران رو بیش از پیش تضعیف خواهیم کرد تا زمانی که نیروهای ما بتونن با خیال راحت اورانیوم رو بردارند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92472
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92472_1780842383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: هیچ پول مسدود شده ایران در چهارچوب هیچ توافقی پیشاپیش آزاد نخواهد شد و هیچ‌یک از تحریم‌ها رو هم قبل از توافق برنخواهم داشت!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92471
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92471_1780842383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان‌بی‌سی نیوز: لازم نیست که لبنان بخشی از آتش‌بس با ایران باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#ارسالی
+
+پدرم سردار نیرو هوایی ارتش همین الان آماده باش دادن رفت از خونه
+</div>
+
+## pm_afshaa — post 92469
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92469_1780842384.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری: اسرائیل به بیروت حمله کرد. ارتش اسرائیل: طبق دستور نتانیاهو، در پاسخ به شلیک موشک، مقر عملیاتی حزب الله در بیروت رو بمباران کردیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92468
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92468_1780842385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو ارتش اسرائیل: ما یک ترور هدفمند با ارزش بالا انجام دادیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92467
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92467_1780842386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری I24news: دولت ترامپ از در مورد حمله به بیروت مطلع شده بود!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92466
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92466_1780842386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کارشناس صداوسیما: منتظر واکنش قرارگاه خاتم‌الانبیا و حزب‌الله باشید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برگزاری جلسه اضطراری شورای عالی امنیت ملی جمهوری اسلامی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92464
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع لبنانی: تعداد کشته و زخمی شدگان حمله هوایی اسرائیل بالاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92463
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در حمله به ضاحیه بیروت نیرو هوایی اسرائیل از 10 بمب دقیق SDB استفاده شده
+
++احتمال ترور نعیم قاسم هست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5430
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5430_1780842387.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢
+🔺 “برای خیلی از ارتشی‌ها پاداش واریز نشده، حتی کسانی که در جنگ حضور داشتند متاسفانه برای فرماندهان حواله ماشین اطلس و قطعه زمین در نظر گرفته شده
+
+#پیام_دریافتی
+
+@DEJradio
+</div>
+
+## DEJradio — post 5429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مقام پیشین موساد گفت طرح براندازی جمهوری اسلامی لغو نشده و تنها متوقف مانده است
+
+یک مقام پیشین موساد که با نام «الف» معرفی شده، به کانال ۱۲ اسرائیل گفت طرح چندمرحله‌ای اسرائیل برای سرنگونی جمهوری اسلامی، به‌دلیل توقف جنگ از سوی آمریکا نیمه‌تمام ماند.
+او گفت شد این طرح در همراهی شرکای منطقه‌ای و استفاده از نیروهای محلی طراحی شده بود.
+به گفتۀ این مقام پیشین امنیتی، این برنامه در صورت دریافت مجوز از مقامات سیاسی، همچنان از قابلیت اجرا برخوردار است.
+مقام پیشین موساد افزود بخشی از عملیات جنگ ۱۲ روزه بر جذب، آموزش و به‌کارگیری عوامل محلی مخالف جمهوری اسلامی متکی بود.
+او همچنین مدعی شد بسیاری از نیروهای جذب‌شده در ایران، به‌دلیل مخالفت با جمهوری اسلامی و نارضایتی از شرایط داخلی «همکاری» کردند.
+این مقام پیشین موساد گفت اسرائیل به‌یقین از وضعیت مجتبی خامنه‌ای آگاهی دقیق دارد.
+او تأکید کرد سرنگونی رژیم حاکم بر ایران قطعی است، اما نمی‌توان پیش‌بینی کرد که در شش ماه رخ می‌دهد یا در سه سال.
+
+#خبر #دژ #موساد #سرنگونی
+@DEJradio
+</div>
+
+## DEJradio — post 5428
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5428_1780842388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔺 سقوط یک دختر جوان از ساختمان بازار فردوسی مشهد
+
+براساس گزارش‌های مردمی عصر شنبه ۱۶ خرداد یک دختر جوان از ساختمان بازار فردوسی مشهد به پایین سقوط کرد. علت این حادثه هنوز مشخص نیست.
+
+#جوانان #مشهد
+@DEJradio
+</div>
+
+## DEJradio — post 5427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تجمعات اعتراضی دانش‌آموزان در چند شهر ایران ادامه یافت
+
+بر پایۀ گزارش‌ها گروه‌هایی از دانش‌آموزان در تهران، مشهد، اصفهان، شیراز و چند شهر دیگر در اعتراض به تغییرات کنکور و تاثیر قطعی معدل، تجمع کردند و شعارهایی علیه مقامات سردادند.
+معترضان می‌گویند جنگ، تعطیلی مدارس و بلاتکلیفی زمان آزمون‌ها، امکان آمادگی مناسب را از آنها گرفته است
+بنا بر گزارش‌ها، شماری از عوامل نیروی انتظامی و اعضای یگان ویژه، پیرامون برخی تجمع‌ها از جمله در شهر مشهد حضور یافته‌اند.
+
+#خبر #دژ #دانش_آموزان
+@DEJradio
+</div>
+
+## DEJradio — post 5426
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5426_1780842391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢🔺 “در جنگ ۴۰ روزه چیزی از هوانیروز اصفهان باقی نموند، ارتش قربانی سـ.ـپاه شد، مثل تمام ۴۷ سال گذشته سـ.پاه شر درست کرد دامن ارتش رو گرفت، پولارم اونا هاپولی کردن
+
+پیام دریافتی
+
+#اصفهان #هوانیروز #کارگر
+@DEJradio
+</div>
+
+## DEJradio — post 5425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ادعای رسانۀ نزدیک به سپاه: دریافت پول از کشتی‌ها در تنگۀ هرمز وارد مرحلۀ اجرایی شد
+
+خبرگزاری حکومتی فارس مدعی شد طرح دریافت «هزینۀ خدمات» از کشتی‌های عبورکننده از تنگۀ هرمز وارد مرحله اجرایی شده است.
+بنا بر ادعای رسانۀ نزدیک به سپاه، نهادی با مشارکت وزارت اقتصاد و زیر نظر شورای عالی امنیت ملی نظام، برای اجرای این طرح تشکیل شد.
+بر اساس این گزارش، بخشی از پرداخت‌ها به‌صورت نقدی نیست و از طریق ارز دیجیتال تتر، تهاتر کالا و یا ارائۀ خدمات انجام می‌شود.
+محسن زنگنه، نمایندۀ مجلس شورای اسلامی، در گفت‌وگو با خبرگزاری حکومتی فارس مدعی شد از هر کشتی عبوری به‌طور متوسط بین یک‌ونیم تا دو میلیون دلار دریافت می‌شود.
+آمریکا پیش‌تر به کشتی‌های عبوری و شرکت‌ها هشدار داده که حق باج‌دهی به سپاه را ندارند.
+
+#خبر #دژ #تنگه_هرمز #عوارض
+@DEJradio
+</div>
+
+## DEJradio — post 5424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👀
+🔴 یکی از مخاطبان دژ با ارسال ویدیویی از برگزاری مراسم جشن عروسی شماری از پرسنل انتظامی در کلانتری‌ها که اغلب آنها در جنگ خریب شد، نوشت چند وقت دیگه کلانتری‌ها میشه دیسکو!
+در این ویدیو پیداست در اقدامی عجیب ماشین پلیس را گل زدند و از اموال نظامی عمومی استفاده تبلیغاتی کرده‌اند.
+
+#بستریابی #سرکوبگران #مزدوران
+@DEJradio
+</div>
+
+## DEJradio — post 5423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ قرارداد فروش ۲۰۰ هواپیمای بوئینگ به چین اواخر امسال قطعی می‌شود
+
+یکی از مدیران ارشد شرکت هواپیمائی بوئینگ گفت قرارداد فروش ۲۰۰ فروند هواپیما به چین، احتمالاً در اواخر امسال نهایی می‌شود.
+این توافق در جریان سفر اخیر دونالد ترامپ به چین مطرح شده بود.
+از سویی پکن خواستار تضمین دسترسی به قطعات و موتور هواپیما شده است.
+مدیر بخش خدمات جهانی بوئینگ گفت این شرکت در چین انبار قطعات دارد و مشکلی برای تأمین اقلام مجاز پدید نمی‌آید.
+همچنین مدیرعامل بوئینگ، این قرارداد را نخستین مرحله از توافقی بزرگ‌تر میان ایالات متحدۀ آمریکا و جمهوری خلق چین، عنوان کرد.
+
+#خبر #دژ #چین
+@DEJradio
+</div>
+
+## DEJradio — post 5422
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5422_1780842392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨 براساس ویدیویی که در صفحات اجتماعی وایرال شده، گروهی از مردم در شهر فیروزآباد استان فارس قرآن‌ها را به داخل آب انداخته‌اند. زمان دقیق این ویدیو مشخص نیست.
+
+#فیروزآباد #قرآن
+@DEJradio
+</div>
+
+## DEJradio — post 5421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نمایندۀ کنگرۀ آمریکا: حملۀ ترامپ به جمهوری اسلامی اجتناب‌ناپذیر است
+
+پت فالون، عضو کمیتۀ نیروهای مسلح و کمیتۀ اطلاعات مجلس نمایندگان آمریکا گفت حملۀ نظامی علیه جمهوری اسلامی محتمل است.
+این نمایندۀ جمهوری‌خواه به شبکۀ فاکس‌نیوز گفت جمهوری اسلامی از اورانیوم غنی‌شده و بستن نگه داشتن تنگۀ هرمز عقب‌نشینی نمی‌کند. به گفتۀ او ممکن است اعمال زور، تنها گزینۀ باقی‌مانده باشد.
+پت فالون اعلام کرد جمهوری اسلامی با حسن نیت مذاکره نمی‌کند و بحران، سرانجام به شیوه‌ای دشوار پایان می‌یابد.
+نمایندۀ جمهوری‌خواه کنگره همچنین گفت سپاه پاسداران کنترل حکومت را در ایران دست دارد و مذاکره با آن دشوار است.
+او همچنین موضع جوزف عون، رئیس‌ جمهوری لبنان درمورد استفادۀ ناپسند جمهوری اسلامی از لبنان به‌عنوان اهرم فشار، پشتیبانی کرد.
+این نمایندۀ آمریکایی پیش‌تر هم تأکید کرده بود جمهوری اسلامی باید ذخایر اورانیوم را تحویل دهد و تنگۀ هرمز را بازگشایی کند.
+
+#خبر #دژ #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 5418
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5418_1780842393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕐
+🛩️ همزمان با مذاکرات پشت پرده میان مقامات جمهوری اسلامی و طرف آمریکایی، سنتکام با کمترین دردسر چراغ خاموش تأسیسات راداری و دکل‌های نظامی سـ.ـپاه و ارتش در جنوب ایران را منهدم می‌کند. در همان نواحی جنگ الکترونیک در بالاترین سطح ادامه دارد و پهپادهای سـ.ـپاه و ارتش هدف قرار می‌گیرند.
+به موازات این حملات، آمریکا با حملات مداوم و نقطه‌ای «آتش‌بس را نقض می‌کند» اما آنها متوجه شدند جمهوری اسلامی تمایلی به برجسته کردن حملات ندارد. دلیل آن واضح است:
+۱) مختل نشدن مذاکرات
+۲) عدم نیاز به پاسخگویی قابل توجه
+
+در صورتیکه حملات مداوم به تاسیسات نظامی جنوب ایران همزمان با آتش بس برجسته شود حکومت مجبور است، به آن پاسخ دهد و این به معنای آغاز مجدد جنگ خواهد بود که در شرایط فعلی گزینه‌ای خطرناک برای حکومت است. از این رو حتی گفته میشود کشته شدن چند سـ.ـپاهی در قایق‌های تندرو در تنگه هرمز نیز دیر اطلاع رسانی شد تا حکومت مجبور نباشد به آن پاسخ اولیه نشان دهد.
+از سویی دیگر تاسیسات مخابراتی و نظامی در مناطقی زیر آتش قرار دارد که گفته می‌شود در صورت حمله زمینی آمریکا نقطه آغازین کریدور ورودی است. برخی کارشناسان می‌گویند قشم، خارک و سیریک از جمله گزینه‌های اولیه برای ورود نیروهای آبی- خاکی خواهند بود.
+
+#تحلیل #خاورمیانه
+@DEJradio
+</div>
+
+## DEJradio — post 5417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اسرائیل: فرماندۀ مرتبط با حملۀ تروریستی ۷ اکتبر در جنوب غزه کشته شد
+
+ارتش اسرائیل و شاباک اعلام کردند صقر ابوکریم، از فرماندهان «یگان نخبۀ حماس» در حمله‌ای در جنوب نوار غزه کشته شد.
+شبه‌نظامیان حماس که توسط جمهوری اسلامی پشتیبانی می‌شوند، در سیاهۀ تروریستی اتحادیۀ اروپا و آمریکا قرار دارند.
+به گفتۀ ارتش اسرائیل، صقر ابوکریم در حملۀ تروریستی هفتم اکتبر ۲۰۲۳ فرماندۀ یورش به منطقۀ کیسوفیم بوده است.
+ارتش اسرائیل اعلام کرد این فرماندۀ حماس در ماه‌های اخیر در بازسازی توان عملیاتی، نگهداری سلاح و آموزش نیروها نقش داشت.
+اسرائیل اعلام کرد در این حمله، یکی از مسئولان ارتباطات حماس نیز کشته شد.
+ارتش اسرائیل می‌گوید این عملیات بخشی از روند هدف‌گیری افراد مرتبط با حملۀ تروریستی هفتم اکتبر است.
+اسرائیل در هفته‌های پیشین نیز از کشته شدن چند فرماندۀ دیگر حماس خبر داده بود.
+
+#خبر #دژ #اسرائیل #حذف_هدفمند #حماس #هفتم_اکتبر
+@DEJradio
+</div>
+
+## DEJradio — post 5416
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5416_1780842393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢
+⭕️ بعد از جنگ ۴۰ روزه مخارج تعمیر و نگهداری خودرو به شدت گران شد. یک راننده با شکایت از هزینه‌ها می‌گوید روغن ماشین از ۳۰۰هزار تومان شده، ۲ میلیون و دیسک و صفحه ۱۲ میلیون!
+رانندگان تاکسی و اسنپ می‌گویند بخش زیادی از پولی که درآمد آنهاست صرف ماشین و بنزین می‌شود.
+
+#صدای_شما #گرانی
+@DEJradio
+</div>
+
+## DEJradio — post 5415
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گمانه‌زنی دربارۀ نقش پررنگ پاکستان در پروندۀ مذاکرات مرتبط با لبنان
+
+سفر همزمان وزیر کشور پاکستان به تهران و فرماندۀ ارتش لبنان به اسلام‌آباد، گمانه‌زنی‌ها درباره نقش گسترده‌تر پاکستان در پروندۀ لبنان و مذاکرات تهران و واشینگتن را افزایش داده است.
+منابع نزدیک به میانجی‌گران ادعا می‌کنند لبنان به یکی از محورهای مهم گفت‌وگوهای منطقه‌ای تبدیل شده است.
+مقامات جمهوری اسلامی در روزهای اخیر بارها مدعی شدند که آتش‌بس در لبنان، جزو جدایی‌ناپذیر توافق احتمالی میان واشینگتن و تهران است.
+
+#خبر #دژ #مذاکرات
+@DEJradio
+</div>
+
+## DEJradio — post 5414
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5414_1780842396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝
+🚨
+خسارت‌های جنگی که جمهوری اسلامی به مردم ایران تحمیل کرد، شدیدتر می‌شود. در شرایطی که مقام‌های حکومت خوش‌باورانه به دنبال دریافت خسارات جنگ از آمریکا و متحدانش در منطقه هستند، رویترز به نقل از یک منبع آگاه گزارش داد دولت آمریکا در حال بررسی استفاده از دارایی‌های جمهوری اسلامی برای تامین هزینه بازسازی و جبران خسارت‌هایی است که در جریان جنگ به کشورهای عربی در خلیج فارس وارد شده است.
+یک منبع آگاه شنبه ۱۶ خرداد به رویترز گفت دولت آمریکا قصد دارد دارایی‌های بلوکه‌شده حکومت ایران را برای کمک به بازسازی و جبران خسارت‌های واردشده به کشورهای خلیج فارس در دسترس متحدان خود قرار دهد.
+
+به گفته این منبع، آمریکا همچنین در حال بررسی این موضوع است که آیا می‌توان از این دارایی‌ها برای جبران خسارت‌های گذشته ناشی از حملات جمهوری اسلامی به کشورهای منطقه نیز استفاده کرد یا خیر.
+این منبع افزود اسکات بسنت، وزیر خزانه‌داری آمریکا، گروهی را مامور کرده است تا میزان خسارت‌های واردشده به کشورهای متحد آمریکا در خلیج فارس را ارزیابی و برآورد کند.
+نماینده جمهوری اسلامی در سازمان ملل گفته بود امارات به علت در اختیار گذاشتن سرزمین خود برای حمله به ایران، مستلزم پرداخت غرامت بابت کلیه خسارات مادی و معنوی وارده به کشور ما است.
+خسارات جنگ با عراق نیز ۴۴۰ میلیارد دلار بود که حتی پس از سقوط صدام نیز حکومت نتوانست آن را بگیرد.
+
+#جنگ۴۰روزه
+@DEJradio
+</div>
+
+## DEJradio — post 5413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بسیاری از خبرنگاران ایرانی و آفریقایی نتواستند برای جام جهانی ویزا بگیرند
+
+شماری از خبرنگاران ایرانی و آفریقایی نتوانستند برای پوشش جام جهانی ۲۰۲۶ ویزای ورود به آمریکا را دریافت کنند.
+انجمن بین‌المللی روزنامه‌نگاران ورزشی اعلام کرد تعدادی از خبرنگاران فقط ویزای یک‌بار ورود گرفته‌اند و در صورت خروج از آمریکا، امکان بازگشت ندارند.
+پیش‌تر گزارش شده بود که بیش از 15 عضو کادر پشتیبانی، فنی و مدیریتی تیم فوتبال جمهوری اسلامی نیز اجازۀ ورود به آمریکا را دریافت نکرده‌اند.
+بر اساس گزارش‌ها، درخواست روادید مهدی تاج، رئیس فدراسیون نیز رد شده است. منابع آمریکایی دلیل آن را فرماندهی پیشین مهدی تاج در سپاه پاسداران انقلاب اسلامی عنوان کرده‌اند.
+سپاه پاسداران در سیاهۀ تروریستی آمریکا و اتحادیۀ اروپا قرار دارد.
+
+#خبر #دژ #جام_جهانی
+@DEJradio
+</div>
+
+## DEJradio — post 5412
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5412_1780842397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎤
+🔺 گزارش مهدی رستم‌پور؛ آمریکا به کدامیک از اعضای کاروان جمهوی اسلامی ویزا نداد؟ مگر نگفته بودند درخواست ویزا از قاتلان خامنه‌ای بی‌غیرتی است؟
+
+#گزارش #جام_جهانی #فوتبال
+@DEJradio
+</div>
+
+## DEJradio — post 5411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ارتش اسرائیل۱۵۰ موضع حزب‌الله را در ۴۸ ساعت هدف گرفت
+
+ارتش اسرائیل بامداد یکشنبه اعلام کرد طی دو روز گذشته درحدود ۱۵۰ موضع حزب‌الله را در جنوب لبنان هدف گرفته است.
+این حملات در پاسخ به حملۀ حزب‌الله به مواضع اسرائیل در دو سوی مرز لبنان انجام شد.
+شبه‌نظامیان حزب‌الله که توسط جمهوری اسلامی پشتیبانی می‌شوند، در سیاهۀ تروریستی آمریکا و اتحادیۀ اروپا قرار دارند.
+ارتش اسرائیل بار دیگر برای چند منطقه در جنوب لبنان دستور تخلیه صادر کرده است.
+
+#خبر #دژ #اسرائیل #لبنان
+@DEJradio
+</div>
+
+## VahidOnline — post 75983
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75983_1780842400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل از حمله به ضاحیه در حومه جنوبی بیروت خبر داده است.
+
+دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در بیانیه‌ای گفت که هدف این حمله مراکز فرماندهی حزب‌الله بوده است.
+
+بنابر این بیانیه، در «واکنش به حملات حزب‌الله به خاک اسرائیل»، به دستور بنیامین نتانیاهو و اسرائیل کاتس، وزیر دفاع، «یک مرکز فرماندهی نظامی در منطقه ضاحیه بیروت» هدف قرار گرفته است.
+
+رسانه‌های ایران می‌گویند که به ساختمانی در محله‌ای در ضاحیه حمله شده است.
+
+ضاحیه پایگاه قدرت حزب‌الله در بیروت است.
+
+هفته پیش بعد از آنکه اسرائیل از حمله قریب‌الوقوع به ضاحیه خبر داد، قرارگاه مرکزی خاتم‌الانبیا به ساکنان شمال اسرائیل هشدار ترک محل زندگی‌شان را داد.
+
+ساعتی بعد دونالد ترامپ گفت که از بنیامین نتانیاهو خواسته است دستور توقف حمله به ضاحیه را بدهد و نخست‌وزیر اسرائیل هم پذیرفته است.
+
+ایران هنوز واکنش رسمی نشان نداده است.
+
+ایران آتش‌بس در لبنان را بخشی از توافق آتش‌بس با آمریکا می‌داند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75982
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75982_1780842401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پلیس اسرائیل اعلام کرد تیراندازی در منطقه شارون در مرکز اسرائیل ممکن است یک حمله «تروریستی» باشد.
+
+مقام‌های امدادی اسرائیل اعلام کردند در این تیراندازی یک نفر کشته و شش نفر زخمی شدند.
+
+رسانه‌های اسرائیل گزارش دادند فرد مهاجم شهروند عرب_اسرائیلی بوده است. دفتر نخست‌وزیر اسرائیل نیز اعلام کرد بنیامین نتانیاهو در حال بررسی جزئیات این تیراندازی است.
+
+ارتش اسرائیل و پلیس اعلام کرد که فرد مهاجم «خنثی» و بازداشت شده و نیروهای امنیتی در حال جست‌وجو برای یافتن مهاجم احتمالی دوم هستند.
+iranintl
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75981
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75981_1780842402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر کشور پاکستان که حامل «نامه‌ای ویژه» از طرف ژنرال عاصم منیر، فرمانده ارتش پاکستان، برای مجتبی خامنه‌ای است، روز یکشنبه ۱۷ خردادماه آن را به عباس عراقچی، وزیر خارجه جمهوری اسلامی تحویل داد.
+
+خبرگزاری فارس، نزدیک به سپاه پاسداران، روز یک‌شنبه، ۱۷ خردادماه، ویدئویی منتشر کرد که وزیر کشور پاکستان در آن می‌گوید حامل «نامه‌ای ویژه» از طرف ژنرال عاصم منیر، فرمانده ارتش پاکستان، برای مجتبی خامنه‌ای است که به عنوان جانشین پدرش، علی خامنه‌ای، معرفی شده است.
+
+در سه ماهی که از آغاز جنگ و معرفی مجتبی خامنه‌ای به عنوان رهبر می‌گذرد، نه فایلی صوتی از او منتشر شده و نه ویدئویی که نشان دهد او از حمله مرگبار به بیت پدرش در روز ۹ اسفندماه جان سالم به در برده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75980
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75980_1780842403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخلاف برخی گزارش‌ها درباره ورود و خروج تیم ملی فوتبال ایران به خاک آمریکا، رئیس فدراسیون فوتبال کشور روز یک‌شنبه توضیح داد که تیم ملی یک روز قبل از هر مسابقه اجازه ورود به خاک این کشور را دارد.
+
+پیشتر ابوالفضل پسندیده، سفیر جمهوری اسلامی ایران در مکزیک، گفته بود که بر اساس شرایط تعیین‌شده برای روادید اعضای تیم ملی فوتبال ایران، بازیکنان و کادر فنی تنها در روز برگزاری مسابقات خود اجازه ورود به خاک آمریکا را دارند و باید همان روز این کشور را ترک کنند.
+
+به گزارش ایسنا، مهدی تاج که خود نتوانست ویزای آمریکا را دریافت کند روز یک‌شنبه همچنین گفت: «واقعا عجیب است که اینها تا این حد در حوزه اداره فوتبال دخالت می‌کنند. این کار نادر است.»
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75979
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75979_1780842403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان حقوق بشر کارون، روز شنبه ۱۶خرداد ۱۴۰۵ در گزارشی درباره اجرای قریب‌الوقوع حکم اعدام پنج زندانی سیاسی به نام‌های مسعود جامعی، علیرضا مرداسی (حمیداوی)، فرشاد اعتمادی‌فر، حسن مصلاوی و رضا عبدالی هشدار داد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87686
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87686_1780842404.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه خاتم الانبیاء برای عملیات‌ وعده صادق ۵ آماده است و حملات اسراییل به بیروت را بی پاسخ نمی گذارد
+
+هشدار ایران همچنان معتبر و در بالاترین سطح خود است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 340996
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340996_1780842406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «موضوع اصلی این است که آمریکایی‌ها باید حقوق جمهوری اسلامی را به رسمیت بشناسند، از جمله حق غنی‌سازی صلح‌آمیز هسته‌ای در چارچوب معاهده منع گسترش سلاح‌های هسته‌ای.»
+
+به گزارش رسانه‌های ایران، بقایی در واکنش به موضع آمریکا درباره دارایی‌های بلوکه شده، گفت: «در حالی که درباره دارایی‌های بلوکه‌شده ما صحبت می‌کنند، حاضر نیستند هیچ امتیازی در این زمینه بدهند.»
+https://iranintl.com/202606074113
+</div>
+
+## IranIntlTV — post 340995
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340995_1780842407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد ایرانیان مقیم بریتانیا یکشنبه ۱۷ خرداد علیه جمهوری اسلامی و در اعتراض به اعدام‌ها در ایران، در شهر شفیلد تجمع کردند.
+</div>
+
+## IranIntlTV — post 340994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میراث مرگبار علی خامنه‌ای؛ ایران میان طناب دار، گلوله و هوای آلوده
+
+🖋تحلیل - رضا اکوانیان
+
+۱۰۰ روز از کشته شدن علی خامنه‌ای می‌گذرد؛ رهبر پیشین جمهوری اسلامی که بیش از سه دهه در راس قدرت ایران ایستاد و نامش برای مردم ایران، از خانواده‌های دادخواه تا زندانیان سیاسی، معترضان و قربانیان سیاست‌های حکومتی، با اعدام، زندان، سانسور، تبعیض و مرگ‌های قابل پیشگیری گره خورده است.
+
+پس از انتشار خبر کشته شدن خامنه‌ای در حمله ۹ اسفند ۱۴۰۴ آمریکا و اسرائیل، شبکه‌های اجتماعی پر شد از روایت‌هایی که از شادی شماری از ایرانیان حکایت داشت.
+
+اعدام؛ ستون اصلی ماشین سرکوب
+یکی از جدی‌ترین انتقادها به علی خامنه‌ای، نقش او در حفظ و گسترش مجازات اعدام به‌عنوان یکی از اصلی‌ترین ابزارهای سرکوب در جمهوری اسلامی است.
+
+خامنه‌ای در آذر ۱۳۶۷، زمانی که رییس‌جمهوری بود، در روزنامه رسالت درباره اعدام زندانیان سیاسی نوشت کسانی که اعدام شدند، «مستحق» آن بودند. سال‌ها بعد نیز در خرداد ۱۳۹۶، در دفاع از کارنامه جمهوری اسلامی در دهه ۶۰ گفت: «جای شهید و جلاد عوض نشود.»
+
+سرکوب اعتراضات؛ از کوی دانشگاه تا دی ۱۴۰۴
+یکی از ثابت‌ترین ویژگی‌های دوران رهبری خامنه‌ای، برخورد امنیتی با اعتراضات بود. از اعتراضات دانشجویی و سیاسی تا تجمع‌های صنفی کارگران، معلمان، بازنشستگان، پرستاران، کشاورزان و اقلیت‌های قومی، حکومت به جای پاسخ به مطالبات شهروندان، عمدتا با بازداشت، پرونده‌سازی و سرکوب خیابانی واکنش نشان داد.
+
+پیش از موج‌های بزرگ اعتراضی نیز پرونده‌هایی چون قتل‌های زنجیره‌ای، سرکوب فعالان سیاسی و فشار بر مطبوعات و دانشگاه‌ها، نشانه‌هایی از تثبیت الگوی حذف، ارعاب و برخورد امنیتی با منتقدان در دوران خامنه‌ای بود.
+
+کنترل جامعه با سرکوب و سانسور
+یکی از مهم‌ترین ویژگی‌های دوران رهبری خامنه‌ای، گسترش سازوکارهای کنترل جامعه بود. در این دوره، سپاه پاسداران و بسیج از نهادهای صرفا نظامی فراتر رفتند و به بازیگران اصلی عرصه‌های امنیتی، سیاسی و اجتماعی تبدیل شدند.
+
+در کنار نیروهای رسمی، حضور نیروهای موسوم به لباس‌شخصی نیز به یکی از ویژگی‌های ثابت سرکوب اعتراضات و برخورد با مخالفان تبدیل شد؛ روندی که از کوی دانشگاه تا جنبش «زن، زندگی، آزادی» و اعتراضات دی ۱۴۰۴ بارها مشاهده شد.
+
+کنترل جامعه؛ از زنان تا دانشگاه‌ها و اقلیت‌ها
+حجاب اجباری یکی از ماندگارترین نمادهای کنترل اجتماعی در دوران رهبری خامنه‌ای بود. او بارها از حجاب اجباری دفاع کرد و آن را نه فقط یک حکم مذهبی، بلکه مساله‌ای سیاسی و هویتی دانست.
+
+برای میلیون‌ها زن ایرانی، این سیاست به نماد دخالت حکومت در زندگی خصوصی و محدود کردن حق انتخاب فردی تبدیل شد.
+
+جاده‌های مرگ
+در حالی که جمهوری اسلامی میلیاردها دلار به پروژه‌های ایدئولوژیک و نظامی اختصاص داد، فرسودگی جاده‌ها، ناایمن بودن خودروها و ضعف نظارت، تصادفات رانندگی را به یکی از مرگبارترین بحران‌های غیرنظامی ایران تبدیل کرد.
+
+بر اساس داده‌های سازمان پزشکی قانونی و آمارهای رسمی، از سال ۱۳۷۶ تا ۱۴۰۴ بیش از ۵۶۰ هزار نفر در حوادث رانندگی جان باختند. در همین بازه زمانی، بیش از یک میلیون و ۶۶۱ هزار نفر در حوادث رانندگی مصدوم شدند.
+
+آلودگی هوا؛ مرگ خاموش صدها هزار ایرانی
+آلودگی هوا در دهه‌های گذشته به یکی از مرگبارترین بحران‌های سلامت عمومی در ایران تبدیل شده است. در سال‌های ۱۳۹۰ تا ۱۳۹۵، مقام‌های وزارت بهداشت معمولا از حدود ۲۰ تا ۳۰ هزار مرگ سالانه منتسب به آلودگی هوا سخن می‌گفتند.
+
+در سال‌های بعد، این برآوردها به حدود ۳۵ تا ۴۰ هزار مرگ سالانه رسید و در نهایت، آمارهای رسمی سال‌های اخیر ابعاد سنگین‌تری از بحران را نشان داد.
+
+کرونا و فرمان مرگبار خامنه‌ای برای ممنوعیت واردات واکسن
+همه‌گیری کرونا به یکی از مرگبارترین بحران‌های تاریخ معاصر ایران تبدیل شد. بر اساس آمار رسمی، حدود ۱۴۰ تا ۱۴۶ هزار نفر در ایران بر اثر ابتلا به کووید-۱۹ جان باختند، اما برآوردهای مستقل و محاسبات مبتنی بر مرگ‌ومیر مازاد، شمار واقعی قربانیان را به‌مراتب بیشتر نشان می‌دهد.
+
+علی خامنه‌ای ۱۹ دی ۱۳۹۹ واردات واکسن‌های تولید آمریکا و بریتانیا را ممنوع اعلام کرد.
+
+فعالیت‌های فرامرزی؛ از ترور مخالفان تا تامین گروه‌های نیابتی
+در خارج از مرزهای ایران، سیاست‌های خامنه‌ای با ترور، ربایش و تهدید مخالفان گره خورد؛ از پرونده میکونوس تا پرونده‌های جدیدتر علیه روزنامه‌نگاران و فعالان سیاسی خارج کشور.
+
+هم‌ز‌مان، حمایت سازمان‌یافته از نیروهای نیابتی در سوریه، لبنان، عراق، یمن و غزه، جمهوری اسلامی را به بخشی از جنگ‌ها، سرکوب‌ها و بحران‌های انسانی منطقه تبدیل کرد.
+
+🔗متن کامل گزارش را اینجا بخوانید
+@iranintltv
+</div>
+
+## IranIntlTV — post 340993
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340993_1780842410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر مشاور در وزارت خارجه قطر در تماس تلفنی با وزیر خارجه سوریه، درباره تلاش‌های میانجی‌گرانه میان واشینگتن و تهران گفت‌وگو کرد.
+
+وزارت خارجه قطر در ایکس نوشت: «در این تماس درباره راه‌های تعمیق و گسترش همکاری‌های دوجانبه و همچنین تحولات جاری در سوریه و تلاش‌های میانجی‌گرانه میان ایالات متحده آمریکا و جمهوری اسلامی بحث و تبادل نظر شد.»
+https://iranintl.com/202606075952
+</div>
+
+## IranIntlTV — post 340992
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340992_1780842411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روزنامه جوان، وابسته به سپاه پاسداران، در واکنش به رد درخواست ویزای ۱۵ نفر از اعضای کاروان اعزامی فوتبال ایران به جام جهانی ۲۰۲۶ از سوی آمریکا، خواستار واکنش عملی فدراسیون فوتبال شده و تاکید کرده است که ایران نباید از مواضع قبلی خود عقب‌نشینی کند.
+
+🔹این روزنامه با اشاره به هشدارها و شرط‌گذاری‌های پیشین مسئولان فدراسیون فوتبال نوشته است: «آیا سر حرف‌مان می‌ایستیم یا عقب‌نشینی می‌کنیم؟ مطابق آنچه تاکنون گفته‌ایم، باید مقتدرانه پای حرف‌مان بایستیم.» جوان همچنین تاکید کرده است که اگر آمریکا در مسیر حضور ایران در جام جهانی کارشکنی کند، واکنش متناسب باید انجام شود و «این اقدام محکم چیزی نیست جز برگرداندن تیم.»
+
+🔹این روزنامه هشدار داده است که کوتاه آمدن در برابر اقدام آمریکا می‌تواند به فشارها و محدودیت‌های بیشتری علیه کاروان ایران منجر شود.
+
+🔹در بخش دیگری از این یادداشت آمده است: «اگر امروز کوتاه بیاییم، آن‌وقت حتما باید منتظر توطئه‌های بعدی باشیم.»
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340991
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340991_1780842412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به ان‌بی‌سی نیوز گفت که خواستار آن نیست لبنان بخشی از توافق کوتاه‌مدت با ایران باشد.
+
+او افزود که خواهان اضافه شدن بندی جدید به توافق است تا ایران نتواند با خرید سلاح هسته‌ای یا تجهیزات مرتبط، محدودیت‌های توافق را دور بزند.
+
+دونالد ترامپ گفت: «پرسیدم اگر آنها خودشان سلاح هسته‌ای تولید نکنند اما آن را خریداری یا به هر شکلی به دست آورند چه؟ من می‌خواهم در متن توافق عبارت خرید، تهیه یا کسب سلاح نیز گنجانده شود. آنها نه حق تولید سلاح هسته‌ای را دارند و نه حق خرید یا دستیابی به آن را.»
+
+او اضافه کرد که تهران در ابتدا با این درخواست مخالفت کرد اما از موضع خود عقب نشست.
+https://iranintl.com/202606070250
+</div>
+
+## IranIntlTV — post 340990
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340990_1780842413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جیانی مرلو، رئیس اتحادیه بین‌المللی مطبوعات ورزشی در اعتراض به سختگیری‌های شدید در روند بررسی و صدور ویزا در ایالات متحده نامه‌ای رسمی برای سخنگوی رسانه‌ای فیفا ارسال کرده است. او از فیفا خواسته فوراً وارد عمل شود و به نمایندگی از خبرنگارانی که ویزای آن‌ها رد شده، میانجی‌گری کند.
+
+🔹مرلو گفت: «در آستانه جام جهانی‌ای که تمام جهان آن را تماشا می‌کند، شاهد تکرار غیرقابل‌قبول رویه‌های قدیمی هستیم؛ رویه‌هایی که حتی خبرنگاران دارای اعتبارنامه رسمی فیفا نیز از دریافت ویزای ورود محروم می‌شوند.» او نگرانی خود را از این وضعیت ابراز کرد.
+
+🔹به نوشته اتحادیه بین‌المللی مطبوعات ورزشی (AIPS)، در حال حاضر، خبرنگارانی از ایران و بخش‌هایی از آفریقا، از جمله دیگر مناطق، به دلیل ناتوانی در دریافت به‌موقع ویزای آمریکا سرگردان مانده‌اند. به‌ویژه، صدور ویزاهای یک‌بار ورود از سوی دولت آمریکا که تنها یک‌بار اجازه ورود می‌دهد، موجب آشفتگی گسترده در میان خبرنگاران حاضر در محل شده است.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340989
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340989_1780842414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه ان‌بی‌سی نیوز گفت که اصراری ندارد لبنان در توافق کوتاه‌مدت میان واشینگتن و تهران گنجانده شود.
+
+او همچنین گفت که به‌عنوان بخشی از هرگونه توافق، دارایی‌های مسدودشده ایران را از ابتدا آزاد نخواهد کرد و هیچ تحریمی را نیز پیشاپیش لغو نخواهد کرد.
+
+دونالد ترامپ در پاسخ به این پرسش که آیا این اقدامات پس از توافق انجام خواهد شد، گفت: «بله، بعد از آن. اگر رفتار مناسبی داشته باشند و به تعهدات خود عمل کنند، آن وقت گفت‌وگو را آغاز می‌کنیم.»
+
+او اضافه کرد اگر بتواند با تهران برای پایان دادن به جنگ سه‌ماهه میان دو کشور به توافق برسد، آمریکا با ایران برای جمع‌آوری و نابودی ذخایر اورانیوم با غنای بالای این کشور همکاری خواهد کرد.
+
+دونالد ترامپ افزود در صورت عدم دستیابی به توافق، واشینگتن توان نظامی جمهوری اسلامی را بیش از پیش تضعیف خواهد کرد تا نیروهای آمریکایی بتوانند با امنیت کامل این مواد را خودشان جمع‌آوری کنند.
+https://iranintl.com/202606076614
+</div>
+
+## IranIntlTV — post 340988
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340988_1780842414.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکشنبه ایرانیان ساکن تورنتو همراه با جامعه یهودیان کانادا در مرکز این شهر راهپیمایی کردند. تجمع‌کنندگان تاکید کردند جمهوری اسلامی دشمن مشترک بسیاری از کشورها در جهان است.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340987
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340987_1780842417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع اسرائیلی به اسکای‌نیوز عربی گفت که هدف حمله به ضاحیه، در حومه جنوبی بیروت، یک مقر وابسته به حزب‌الله بوده و این حمله فرد مشخصی را هدف قرار نداده است.
+
+پیش‌تر بنیامین نتانياهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل اعلام کردند که دستور حمله به ضاحیه بیروت را صادر کرده‌اند.
+
+کاتز گفت حمله به ضاحیه در پاسخ به شلیک حزب‌الله به سمت خاک اسرائیل انجام شده است.
+https://iranintl.com/202606071871
+</div>
+
+## IranIntlTV — post 340986
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340986_1780842418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت فوتبال ۳۶۰ در گزارشی با انتقاد از فدراسیون فوتبال جمهوری اسلامی، وضعیت تیم ملی در جام جهانی را تحقیر فوتبال ایران توصیف کرد.
+
+ارزیابی مزدک میرزایی، ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 340985
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340985_1780842420.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش توجه‌ها به تحولات لبنان، کاربران شبکه‌های اجتماعی درباره جایگاه این کشور در سیاست‌های منطقه‌ای جمهوری اسلامی و پیامدهای تحولات اخیر برای تهران به بحث و تبادل نظر پرداخته‌اند.
+
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، از واکنش کاربران می‌گوید
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 340984
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340984_1780842423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خامنه‌ای صبح ۹ اسفند ۱۴۰۴ و در لحظات آغاز جنگ، با حمله به دفترش در قلب تهران، به همراه چندین نفر از فرماندهان ارشد نظامی، برخی مقام‌های سیاسی و اعضای دفترش کشته شد.
+
+در سال‌های اخیر و پس از گسترش حملات اسرائیل به مقام‌های حکومت ایران و فرماندهان و رهبران نیروهای نیابتی جمهوری اسلامی در منطقه، علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، نمازهای میت زیادی خوانده بود.
+
+در واقع یکی از بیشترین فعالیت‌های او همین اقامه نماز میت بر جنازه کشته‌شدگان بود، در حدی که برخی کاربران شبکه‌های اجتماعی به خامنه‌ای لقب «بلاگر نماز میت» دادند. حالا اما جنازه خود او ۱۰۰ روز شده که بر زمین مانده است.
+
+حکومت جمهوری اسلامی ۱۰۰ روز پس از واقعه، نه موفق شده تصویری از رهبر جدیدش نشان دهد و نه جنازه رهبر پیشین را دفن کند.
+
+متن کامل را در سایت ایران‌اینترنشنال بخوانید.
+https://www.iranintl.com/202606039229
+</div>
+
+## IranIntlTV — post 340983
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340983_1780842424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم مونیخ در آلمان شنبه ۱۶ خرداد پرفورمنسی را علیه اعدام‌های جمهوری اسلامی اجرا کردند.
+</div>
+
+## IranIntlTV — post 340982
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340982_1780842427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد آمریکا پیش‌نویس متن قطعنامه‌ای را برای نشست این هفته شورای حکام آژانس بین‌المللی انرژی اتمی توزیع کرده است.
+بر اساس این گزارش، در این پیش‌نویس از جمهوری اسلامی خواسته شده بدون تاخیر اطلاعات دقیق درباره مواد و تاسیسات هسته‌ای خود را در اختیار آژانس قرار دهد.
+رویترز همچنین نوشت در این قطعنامه از جمهوری اسلامی خواسته شده فورا تمامی دسترسی‌های مورد نیاز را برای بازرسان آژانس فراهم کند.
+https://iranintl.com/202606070622
+</div>
+
+## IranIntlTV — post 340981
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340981_1780842427.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، با انتشار تصویری از یک افسر نگهبان روی ناوشکن موشک‌انداز یواس‌اس مایکل مورفی، اعلام کرد که از زمان آغاز عملیات محاصره بنادر ایران، ۱۳۲ کشتی تجاری مجبور به تغییر مسیر شده‌اند و ناوگان آمریکا شش کشتی را از کار انداخته است.
+https://iranintl.com/202606075373
+</div>
+
+## IranIntlTV — post 340980
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340980_1780842428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانياهو، نخست‌وزیر و یسرائیل کاتز، وزیر دفاع اسرائیل اعلام کردند که دستور حمله به ضاحیه بیروت را صادر کرده‌اند.
+
+در پی این دستور، سخنگوی ارتش اسرائیل از حمله به ضاحیه بیروت خبر داد.
+
+کاتز اعلام کرد که حمله به ضاحیه بیروت، در پاسخ به شلیک حزب‌الله به سمت خاک اسرائیل انجام شده است.
+https://iranintl.com/202606072355
+</div>
+
+## IranIntlTV — post 340979
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340979_1780842429.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بر اساس اطلاعات صفحه فلای‌رادار، تیم ملی پس از پایان اردوی آماده‌سازی خود در آنتالیا، با یک فروند هواپیمای ایرباس A۳۴۰-۳۰۰ متعلق به شرکت هواپیمایی آلمانی USC راهی مکزیک شد و پس از توقفی در سانتیاگو د کامپوستلا در اسپانیا، دقایقی پیش در تیخوانای مکزیک فرود آمد.
+
+🔹مهدی تاج، رییس فدراسیون فوتبال، و امیرمهدی علوی، سخنگوی فدراسیون، در ماه‌های گذشته بارها بر استفاده از پروازهای ایران‌ایر برای سفر تیم ملی به جام جهانی تاکید کرده بودند.
+
+🔹مهدی تاج پیش‌تر در گفت‌وگو با وب‌سایت فدراسیون فوتبال گفته بود: «با تغییر کمپ تیم ملی از آمریکا به مکزیک، مساله ویزا تا اندازه زیادی حل می‌شود و می‌توانیم با پرواز ایران‌ایر به مکزیک برویم و برگشت هم از همان‌جا بیاییم.»
+
+🔹با این حال، کاروان تیم ملی در نهایت با هواپیمای شرکت آلمانی USC که در سال ۲۰۲۰ تاسیس شده، راهی مکزیک شد. این تغییر در شرایطی رخ داده که ایران‌ایر همچنان تحت تحریم‌های آمریکا قرار دارد و امکان پرواز مستقیم این شرکت به خاک آمریکا یا استفاده از آن در برخی مسیرهای مرتبط با جام جهانی با محدودیت‌های جدی روبه‌رو است.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340978
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340978" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | یکشنبه ۱۷ خرداد
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 14:03:26 UTC
+
+Heavy US jet activity over Anbar province
+#Iraq 🇮🇶
+
+فارسی
+
+فعالیت سنگین جت‌های آمریکایی بر فراز استان الانبار
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6594
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6594_1780842430.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 13:44:08 UTC
+
+Islamic Regime's national TV regarding Israel's strikes on Dahieh, Lebanon:
+IRGC Khatam HQ is ready for the "Operation True Promise 5"
+
+فارسی
+
+تلویزیون ملی رژیم اسلامی در رابطه با حملات اسرائیل به ضاحیه لبنان:
+قرارگاه خاتم سپاه پاسداران انقلاب اسلامی برای «عملیات وعده صادق ۵» آماده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Sun, 07 Jun 2026 11:59:05 UTC What people don't understand is that the "Government" of the Islamic Regime in Iran has no power over jack shit, everything is under IRGC's control, and IRGC is the pet hound of the "Supreme…
+</div>
+
+## Shin_Persian — post 6591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 11:59:05 UTC
+
+What people don't understand is that the "Government" of the Islamic Regime in Iran has no power over jack shit, everything is under IRGC's control, and IRGC is the pet hound of the "Supreme Leader", the government, including the Ministry of Foreign Affairs is just there to take
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+چیزی که مردم درک نمی‌کنند این است که «دولت» رژیم اسلامی در ایران هیچ اختیاری بر هیچ کوفتی ندارد؛ همه‌چیز تحت کنترل سپاه پاسداران انقلاب اسلامی (IRGC) است و سپاه هم سگ دست‌آموز «رهبر معظم» است. دولت، از جمله وزارت امور خارجه، فقط برای این آنجا هستند که مسئولیت بپذیرند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 13:15:33 UTC
+
+7 dead in Dahieh as of now.
+Beirut, Lebanon.
+
+فارسی
+
+تا این لحظه ۷ کشته در ضاحیه.
+بیروت، لبنان.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6589
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6589_1780842432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+acceladealer ✓ @acceladealer
+Sun, 07 Jun 2026 12:50:30 UTC
+
+Heavy damage and partial collapse of building in the Dahieh suburb of BEIRUT, Lebanon
+
+33.832316, 35.511020
+
+@GeoConfirmed @FaytuksNetwork
+
+geolocated by @acceladealer and @andynovy
+
+فارسی
+
+خسارات سنگین و فروریختن جزئی ساختمانی در حومه ضاحیه بیروت، لبنان
+
+۳۳.۸۳۲۳۱۶, ۳۵.۵۱۱۰۲۰
+
+@GeoConfirmed @FaytuksNetwork
+
+تایید جغرافیایی توسط @acceladealer و @andynovy_
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105951
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105951_1780842433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنرانی «من رویایی در سر دارم» مارتین لوتر کینگ جونیور، یکی از برجسته‌ترین نمونه‌های قدرت کلام در سیاست و تاریخ معاصر است.
+
+اهمیت این سخنرانی فقط در موضوع تبعیض نژادی یا تاریخ آمریکا خلاصه نمی‌شود، بلکه در این است که نشان داد یک سخنرانی می‌تواند مطالبه عدالت را از سطح اعتراض روزمره به سطح یک افق اخلاقی و جهانی برساند.
+
+لوتر کینگ با زبانی شاعرانه، روشن و عمیقا انسانی، سیاست را به پرسشی درباره کرامت، برابری و آینده مشترک انسان‌ها تبدیل کرد. «من رویایی در سر دارم» یادآور این است که سخن سیاسی، وقتی با ایمان به عدالت و امید به تغییر همراه شود، می‌تواند از مرز زمان و مکان فراتر برود و الهام‌بخش نسل‌هایی باشد که هنوز برای آزادی و برابری مبارزه می‌کنند.
+</div>
+
+## ManotoTV — post 105950
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105950_1780842437.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئوی ارسالی یک گزارشگر منوتو درباره تورم و تجمعات حکومتی
+</div>
+
+## FarsiVOA — post 219861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوشنگ امیراحمدی در عمق میدان از تلاش‌های دنباله‌دار خود برای عادی‌سازی رابطه آمریکا و جمهوری اسلامی گفت اما به این پرسش که در خلأ رهبری سیاسی در ایران دقیقا با کدام فرد یا گروه گفت‌وگو می‌کند پاسخی نداد.
+</div>
+
+## FarsiVOA — post 219859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: واشنگتن و تهران در صورت توافق برای نابودی ذخایر اورانیوم غنی‌شده همکاری خواهند کرد
+
+◾️دونالد ترامپ، رئیس جمهوری ایالات متحده، اعلام کرد اگر واشنگتن و تهران به توافقی برای پایان دادن به درگیری میان دو کشور دست یابند، آمریکا با جمهوری اسلامی برای جمع‌آوری و نابودی ذخایر اورانیوم غنی‌شده همکاری خواهد کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-says-us-will-work-with-iran-to-destroy-enriched-uranium-if-they-deal/8158201.html
+</div>
+
+## FarsiVOA — post 219858
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219858_1780842439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعتی پیش ارتش اسرائیل اعلام کرد درحال هدف‌گیری زیرساخت‌های حزب‌الله در ضاحیه بیروت است.
+
+پیشتر حزب‌الله لبنان موشک‌هایی به شمال اسرائیل شلیک کرده بود که رهگیری و منهدم شدند. چهار نیروی ارتش اسرائیل نیز روز شنبه بر اثر برخورد پهپاد حزب‌الله در جنوب لبنان مجروح شدند.
+
+درگیری‌ها میان اسرائیل و حزب‌الله متوقف نشده و این گروه شبه‌نظامی تحت حمایت جمهوری اسلامی آتش‌بس را رد کرده است.
+</div>
+
+## FarsiVOA — post 219857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تولید نفت اوپک‌پلاس بار دیگر افزایش می‌یابد؛ تلاش برای مقابله با بزرگ‌ترین بحران عرضه انرژی
+
+◾️سه منبع آگاه در اوپک‌پلاس اعلام کردند این گروه قرار است روز یکشنبه ۱۷ خرداد با چهارمین افزایش متوالی در اهداف تولید نفت طی چهار ماه گذشته موافقت کند. این در حالی است که عملیات نظامی آمریکا با جمهوری اسلامی همچنان مانع از آن است که چندین عضو این ائتلاف بتوانند تولید خود را افزایش دهند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/reuters-says-opec-set-for-fourth-oil-quota-hike-since-hormuz-closure/8158189.html
+</div>
+
+## FarsiVOA — post 219856
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219856_1780842443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوشنگ امیراحمدی که برای عادی‌سازی رابطه جمهوری اسلامی و آمریکا تلاش می‌کند در گفت‌وگو با فهیمه خضر حیدری در «عمق میدان» می‌گوید با براندازی در ایران مخالف است
+</div>
+
+## FarsiVOA — post 219855
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺عبدالرسول مرتضوی از شکنجه گسترده بازداشت‌شدگان اعتراضات دی در اصفهان خبر داد
+
+◾️عبدالرسول مرتضوی، زندانی سیاسی محبوس در زندان مرکزی اصفهان، در پیامی تلفنی از شکنجه و بدرفتاری با صدها تن از بازداشت‌شدگان اعتراضات دی ۱۴۰۴ در بازداشتگاه‌های امنیتی و زندان مرکزی اصفهان خبر داده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/isfahan-detainees-reportedly-tortured-by-iranian-regime/8158191.html
+</div>
+
+## FarsiVOA — post 219854
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گسترش دامنه مخالفت‌ها با مداخله رژیم ایران در لبنان؛ سیاست‌مداران لبنانی: دست از سر ما بردارید
+
+◾️در روزهای اخیر انتقادات مقامات و احزاب لبنانی، از رئیس‌جمهوری تا نخست‌وزیر این کشور، از دهه‌ها دخالت جمهوری اسلامی در امور داخلی لبنان بالا گرفته است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/lebanon-hezbollah-irgc-war-terrorism-/8158184.html
+</div>
+
+## FarsiVOA — post 219852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام درباره محاصره دریایی جمهوری اسلامی: ۱۳۲ کشتی را وادار به تغییر مسیر کرده‌ایم و ۶ شناور را از کار انداخته‌ایم
+
+◾️سنتکام، در یک به‌روز‌رسانی تازه درباره محاصره دریایی جمهوری اسلامی، از افزایش تعداد شناورهایی که در جریان این عملیات وادار به تغییر مسیر شده‌اند، خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-naval-blockade-commercial-ships-iran/8158185.html
+</div>
+
+## FarsiVOA — post 219851
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219851_1780842444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد سکوهای پرتاب موشک متعلق به حزب‌الله را که برای هدف‌گیری اسرائیل استفاده شده بود منهدم کرده است.
+
+بنابر بیانیه ارتش اسرائیل دو موشکی که امروز از لبنان به سمت شمال اسرائیل شلیک شده بود رهگیری و منهدم شده و سکوهای پرتاب موشک‌ها نیز به سرعت شناسایی و هدف‌گیری شدند.
+</div>
+
+## FarsiVOA — post 219850
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219850_1780842446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از بازنشستگان یکشنبه ۱۷ خرداد در اعتراض به شرایط دشوار معیشتی مقابل سازمان تامین اجتماعی در تهران تجمع کردند و خواستار آزادی کارگران و معلمان زندانی مانند «مسعود فرهیخته» شدند.
+</div>
+
+## FarsiVOA — post 219849
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219849_1780842450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش دفاعی اسرائیل به زبان فارسی ویدیویی از روند آماده‌سازی فرماندهان آینده این ارتش منتشر کرده است.
+
+سخنگوی فارسی زبان ارتش اسرائیل در این ویدیو با اشاره به آموزشگاه (هنگ) نوجوانان ارتش شاهنشاهی قبل از انقلاب ۵۷ که از ارزش‌هایی مشابه در پرورش نسل بعدی رزمندگان پیروی می‌کرد، می‌گوید در مقابل، جمهوری اسلامی همچنان به سرمایه‌گذاری روی نیروهای نیابتی و گسترش تروریسم ادامه می‌دهد.
+</div>
+
+## FarsiVOA — post 219848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن قاصد، کنشگر و همیار محیط‌زیست، ویدیویی از بازگشت فلامینگوها به دریاچه ارومیه را در صفحه اینستاگرام خود منتشر کرد.
+
+همزمان با بهبود وضعیت دریاچه ارومیه، این پرندگان مهاجر به زیستگاه‌شان بازگشته‌اند.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125641
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125641_1780842452.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶پزشکیان: رسانه ملی حق ندارد تحلیل‌های یک‌جانبه و غیرمستند منتشر کند
+
+مسعود پزشکیان، رئيس‌جمهور ایران از انتشار برخی تحلیل‌های به گفته او، "یک‌جانبه و غیرمستند" در رسانه ملی جمهوری اسلامی انتقاد کرد.
+
+او با انتقاد از عملکرد صدا‌وسیما در این زمینه گفت: «در شرایطی که دولت به دلیل ملاحظات ملی و امنیتی امکان بیان برخی واقعیت‌ها را ندارد، رسانه ملی نیز حق ندارد با تحلیل‌های یک‌جانبه و غیرمستند، به تشویش افکار عمومی و سیاه‌نمایی نسبت به عملکرد دولت بپردازد.»
+
+پزشکیان که روز یک‌شنبه ۱۷ خرداد (۷ ژوئن) در جلسه شورای هماهنگی اقتصادی دولت صحبت می‌کرد با اشاره به شرایط جنگی کنونی به دلیل حملات آمریکا و اسرائيل و روشن نبودن آینده آتش‌بس افزود، در شرایطی که اقتصاد کشور تحت تأثیر مستقیم این جنگ و "محدودیت‌های ناشی از تحریم‌های اقتصادی و فشارهای تجاری، از جمله محاصره دریایی" قرار دارد "نمی‌توان تمامی تحولات قیمتی را صرفا به عملکرد دولت نسبت داد."
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125640
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125640_1780842453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶نماینده مجلس: دانش‌آموزان دست از اعتراضات بردارند و بروند درس‌شان را بخوانند
+
+عضو کمیسیون آموزش و تحقیقات مجلس شورای اسلامی مسئولیت پاسخگویی به اعتراضات دانش‌آموزان را بر عهده شورای عالی انقلاب فرهنگی دانست.
+
+عبدالوحید فیاضی یکشنبه ۱۷ خرداد در گفت‌وگو با خبرنگاری ایلنا گفت: «یک قانونی تحت عنوان سنجش و پذیرش، حدود ده سال پیش توسط مجلس وضع شده است که درباره تاثیر سوابق تحصیلی بوده است و قانون مذکور آن‌گونه که باید اجرا نشده است و در پی آن، شورای عالی انقلاب فرهنگی تغییراتی را در این زمینه ایجاد کرده است. در حال حاضر، مسئولیت پاسخگویی در این موضوع بر عهده شورای عالی انقلاب فرهنگی است.»
+
+این نماینده مجلس افزود: «این شورا همچنان بر مواضع خود در خصوص تأثیر معدل بر آزمون کنکور پافشاری می‌کند و به دنبال تحقق نظرات خود در این زمینه است. طبق قوانین موجود، هنگامی که شورای عالی انقلاب فرهنگی به یک موضوع ورود می‌کند، مجلس معمولا در آن زمینه دخالت نمی‌کند و شورا باید پاسخگو باشد.»
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125639
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125639_1780842454.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶نایب‌رئیس مجلس: دشمن دچار شکست راهبردی شد؛ انتقام خامنه‌ای را می‌گیریم
+
+علی نیکزاد، نایب‌رئیس مجلس شورای اسلامی با تقدیر از "حاکمیت‌ بی‌چون و چرای" جمهوری اسلامی بر تنگه هرمز محاصره بنادر دریایی ایران توسط آمریکا را "شکست‌خورده" نامید.
+
+به گزارش ایسنا، او روز یکشنبه ۱۷ خرداد در نشست مجازی مجلس گفت: «دشمن با محاصره دریایی نیز کوشید با اخلال در فروش نفت و همچنین اختلال در تأمین کالاهای اساسی کشور، صفوف به‌هم‌پیوسته ملت ایران را مخدوش کرده و تاب‌آوری ملت ایران را هدف قرار دهد اما در این مرحله نیز با شکست راهبردی مواجه شد.»
+
+علی نیکزاد با تأکید بر این که "دشمن در جنگ ترکیبی تأکید خود را از جمله بر "خطا در دستگاه محاسباتی مسئولان و کاشت بذر تردید و بدگمانی" نهاده از صاحبان تریبون در جمهوری اسلامی خواست تا "از بیان نکات اختلاف‌برانگیز خودداری کنند."
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125638
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125638_1780842454.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶اوپک‌پلاس در تکاپوی چهارمین افزایش سهمیه تولید نفت تشکیل جلسه می‌دهد
+
+رویترز در گزارشی با اتکا به اظهارات سه منبع نوشت، اوپک‌پلاس احتمالا در نشست روز یکشنبه ۱۷ خرداد خود با چهارمین افزایش سهمیه تولید نفت در چند ماه اخیر موافقت خواهد کرد.
+
+به نوشته این خبرگزاری، این تصمیم در حالی اتخاذ می‌شود که تنش‌ها میان آمریکا و ایران همچنان مانع از آن می‌شود که چند عضو این گروه بتوانند نفت بیشتری پمپاژ کنند.
+
+این درگیری‌ها جریان نفت از طریق تنگه هرمز را قطع کرده و بزرگ‌ترین بحران عرضه این ماده حیاتی در تاریخ جهان را رقم زده است؛ چرا که اعضای کلیدی اوپک‌پلاس، از جمله عربستان سعودی از اواخر ماه فوریه نتوانسته‌اند نیاز مشتریان خود را به‌طور کامل تامین کنند.
+
+بحران اوپک‌پلاس زمانی عمیق‌تر شد که امارات متحده عربی پس از نزدیک به ۶۰ سال عضویت، این سازمان را ترک کرد.
+
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125637
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125637_1780842455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶پنتاگون سطح تهدید جاسوسی از طرف اسرائیل را به مرحله "بحرانی" افزایش داد
+
+بر اساس گزارش شبکه ان‌بی‌سی نیوز که روز شنبه به نقل از دو مقام آمریکایی منتشر شد، پنتاگون برآورد خود از فعالیت‌های جاسوسی اسرائیل علیه ایالات متحده را به بالاترین سطح در تاریخ روابط دو کشور افزایش داده است.
+
+این گزارش مدعی شد که پنتاگون ارزیابی تهدید ضدجاسوسی خود درباره اسرائیل را به بالاترین سطح ممکن رسانده است و دلیل اصلی آن، تنش‌ها میان مقام‌های اسرائیلی و آمریکایی بر سر نحوه ادامه جنگ با جمهوری اسلامی و گروه‌های نیابتی آن عنوان شده است.
+
+در همین راستا نیویورک تایمز نیز گزارش داد که استیو ویتکاف، فرستاده ویژه ایالات متحده، البریج کولبی، عالی‌ترین مقام سیاست‌گذاری پنتاگون، و مایکل دی‌مینو و یکی از مقام‌های ارشد وزارت دفاع ایالات متحده، از جمله افرادی بودند که هدف "جاسوسی اسرائیل" قرار گرفته بودند.
+
+طبق اعلام منابع ان‌بی‌سی، ارزیابی آژانس اطلاعات دفاعی آمریکا شامل یک گزارش هفت صفحه‌ای درباره سطح تهدید بود و حتی نمودارهایی را نیز در بر می‌گرفت.
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶حداقل ۱۱ کشته در حمله پهپادی به بازاری در سودان
+
+بر اساس گزارش فعالان حقوق بشری، در پی یک حمله پهپادی به بازاری در مرکز سودان در روز شنبه ششم ژوئن، حداقل ۱۱ غیرنظامی جان خود را از دست دادند.
+
+به گفته سازمان حقوق بشری "وکلای اضطراری" (Emergency Lawyers) که وقایعی این‌چنین را در سودان مستند می‌کند، در این حمله ده‌ها تن دیگر نیز زخمی شده‌اند.
+
+جنگ میان ارتش سودان و شبه‌نظامیان "نیروهای پشتیبانی سریع" (RSF) این کشور نزدیک به سه سال است که ادامه دارد.
+
+بر اساس این گزارش، هدف این حمله، بازار اصلی در "ابو زعیمه" بوده است؛ شهری در استان کردفان شمالی که تحت کنترل شبه‌نظامیان قرار دارد.
+
+فعالان سودانی از احتمال افزایش شمار قربانیان سخن گفته‌اند. با این حال، این سازمان مشخص نکرده که چه کسی مسئول این حمله بوده و تاکنون هیچ‌یک از طرفین درگیر نیز در این باره اظهار نظری نکرده‌اند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶نشست چهارجانبه بر سر اوکراین با هدف افزایش فشار بر روسیه
+
+فریدریش مرتس، صدراعظم آلمان، امانوئل مکرون، رئیس جمهور فرانسه، و کی‌یر استارمر، نخست‌وزیر بریتانیا، امروز یکشنبه ۷ ژوئن (۱۷ خرداد) در لندن با ولودیمیر زلنسکی، رئیس جمهور اوکراین، بر سر گام‌های بعدی برای پایان دادن به جنگ روسیه علیه این کشور گفت‌وگو می‌کنند.
+
+کاخ الیزه اعلام کرده است که محور این دیدار، ادامه حمایت از اوکراین و افزایش فشار بر روسیه خواهد بود. همچنین قرار است روند فعالیت‌های ائتلاف حامیان اوکراین مورد بررسی قرار گیرد. این ائتلاف متشکل از حدود ۳۵ کشور عمدتاً اروپایی، از جمله آلمان است.
+
+ولودیمیر زلنسکی، رئیس جمهور اوکراین، اخیراً در نامه‌ای سرگشاده پیشنهاد داده بود که به شکل حضوری و مستقیم با ولادیمیر پوتین، رئیس جمهور روسیه، دیدار کند.
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥یک کشته و ۵ زخمی در سوء قصد "تروریستی" در اسرائیل
+
+در روز یکشنبه (۷ ژوئن/ ۱۷ خرداد) در چندین نقطه در شمال شرق تل‌آویو سوء قصد مسلحانه رخ داد. پلیس این تیراندازی را "حمله تروریستی" تلقی می‌کند. یک مظنون و یک شهروند ۳۵ ساله کشته و دست‌کم ۵ نفر هم زخمی شده‌اند.
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ اسرائیل علیه لبنان از دوم مارس تاکنون حداقل ۳۶۱۳ کشته برجای گذاشته است
+</div>
+
+## Persian_Trend_Official — post 15883
+
+
+
+
+## Persian_Trend_Official — post 15881
+
+
+
+
+## Persian_Trend_Official — post 15879
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15879_1780842456.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از ساختمان هدف قرار گرفته در ضاحیه بیروت
+</div>
+
+## Persian_Trend_Official — post 15878
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15878_1780842457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا این مرد چه در چنته دارد که اینگونه بی محابا به سمت هدف حرکت میکند !
+😄
+</div>
+
+## Persian_Trend_Official — post 15877
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15877_1780842457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری های لبنان از 2 کشته و 11 زخمی در نتیجه حمله امروز اسرائیل به ضاحیه بیروت خبر دادند.
+</div>
+
+## Persian_Trend_Official — post 15876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: احتمال زیادی وجود دارد که از محل اقامت مجتبی خامنه‌ای مطلع باشم
+</div>
+
+## Persian_Trend_Official — post 15875
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15875_1780842458.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: احتمال زیادی وجود دارد که از محل اقامت مجتبی خامنه‌ای مطلع باشم
+</div>
+
+## Persian_Trend_Official — post 15874
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Trump reiterates US will destroy Iran’s highly enriched uranium
+</div>
+
+## Persian_Trend_Official — post 15873
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15873_1780842458.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از انتقال مجروحان به مراکز درمانی در حمله اسرائیل به ضاحیه بیروت
+</div>
+
+## Persian_Trend_Official — post 15872
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15872_1780842461.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 15871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آماده لایو اضطراری باشید به محض تحرکات تهاجمی از جمهوری اسلامی لایو رو شروع میکنیم
+</div>
+
+## Persian_Trend_Official — post 15870
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15870_1780842461.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر ایران رفتار خوبی داشته باشد و کار خوبی انجام دهد، آن وقت مذاکره را شروع خواهیم کرد.
+
+اگر به توافق نرسیم، ارتش ایران را بیشتر تضعیف خواهیم کرد تا زمانی که نیروهای ما بتوانند با خیال راحت اورانیوم آنها را بردارند.
+
+ضروری نیست که لبنان بخشی از آتش‌بس با ایران باشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15869
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15869_1780842462.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱اسرائیل پس از حمله به بیروت: فعلاً انتظار پاسخ مستقیم ایران را نداریم
+
+رسانه‌های عبری به نقل از منابع امنیتی گزارش دادند که حمله اخیر اسرائیل به بیروت ماهیتی محدود داشته و در ارزیابی‌های اولیه، احتمال پاسخ مستقیم ایران به این اقدام پایین ارزیابی شده است.
+
+
+📰همچنین کانال ۱۲ اسرائیل اعلام کرد که تاکنون هیچ تغییری در دستورالعمل‌های امنیتی جبهه داخلی در شمال اسرائیل اعمال نشده است. به گفته منابع اسرائیلی، هدف از این حمله سنجش میزان حساسیت و واکنش ایران نسبت به تحولات لبنان بوده است.
+
+گزارش‌ها حاکی است اسرائیل پیش از اجرای این عملیات، آمریکا را در جریان قرار داده بود. برخی خبرنگاران اسرائیلی نیز مدعی شده‌اند ساختمانی که هدف قرار گرفت در زمان حمله خالی از نیرو بوده و عملیات بیشتر جنبه نمادین داشته است.
+
+با این حال، منابع لبنانی از تلفات و مجروحان متعدد در پی این حمله خبر می‌دهند. رسانه‌های اسرائیلی نیز گزارش داده‌اند که این عملیات با شلیک حدود ۱۰ موشک و با مشارکت دو جنگنده انجام شده است.
+
+به نظر می‌رسد اسرائیل تلاش کرده بدون عبور از خطوط قرمز تهران، پیام بازدارندگی خود را به حزب‌الله و محور مقاومت منتقل کند. با این حال، میزان تلفات و نحوه برداشت طرف مقابل از این حمله می‌تواند در تعیین سطح تنش‌های روزهای آینده نقش مهمی داشته باشد.
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15868
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15868_1780842463.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث خبر داد که اسرائیل پیش از حمله به ضاحیه بیروت آمریکا را مطلع کرده بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل: حمله اسرائیل به منطقه ضاحیه بیروت، یک مرکز فرماندهی حزب‌الله را هدف قرار داد.
+
+مقامات امنیتی هنوز نمی‌توانند تأیید کنند که آیا این مرکز در زمان حمله دارای پرسنل بوده است یا خیر؛ ممکن است خالی بوده باشد.
+
+این حمله به خاطر خود حمله انجام شد، نه برای از بین بردن یک شخصیت خاص، به طوری که حتی اگر اعضای حزب‌الله مورد اصابت قرار گرفته باشند، اعضای سطح پایین بوده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15866
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15866_1780842463.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منایع غیر رسمی از ترور هدفمند در ضاحیه بیروت خبر میدهند....... گزارش های محلی از تعداد زیادی کشته و زخمی در حمله هوایی اسرائیل به مرکز فرماندهی حزب الله در جنوب بیروت خبر می‌دهند. حمله هوایی اسرائیل به حومه جنوبی بیروت شامل سه بمب بود که دو آپارتمان در منطقه…
+</div>
+
+## Persian_Trend_Official — post 15865
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15865_1780842464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منایع غیر رسمی از ترور هدفمند در ضاحیه بیروت خبر میدهند.......
+گزارش های محلی از تعداد زیادی کشته و زخمی در حمله هوایی اسرائیل به مرکز فرماندهی حزب الله در جنوب بیروت خبر می‌دهند.
+
+حمله هوایی اسرائیل به حومه جنوبی بیروت شامل سه بمب بود که دو آپارتمان در منطقه نزلت الموقف در ضاحیه را هدف قرار داد.
+
+
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15861
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15861_1780842465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه مشترک نخست وزیر اسرائیل نتانیاهو و وزیر دفاع کاتز: طبق دستورالعمل نخست وزیر نتانیاهو و وزیر دفاع کاتز، ارتش اسرائیل در حال حاضر در پاسخ به شلیک حزب الله به سمت خاک اسرائیل، به مقر تروریست‌ها در منطقه ضاحیه بیروت حمله می‌کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: توافق شامل آزادسازی فوری دارایی‌های مسدود شده ایران نخواهد بود
+
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، در مصاحبه‌ای که روز یکشنبه پخش شد، جزئیاتی از دیدگاه‌های خود درباره توافق با ایران را اعلام کرد و یادآور شد این توافق احتمالی به آزادسازی فوری دارایی‌های مسدودشده این کشور منجر نخواهد شد.
+
+🔸او در گفت‌وگو با شبکه ان‌بی‌سی با اشاره به این که موضوع آزادسازی دارایی‌های ایران بعدتر مطرح خواهد شد، افزود: «اگر رفتارشان خوب باشد و عملکرد خوبی داشته باشند، آن وقت دربارهٔ آن صحبت خواهیم کرد.»
+
+🔸ترامپ همچنین گفت اگر بتواند با تهران برای پایان دادن به جنگ سه‌ماهه میان دو کشور به توافق برسد، آمریکا با ایران برای جمع‌آوری و نابودی ذخایر اورانیوم با غنای بالا همکاری خواهد کرد.
+
+🔸رئیس‌جمهور ایالات متحده در این باره توضیح داد: «اگر توافقی حاصل شود و روابط دوستانه‌ای داشته باشیم، همه با هم این کار را انجام خواهیم داد. تجهیزات متعلق به ما خواهد بود. این مواد را خارج کرده و نابود می‌کنیم؛ چه در همان محل و چه در مکانی دیگر.»
+
+🔸ترامپ افزود: «ما یا همراه با آنها این کار را انجام می‌دهیم یا بدون آنها. اما در آن صورت کسی به سمت ما تیراندازی نخواهد کرد، درست است؟ اگر هم به توافق نرسیم، برخورد نظامی خیلی سختی با آنها خواهیم کرد. سپس صبر می‌کنیم تا این کار انجام شود و بعد وارد عمل می‌شویم؛ در هر دو حالت امنیت خواهیم داشت.»
+
+🔸او همچنین گفت آمریکا قادر است فعالیت‌های هسته‌ای را زیر نظر داشته باشد: «ما همه‌جا را زیر نظر داریم. اگر کسی آنجا قدم بزند، حتی اگر شما آنجا راه بروید، من می‌توانم نام کوچک روی نشان لباس شما را بخوانم. اینها دوربین‌هایی هستند که در فضا قرار دارند. فناوری واقعاً شگفت‌انگیزی است.»
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان با انتقاد از صداوسیما گرانی و تورم را نتیجه جنگ و محاصره دریایی آمریکا دانست
+
+🔸مسعود پزشکیان، رئیس‌جمهور ایران، روز یکشنبه افزایش شدید نرخ تورم در کشور را به جنگ با آمریکا و اسرائیل و همجنین محاصره دریایی ایالات متحده نسبت داد و از صداوسیما انتقاد کرد.
+
+🔸مرکز آمار ایران در آخرین گزارش خود اعلام کرد که تورم نقطه به نقطه در فروردین ماه امسال به حدود ۷۴ درصد رسیده و این عدد برای گروه خوراکی‌ها ۱۱۵ درصد بوده است. از سوی دیگر برخی رسانه‌ها گزارش داده‌اند که با اعمال محاصره دریایی توسط ارتش ایالات متحده از اواخر فروردین، درآمد نفتی ایران به‌شدت سقوط کرده است.
+
+🔸پزشکیان در جلسه شورای هماهنگی اقتصادی دولت درباره دلایل افزایش نرخ تورم گفت: «در شرایطی که اقتصاد کشور تحت تأثیر مستقیم جنگ تحمیلی آمریکا و رژیم صهیونیستی علیه ایران، محدودیت‌های ناشی از تحریم‌های اقتصادی، فشارهای تجاری از جمله محاصره دریایی است نمی‌توان تمامی تحولات قیمتی را صرفاً به عملکرد دولت نسبت داد.»
+
+🔸او بدون اشاره به جزئیات بیشتر مدعی شد که دولت به دلیل «ملاحظات ملی و امنیتی» نمی‌تواند «برخی واقعیت‌ها» را بیان کند.
+
+🔸پزشکیان افزود که صداوسیمای جمهوری اسلامی «حق ندارد با تحلیل‌های یک‌جانبه و غیرمستند، به تشویش افکار عمومی و سیاه‌نمایی نسبت به عملکرد دولت بپردازد».
+
+🔸رئیس‌جمهور ایران گفت که به‌رغم خسارت‌های ناشی از جنگ و فشارهای اقتصادی «دولت با بسیج ظرفیت‌های اجرایی کشور تلاش کرده است آثار و تبعات سنگین این جنگ اقتصادی و امنیتی را به حداقل برساند».
+
+🔸برخی گزارش‌ها بعد از برقراری آتش‌بس میان ایران و آمریکا حاکی از نگرانی مقام‌های جمهوری اسلامی از آغاز دور جدیدی از اعتراض‌های خیابانی به دلیل مشکلات اقتصادی است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158005
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_158005_1780842467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 معاون سازمان حفاظت محیط زیست روز یکشنبه از افزایش تعداد یوزهای شناسایی‌شدۀ کشور از ۱۷ به ۲۷ فرد خبر داد.
+
+🔸حمید ظهرابی، معاون سازمان حفاظت محیط زیست روز یکشنبه ۱۷ خرداد در نشست خبری با اشاره به تشکیل «حوزه‌های حفاظتی مشارکت‌محور» در اطراف زیستگاه‌های یوزپلنگ آسیایی گفت که در حال حاضر در حد فاصل منطقه توران، خشکیلاق و محدوده‌ای در خراسان شمالی موسوم به «یوزکنام»، مناطق تحت حفاظت مشارکتی شکل گرفته است.
+
+🔸او همچنین با اشاره به سایر اقدامات صورت گرفته برای حفاظت از یوزپلنگ آسیایی مجموعه این اقدامات را از «موفق‌ترین» برنامه‌های سازمان حفاظت محیط زیست در حوزه یوزپلنگ آسیایی خواند و گفت: «در ابتدای اجرای طرح، ۱۷ فرد شناسنامه‌دار از یوزپلنگ آسیایی شناسایی شده بود که این تعداد اکنون به حدود ۲۴ تا ۲۷ فرد رسیده است.»
+
+🔸همزمان با این اظهارات انجمن صنفی کارفرمایی حفاظت‌گاه‌های خصوصی حیات وحش تصاویری از حضور خانواده هلیا در حفاظتگاه مشارکتی «یوزکنام» را منتشر کرد.
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان‌بی‌سی:
+
+ایران هنوز با ما توافق نکرده چون برای آنها خیلی سخت است، اما دیگر چاره‌ای جز توافق ندارند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری: حمله اسرائیل به ضاحیه بیروت. @IranianMinds
+</div>
+
+## IranianMinds — post 21567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+هیچ تحریمی کاهش نخواهد یافت و هیچ پولی برای جمهوری اسلامی آزاد نخواهد شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21566
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : مجتبی از پدرش عاقل تره
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : احتمالا میدونم مجتبی کجا حضور داره
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21564
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان‌بی‌سی‌نیوز: لازم نیست که لبنان بخشی از آتش‌بس با ایران باشد. @IranianMinds
+</div>
+
+## IranianMinds — post 21563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان‌بی‌سی:
+
+اگر ایران به توافق نرسد، ایالات متحده ارتش ایران را خیلی بیشتر از گذشته ضعیف خواهد کرد تا زمانی‌که نیروهای آمریکایی با خیال راحت بتوانند اورانیوم را از کشور خارج نمایند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان‌بی‌سی‌نیوز:
+
+لازم نیست که لبنان بخشی از آتش‌بس با ایران باشد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21561
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21561_1780842471.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه خبر در حال گزارش لحظه‌ای از حملات اسرائیل به ضاحیه بیروت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21560
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21560_1780842472.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست وزیر نتانیاهو در آغاز جلسه دولت:
+
+ما در تمام جبهه‌ها با تروریسم مبارزه می‌کنیم.
+در نوار غزه، حماس را از همه طرف تحت فشار قرار می‌دهیم. در حال حاضر بیش از 60٪ از خاک نوار را در اختیار داریم و به زودی به 70٪ خواهیم رسید. به آن‌ها اجازه نمی‌دهیم که دوباره مسلح شوند یا به ما آسیب برسانند و همچنین فرماندهان ارشد آن‌ها را از بین می‌بریم.
+
+در لبنان، نیروهای ما تنها در هفته گذشته 350 تروریست را از بین برده‌اند. ما قلعه بوفورت را تصرف کردیم و در حال تکمیل نابودی زیرساخت‌های تروریستی مجاور مرز خود هستیم. ما به شدت به آن‌ها حمله می‌کنیم و می‌دانیم که حزب‌الله در حال فرار است. اجازه نخواهیم داد که به خاک یا شهرهای ما شلیک شود و بر این اساس عمل خواهیم کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21559
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال ۱۲ اسرائیل:
+
+اسرائیل قبل از حمله به بیروت به آمریکا اطلاع داده بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21556
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21556_1780842472.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری:
+حمله اسرائیل به ضاحیه بیروت.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283073
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283073_1780842475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سرخط خبرهای یکشنبه ۱۷ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## BBCPersian — post 283072
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283072" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه‌ترین خبرهای ایران و جهان یکشنبه ۱۷ خرداد ۱۴۰۵ از رادیو بی‌بی‌سی در لندن
+</div>
+
+## BBCPersian — post 283071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آژانس: ایران باید اطلاعات دقیق و فوری از سایت‌های هسته‌ای بمباران‌شده‌اش بدهد
+
+خبرگزاری رویترز می‌گوید پیش‌نویس قطعنامه‌ای را دیده است که ایالات متحده آمریکا تهیه و برای سایر کشورهای عضو شورای حکام آژانس بین‌المللی انرژی اتمی ارسال کرده است.
+
+این قطعنامه فردا در نشست شورای حکام این آژانس در وین بررسی می‌شود.
+
+بنابر این گزارش، در متن این قطعنامه که امروز به‌دست خبرگزاری رویترز رسید، آمده است که ایران باید «اطلاعات دقیقی در مورد میزان مواد هسته‌ای و تاسیسات هسته‌ای تحت حفاظت در ایران را در اختیار آژانس قرار دهد» و «برای تایید این اطلاعات بدون تاخیر تمام دسترسی‌های لازم را آژانس بدهد».
+
+https://bbc.in/4etNXY4
+@BBCPersian
+</div>
+
+## BBCPersian — post 283070
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283070_1780842478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل از حمله به ضاحیه در حومه جنوبی بیروت خبر داده است.
+
+دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در بیانیه‌ای گفت که هدف این حمله مراکز فرماندهی حزب‌الله بوده است.
+
+بنابر این بیانیه، در «واکنش به حملات حزب‌الله به خاک اسرائیل»، به دستور بنیامین نتانیاهو و اسرائیل کاتس، وزیر دفاع، «یک مرکز فرماندهی نظامی در منطقه ضاحیه بیروت» هدف قرار گرفته است.
+
+رسانه‌های ایران می‌گویند که به ساختمانی در محله‌ای در ضاحیه حمله شده است.
+
+ضاحیه پایگاه قدرت حزب‌الله در بیروت است.
+
+هفته پیش بعد از آنکه اسرائیل از حمله قریب‌الوقوع به ضاحیه خبر داد، قرارگاه مرکزی خاتم‌الانبیا به ساکنان شمال اسرائیل هشدار ترک محل زندگی‌شان را داد.
+
+ساعتی بعد دونالد ترامپ گفت که از بنیامین نتانیاهو خواسته است دستور توقف حمله به ضاحیه را بدهد و نخست‌وزیر اسرائیل هم پذیرفته است.
+
+ایران هنوز واکنش رسمی نشان نداده است.
+
+ایران آتش‌بس در لبنان را بخشی از توافق آتش‌بس با آمریکا می‌داند.
+
+https://bbc.in/4etNXY4
+@BBCPersian
+</div>
+
+## BBCPersian — post 283069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال ایران وارد مکزیک شد
+
+تیم ملی فوتبال ایران پس از برگزاری اردوی خود در ترکیه وارد تیخوانا در مکزیک شد.
+
+این تیم با پرواز چارتر یک شرکت هوایی آلمانی پس از حدود ۲۰ ساعت پرواز به تیخوانا رسید.
+
+کمپ تیم ملی ایران در این شهر است و برای مسابقات جام جهانی باید دوبار به لس‌آنجلس و یک بار به سیاتل برود.
+
+به گفته مهدی تاج، رئیس فدراسیون فوتبال، برای تیم ملی اجازه ورود به آمریکا فقط یک روز پیش از هر مسابقه صادر شده است و بعد از هر مسابقه باید به مکزیک برگردند.
+
+https://bbc.in/4etNXY4
+@BBCPersian
+</div>
+
+## BBCPersian — post 283068
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283068_1780842479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دادگاه انقلاب تهران حکم غیابی یک سال زندان و دو سال ممنوعیت خروج از کشور را برای جعفر پناهی، فیلم‌ساز سرشناس، عینا تایید کرد.
+
+مصطفی نیلی، وکیل این کارگردان، به رسانه‌های ایران گفت که شعبه ۲۶ دادگاه انقلاب به ریاست ایمان افشاری، ضمن رد واخواهی، رای قبلی را استوار کرده است.
+
+بر اساس این حکم، آقای پناهی علاوه بر حبس تعزیری و محرومیت از سفر، دو سال از عضویت در احزاب، گروه‌ها و دسته‌جات سیاسی یا اجتماعی نیز منع شده است.
+
+اتهام اصلی این سینماگر «فعالیت تبلیغی علیه نظام» عنوان شده است.
+
+این رای بدوی محسوب می‌شود و به گفته آقای نیلی، محکوم‌علیه ظرف بیست روز پس از ابلاغ رسمی، فرصت دارد اعتراض خود را در دادگاه تجدیدنظر استان تهران ثبت کند.
+
+📷Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 283066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی افزایش بارندگی در ماه‌های اخیر در ایران، خروجی سد زاینده‌رود روز ۱۱ خردادماه با هدف رساندن آب به کشاورزی استان اصفهان افزایش یافته و آب پس از حدود یکسال در زاینده‌رود جاری شده است. گروهی از شهروندان به زاینده‌رود می‌روند تا این شهر تاریخی را دوباره زیبا…
+</div>
+
+## BBCPersian — post 283065
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی افزایش بارندگی در ماه‌های اخیر در ایران، خروجی سد زاینده‌رود روز ۱۱ خردادماه با هدف رساندن آب به کشاورزی استان اصفهان افزایش یافته و آب پس از حدود یکسال در زاینده‌رود جاری شده است. گروهی از شهروندان به زاینده‌رود می‌روند تا این شهر تاریخی را دوباره زیبا ببینند.
+
+روز چهارشنبه ۱۳ خرداد جمعیت زیادی از شهروندان اصفهان در پل‌های تاریخی و مناطق ناژوان و پل مارنان تجمع کردند تا شاهد جاری شدن آب به سوی مناطق مرکزی شهر اصفهان باشند. در روزهای اخیر هم تصاویری از رونق شب‌های اصفهان با جاری شدن آب در زاینده‌رود در شبکه‌های اجتماعی منتشر شده است.
+</div>
+
+## BBCPersian — post 283064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دستور اسرائیل به ساکنان برای ترک شهر صور در جنوب لبنان
+
+ارتش اسرائیل برای ساکنان شهر صور در جنوب لبنان و مناطق اطراف دستور ترک صادر کرد.
+
+ارتش اسرائیل پیش از این گفته بود که پس از به صدا درآمدن آژیر خطر در مناطق یفتاح و راموت نفتالی، دو موشک را که از لبنان وارد خاک اسرائیل شده بودند، رهگیری کرده است. حزب‌الله لبنان مسئولیت این پرتاب‌ها را بر عهده نگرفته است.
+
+حزب‌الله طرح آتش‌بس و خلع سلاح را رد کرده و گفته است که اسرائیل ابتدا باید حملات خود را متوقف کند و نیروهای خود را از جنوب لبنان خارج کند.
+
+ایران هم برقراری آتش‌بس در لبنان را از پیش‌شرط‌های خود برای دستیابی به توافق صلح با ایالات متحده مطرح کرده است.
+
+https://bbc.in/4xeGwvq
+@BBCPersian
+</div>
+
+## BBCPersian — post 283063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عراقچی تصویر نامه‌ سران پاکستان به مجتبی خامنه‌ای را منتشر کرد
+
+عباس عراقچی در کانال تلگرامی‌اش تصاویر بیشتری از دیدار با محسن نقوی، وزیر کشور پاکستان منتشر کرد، از جمله عکسی در آن که نامه سران پاکستان به مجتبی خامنه‌ای را در دست دارد.
+
+به گزارش رسانه‌های ایران، در این دیدار درباره «تازه‌ترین ابتکارات دیپلماتیک در مسیر گفت‌وگوهای ایران و آمریکا» تبادل نظر شده است.
+
+به گفته وزیر خارجه ایران، آقای نقوی «به منظور تداوم روند میانجی‌گری مذاکرات ایران و آمریکا به تهران سفر کرده است.»
+
+آقای نقوی پس از دیدار دیشب با اسکندر مومنی گفته بود که برای تحویل «نامه ویژه» و «پیام مهم» عاصم منیر و شهباز شریف، فرمانده کل قوا و نخست‌وزیر پاکستان به مجتبی خامنه‌ای، به تهران سفر کرده است.
+
+https://bbc.in/4xeGwvq
+@BBCPersian
+</div>
+
+## BBCPersian — post 283061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گرانی‌ها و تورم افسارگسیخته در ایران روی محصولات بهداشتی پریود هم تاثیر گذاشته است.
+در شبکه‌های اجتماعی برخی از تاثیر گرانی نوار بهداشتی گلایه کرده‌اند.
+برخی از کاربران گفته‌اند جهش قیمت دسترسی به نوار بهداشتی را دشوارتر کرده‌است.
+گرانی محصولات بهداشتی پریود چه تاثیری روی زندگی شما گذاشته است؟ آیا تهیه آن نسبت به قبل دشوارتر شده است؟
+روایت و تجربه خود را به پیام‌گیرهای بی‌بی‌سی فارسی ارسال کنید:
+
+واتس‌اپ: ۰۰۴۴۷۳۴۲۰۳۲۱۱۳
+تلگرام: BBCShoma@
+@BBCPersian
+📷 Getty
+</div>
+
+## Dirty_Kids — post 391218
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391218_1780842480.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلد مارشال محسن رضایی، مشاور نظامی مجتبی خامنه‌ای چند روز پیش تو صداوسيما:
+
+کافی بود اسرائیل به سمت ضاحیه حرکت کنه، کل موشک‌های ما آماده بود، چند برابر جنگ 40 روزه شمالِ اسرائیل رو جهنم می‌کردیم.
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391217
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391217_1780842482.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کراش چند نسل، مدونای ۶۷ ساله، در یک پرفورمنس سورپرایز در میدان تایمز نیویورک:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391216
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391216_1780842485.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی کشورت اشغاله و اشغالگرا برات رجز هم می خونن!
+
+نه در ایران و نه در هیچ جای دنیا سابقه نداشته کشور اشغال بشه و اشغالگرها ساکنان کشور، ایرانی‌ها را بی‌وطن و خیانتکار و مزدور بخونن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏چرا همه یهو شوهر کردن؟
+تو این وضعیت بی پولی، پول عمل دماغاتونو از کجا آوردین؟
+جریان لیلیوم چیه همتون هدیه گرفتین؟
+چرا هی سفر و تفریح و اینور اونورین؟
+چجوری همتون خوشگلتر و موفق تر شدین؟
+چرا فقط من بگا رفتم ؟!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391214
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391214_1780842487.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: دقایقی پیش اسرائیل رسما به بیروت لبنان 🇱🇧 حمله کرد. عراقچی دو روز پیش اعلام کرد اگه اسرائیل به لبنان حمله کنه آتش بس نقض میشه و مستقیم به اسرائیل حمله میکنیم! @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: دقایقی پیش اسرائیل رسما به بیروت لبنان 🇱🇧 حمله کرد.
+
+عراقچی دو روز پیش اعلام کرد اگه اسرائیل به لبنان حمله کنه آتش بس نقض میشه و مستقیم به اسرائیل حمله میکنیم!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی میدونی چی برام جالبه
+اینکه ۱۲ سال مدرسه اسلامی،
+۴ سال دانشگاه دولتی با درس های دینی،
+۲ سال خدمت مقدس سربازی،
+رو هم‌ دیگه حساب کنی ۱۸ سال تلاش بی وقفه جمهوری اسلامی برای نفوذ به مغز ما و تحمیل عقاید خودش به ما ناکام موند :)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهنوش بختیاری بازیگر:
+
+هیچوقت اسم پارتنرتون رو، روی بدنتون تتو نکنید من کردم پشیمون شدم‌. رو ممه هاش اسم پارتنرش کورش رو تتو کرده بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391208
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391208_1780842488.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چیزهایی که یه سرباز اوکراینی کشته شده تو گوگل سرچ کرده بود :
+
+مذاکرات اوکراین و روسیه
+مذاکرات زلنسکی
+جنگ تو سال ۲۰۲۵ تموم میشه
+جنگ تو تابستون تموم میشه
+زمان صحبت‌های ترامپ
+ترامپ جنگ رو متوقف می‌کنه
+ترامپ در مورد مذاکرات
+کمک ترامپ به اوکراین
+ترامپ چه زمانی جنگ رو پایان میده
+مذاکرات پوتین
+جنگ چه زمانی تموم میشه
+نرخ ارز دلار
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113446
+
+<div align="center">
+  <img src="telegram/content/Hranews_113446_1780842489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرستان هشترود؛ صدور شناسنامه برای یک کودک پس از ۲۷ روز
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– اداره ثبت احوال شهرستان هشترود برای یک کودک به نام «ائلیار» پس از گذشت ۲۷ روز از زمان تولد و شکایت والدین او به مرجع قضائی، شناسنامه صادر کرد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، اداره ثبت احوال هشترود پس از گذشت ۲۷ برای یک کودک به نام «ائلیار» شناسنامه صادر کرده است.
+
+این #کودک در تاریخ ۲۰ فروردین ماه ۱۴۰۵ متولد شد. پس از اقدام والدین برای دریافت مدارک هویتی وی، اداره ثبت احوال شهرستان هشترود با ثبت نام ائلیار و صدور #شناسنامه امتناع کرد. با شکایت والدین این کودک و صدور حکم از سوی شعبه دوم دادگاه صلح شهرستان هشترود در تاریخ ۸ اردیبهشت ماه، اداره ثبت احوال هشترود ملزم به صدور شناسنامه با نام مذکور شد. نهایتا پس از طی مراحل اداری و حقوقی، پس از گذشت ۲۷ روز از زمان تولد این کودک، اداره ثبت احوال هشترود برای ائلیار شناسنامه صادر کرده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113445
+
+<div align="center">
+  <img src="telegram/content/Hranews_113445_1780842489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم بازداشت؛ بی‌خبری از وضعیت شایان اکبری، کارآفرین جوان ادامه دارد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– با گذشت ۱۳ روز از بازداشت شایان اکبری (سوشیانت)، کارآفرین و بنیانگذار «سازمان جهانشمول احرار»، کماکان اطلاعی از محل نگهداری و وضعیت وی در دست نیست. تعدادی دیگر از اعضای این مجموعه نیز توسط نیروهای امنیتی بازداشت و به مکان نامعلومی منتقل شده‌اند.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، شایان اکبری (سوشیانت)، کماکان در بازداشت و بلاتکلیفی به‌سر میبرد.
+
+بی‌خبری از سرنوشت این شهروند، منجر به افزایش نگرانی‌های خانواده‌اش شده است. بر اساس اطلاعات دریافتی هرانا، بازداشت شایان اکبری، روز سه‌شنبه ۵ خردادماه توسط ماموران اطلاعات سپاه در مشهد صورت گرفته است. همزمان، تعدادی دیگر از اعضای «سازمان جهانشمول احرار» نیز بازداشت شده‌اند. نیروهای امنیتی با حضور در محل اقامت این افراد اقدام به تفتیش محل و ضبط برخی وسایل شخصی و تجهیزات الکترونیکی آنان کرده‌اند.
+
+ادامه مطلب
+
+#شایان_اکبری
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زن در تبریز توسط همسرش به قتل رسید
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– مردی در تبریز، همسر خود را به دلیل اختلافات خانوادگی به #قتل رساند. متهم توسط ماموران پلیس بازداشت شده است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 105951
+
+<div align="center">
+  <a href="telegram/content/manototv_105951_1780842490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنرانی «من رویایی در سر دارم» مارتین لوتر کینگ جونیور، یکی از برجسته‌ترین نمونه‌های قدرت کلام در سیاست و تاریخ معاصر است.
+
+اهمیت این سخنرانی فقط در موضوع تبعیض نژادی یا تاریخ آمریکا خلاصه نمی‌شود، بلکه در این است که نشان داد یک سخنرانی می‌تواند مطالبه عدالت را از سطح اعتراض روزمره به سطح یک افق اخلاقی و جهانی برساند.
+
+لوتر کینگ با زبانی شاعرانه، روشن و عمیقا انسانی، سیاست را به پرسشی درباره کرامت، برابری و آینده مشترک انسان‌ها تبدیل کرد. «من رویایی در سر دارم» یادآور این است که سخن سیاسی، وقتی با ایمان به عدالت و امید به تغییر همراه شود، می‌تواند از مرز زمان و مکان فراتر برود و الهام‌بخش نسل‌هایی باشد که هنوز برای آزادی و برابری مبارزه می‌کنند.
+</div>
+
+## manototv — post 105950
+
+<div align="center">
+  <a href="telegram/content/manototv_105950_1780842493.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئوی ارسالی یک گزارشگر منوتو درباره تورم و تجمعات حکومتی
+</div>
+
+## alonews — post 125807
+
+<div align="center">
+  <a href="telegram/content/alonews_125807_1780842495.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاکنون قرارگاه خاتم نگفته آماده اجرای وعده ۵ هست و تنها یک کارشناس تو شبکه خبر این حرفو گفته و این کارشناس هم پیشینه متوهمی داره و سالهاست میگه باید جنگ کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125804
+
+<div align="center">
+  <a href="telegram/content/alonews_125804_1780842495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات شدید اسرائیل به صور، لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125803
+
+<div align="center">
+  <a href="telegram/content/alonews_125803_1780842496.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عربی: تحرکات گسترده و انبوه موشکی در ایران مشاهده شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125802
+
+<div align="center">
+  <a href="telegram/content/alonews_125802_1780842497.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/شبکه خبر: ساعات مهمی در پیش داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125801
+
+<div align="center">
+  <a href="telegram/content/alonews_125801_1780842497.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه:پیش‌نویس قطعنامه علیه ایران در شورای حکام آژانس که ایالات متحده آن را تهیه کرده و پیش از نشست این هفته به دیگر کشورها در شورا ارسال کرده است، ایران را ملزم می‌کند “اطلاعات دقیق” دربارهٔ سایت‌های هسته‌ای بمباران‌شده و ذخایر اورانیوم غنی‌شدهٔ خود ارائه دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125800
+
+<div align="center">
+  <a href="telegram/content/alonews_125800_1780842498.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: حزب‌الله پس از بمباران حومه جنوبی بیروت شوکه شده زیرا مقامات ایران به رهبران حزب اطمینان داده بودند که اسرائیل این منطقه را بمباران نخواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125799
+
+<div align="center">
+  <a href="telegram/content/alonews_125799_1780842498.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حضور پرتعداد پلیس تیخوانا در اطراف فرودگاه هنگام حضور تیم جمهوری اسلامی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125798
+
+<div align="center">
+  <a href="telegram/content/alonews_125798_1780842500.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبری تحت عنوان پایان ۶۰روزه ضرب الاجل ترامپ به ایران فیک است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125797
+
+<div align="center">
+  <a href="telegram/content/alonews_125797_1780842500.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+👈نمودار تغییرات قیمت دلار از ابتدای خرداد تا امروز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125796
+
+<div align="center">
+  <a href="telegram/content/alonews_125796_1780842501.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/جبهه داخلی اسرائیل: مردم آماده دستورالعمل برای حمله احتمالی باشن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125795
+
+<div align="center">
+  <a href="telegram/content/alonews_125795_1780842501.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان بی سی: ایران هنوز با ما توافق نکرده چون برای آن خیلی سخت است‌‌ اما چاره‌ای جز توافق ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125794
+
+<div align="center">
+  <a href="telegram/content/alonews_125794_1780842501.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴اسرائیل: حمله به بیروت محدود بود و ایران طبق ارزیابی‌ها پاسخ نخواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرزیدنت ترامپ: ما یک محاصره برقرار کرده‌ایم و بسیار مؤثر بوده است. دلیلش این است که آن‌ها سعی کردند محاصره ایجاد کنند، و حالا ما آن‌ها را محاصره کرده‌ایم.
+
+آن‌ها محاصره ایجاد کردند، بنابراین ما هم آن‌ها را محاصره کردیم. ما محاصره نهایی را داریم.
+من این را جنگ نمی‌دانم، اما اگر کسی بخواهد آن را جنگ تعریف کند، خب شاید بتواند چنین تعریفی داشته باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125792
+
+<div align="center">
+  <a href="telegram/content/alonews_125792_1780842502.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان‌بی‌سی: توافق آتش‌بس با ایران به درخواست برخی افراد بسیار خوب حاصل شد
+
+
+🔴ایران ممکن است در طول آتش‌بس، قابلیت‌های نظامی خود را اندکی افزایش داده باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125791
+
+<div align="center">
+  <a href="telegram/content/alonews_125791_1780842502.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان‌بی‌سی: بخشی از چالش در اجرای سریع صلح این است که مستلزم تغییر اساسی در نگرش دیرینه تهران نسبت به ماست.
+
+
+🔴ایرانی‌ها قوی هستند و به خودشان افتخار می‌کنند، و کارهایی هست که هرگز انتظار انجامشان را نداشتند، اما مجبور به انجامشان خواهند شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125790
+
+<div align="center">
+  <a href="telegram/content/alonews_125790_1780842503.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ، گفت که او الزامی برای اینکه لبنان بخشی از یک توافق کوتاه‌مدت با ایران باشد، ندارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125789
+
+<div align="center">
+  <a href="telegram/content/alonews_125789_1780842503.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع لبنانی گزارش دادند تعداد کشته و زخمی شدگان حمله هوایی اسرائیل بالاست 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125788
+
+<div align="center">
+  <a href="telegram/content/alonews_125788_1780842503.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ به NBC گفت: اگر با ایران به توافق برسیم و روابط دوستانه‌ای داشته باشیم، با همکاری یکدیگر اورانیوم با غنای بالا را جمع‌آوری و نابود خواهیم کرد. تجهیزات متعلق به ما خواهد بود و این مواد را یا در همان محل از بین می‌بریم یا به جای دیگری منتقل کرده و نابود می‌کنیم.
+
+
+🔴این کار را با ایران یا بدون ایران انجام خواهیم داد، اما در صورت توافق کسی به سمت ما شلیک نخواهد کرد.
+
+
+🔴اما اگر توافقی حاصل نشود، با اقدام نظامی بسیار سخت با آن‌ها برخورد خواهیم کرد. در آن صورت ابتدا آن کار را انجام می‌دهیم و بعد وارد عمل می‌شویم تا از هر جهت امنیت داشته باشیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 15:45
 ---
 
