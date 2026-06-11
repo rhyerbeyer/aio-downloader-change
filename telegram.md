@@ -1,10 +1,2475 @@
 # خواننده تلگرام
 
 <!-- TOP_NAV START -->
-<div dir="rtl" style="text-align:left; margin-bottom:10px;"><a href="https://github.com/rhyerbeyer/aio-downloader-change/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+
 <!-- TOP_NAV END -->
 
 <!-- MSG START -->
+
+---
+📅 بروزرسانی: 1405/03/22 01:23
+---
+
+## VahidOOnLine — post 245059
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245059_1781214820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر بامداد جمعه ۲۲ خردادماه، به نقل از منابع محلی در استان هرمزگان گزارش داد صدای انفجاری در دریا و در فاصله حدود دو کیلومتری ساحل سیریک شنیده شده است.
+
+بر اساس این گزارش، هنوز علت و منبع این صدا تایید نشده و جزئیات دقیقی درباره ماهیت این انفجار در دست نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245058
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245058_1781214820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای انفجار در نزدیکی ساحل سیریک خبر دادند. به گزارش خبرگزاری مهر، صدای انفجاری در دریا و حدود دو کیلومتری ساحل سیریک شنیده شد. هنوز علت و منبع این صدا تایید نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245057
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245057_1781214820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس شورای اسلامی، با انتشار پیامی در شبکه اجتماعی اکس نوشت: «احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش دارد و می‌خواهد فعلا اوضاع را آرام نگه دارد.»
+رضایی در ادامه خواستار تشدید حملات شد و نوشت: «محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه را ویران و نابود کنید تا بیشتر دردشان بگیرد.»
+اظهارات او در حالی مطرح می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنجشنبه ۲۱ خرداد در گفتگو با خبرنگاران اعلام کرد توافق با جمهوری اسلامی تا چند روز دیگر امضا خواهد شد. ترامپ با بیان اینکه «اسناد در وضعیت تقریبا نهایی هستند، پس باید ببینیم چه می‌شود؛ خواهیم دید»، افزود: «این کار باید خیلی سریع انجام شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245056
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245056_1781214821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر نخست‌وزیر اسرائیل اعلام کرد این کشور طرف تفاهم‌نامه در حال شکل‌گیری میان آمریکا و جمهوری اسلامی نیست. این نهاد همچنین گفت بنیامین نتانیاهو در تماس با دونالد ترامپ از شروط مورد نظر او برای توافق نهایی با تهران حمایت کرده است.
+بر اساس بیانیه دفتر نخست‌وزیری اسرائیل، این شروط شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت جمهوری اسلامی از نیروهای نیابتی در منطقه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245055
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245055_1781214821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت خارجه، پنجشنبه ۲۱ خردادماه، در یک برنامه تلویزیونی گفت تا این لحظه ایران به جمع‌بندی نهایی درباره توافق نرسیده است.
+بقایی افزود بخش عمده متن توافق نهایی شده بود، اما آمریکا در جریان مذاکرات بارها مواضع خود را تغییر داده است.
+او با اشاره به نقش قطر و پاکستان به عنوان میانجی گفت اقدامات آمریکا روند دیپلماتیک را تحت تاثیر قرار می‌دهد و وضعیت مذاکرات از ابتدا برای ایران روشن بوده است.
+سخنگوی وزارت خارجه جمهوری اسلامی همچنین تاکید کرد ایران درباره مواردی که به عنوان خطوط قرمز تعیین کرده، هیچ‌گونه مماشاتی نخواهد داشت.
+بقایی درباره گزارش‌های منتشرشده پیرامون توافق نیز گفت مواردی که مطرح می‌شود در حد گمانه‌زنی است و هنوز هیچ موضوعی نهایی نشده است. او همچنین افزود وضعیت تنگه هرمز به دلیل اقدامات آمریکا ناامن‌تر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245054
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245054_1781214822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش دارد و می‌خواهد فعلا اوضاع را آرام نگه دارد. محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه را ویران و نابود کنید تا بیشتر دردشان بگیرد.»
+
+این در حالی است که دونالد ترامپ اعلام کرده توافق با جمهوری اسلامی تا چند روز دیگر امضا خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245053
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245053_1781214823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر نخست‌وزیر اسرائیل اعلام کرد دونالد ترامپ پنجشنبه ۲۱ خردادماه در تماس با بنیامین نتانیاهو درباره تفاهم‌نامه‌ای که با جکومت ایران در حال شکل‌گیری است و زمینه ورود به مذاکرات را فراهم می‌کند، گفتگو کرده است.
+
+بر اساس این بیانیه، با وجود آنکه اسرائیل طرف این تفاهم‌نامه نیست، نتانیاهو از تعهد ترامپ نسبت به مفاد توافق نهایی قدردانی کرده است.
+
+دفتر نخست‌وزیری اسرائیل افزود تعهد ترامپ شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت ایران از نیروهای نیابتی در منطقه است.
+
+این اظهارات در حالی مطرح شد که دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با خبرنگاران در دفتر بیضی کاخ سفید از توافقی احتمالی سخن گفت که می‌تواند به جنگ با ایران پایان دهد و افزود این توافق ممکن است ظرف روزهای آینده نهایی شود.
+
+ترامپ گفت: «اسناد در وضعیت تقریبا نهایی هستند، پس باید ببینیم چه می‌شود.» او همچنین تاکید کرد این روند باید «خیلی سریع» انجام شود و ابراز امیدواری کرد مراسم امضای این سند به‌زودی و احتمالا در اروپا برگزار شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245052
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245052_1781214823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۲۱ خردادماه در گفت‌وگو با خبرنگاران در کاخ سفید گفت جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت و توافق میان تهران و واشنگتن به زودی نهایی می‌شود.
+ترامپ در پاسخ به سوالی درباره تایید این توافق از سوی مجتبی خامنه‌ای گفت: «تا جایی که من می‌دانم، پاسخ بله است.»
+رئیس‌جمهوری آمریکا افزود این توافق بسیار مفصل و دارای جزییات فراوان است و در صورت امضا، محدودیت‌ها و محاصره اعمال‌شده علیه ایران لغو خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245051
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245051_1781214824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست‌وزیری اسرائیل، اعلام کرد که دونالد ترامپ، رییس‌جمهوری آمریکا، درباره یک یادداشت تفاهم در حال شکل‌گیری با حکومت ایران برای ورود به مذاکرات، با بنیامین نتانیاهو گفت‌وگو کرده است.
+
+این دفتر افزود نتانیاهو از تعهد ترامپ درباره شرایط هر توافق نهایی با ایران ابراز قدردانی کرده، هرچند اسرائیل طرف این تفاهم‌نامه نیست.
+
+دفتر نتانیاهو نوشت: «تعهد ترامپ شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت ایران از نیروهای نیابتی در منطقه بوده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245050
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245050_1781214824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در یک برنامه تلویزیونی گفت: «مواردی که درباره توافق مطرح می‌شود، گمانه‌زنی است و موضوع نهایی نشده است.»
+
+او اضافه کرد: «وضعیت مذاکرات از ابتدا برای ما روشن بود و بخش عمده متن نهایی شده بود، اما آمریکایی‌ها مواضع خود را تغییر می‌دادند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245049
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245049_1781214825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری آمریکا درباره توافق با تهران گفت: «جمهوری اسلامی سلاح هسته‌ای نخواهد داشت.»
+
+زمانی که یک خبرنگار از ترامپ در کاخ سفید پرسید که آیا مجتبی خامنه‌ای این توافق را تایید کرده، او گفت: «تا جایی که من می‌دانم، پاسخ بله است.»
+
+ترامپ اضافه کرد که تفاهم‌نامه بسیار مفصل و دارای جزییات است و این توافق نهایی خواهد شد.
+
+او افزود: «عملیات جزیره خارک از دستور کار خارج شده و دیگر مطرح نیست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با خبرنگاران در دفتر بیضی کاخ سفید، به توافق احتمالی اشاره کرد که می‌تواند به جنگ با ایران پایان دهد؛ او همچنین گفت که این توافق ظرف روزهای آینده نهایی خواهد شد.
+
+ترامپ روز پنجشنبه ۲۱ خرداد گفت: «اسناد در وضعیت تقریبا نهایی هستند، پس باید ببینیم چه می‌شود؛ خواهیم دید.» او در ادامه افزود: «این کار باید خیلی سریع انجام شود.»
+
+رئیس‌جمهوری آمریکا اعلام کرد که انتظار دارد مراسم امضای این سند به‌زودی و احتمالا در اروپا برگزار شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245047
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245047_1781214825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، فرشاد محمودیان از معترضان «انقلاب ملی» ۱۷ دی در لردگان بازداشت شد. بنا بر این گزارش، او هنگام بازداشت به شدت مورد ضرب‌وشتم قرار گرفته است و پس از آن خبری از او در دست نیست.
+
+بر اساس این گزارش، او حدود یک هفته پس از بازداشت به زندان شهرکرد منتقل شده است، اما اطلاعاتی از وضعیت پرونده و شرایط فعلی او در دست نیست.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245046
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245046_1781214826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بزرگترین جام جهانی تاریخ، روز پنج‌شنبه ۲۱ خرداد ماه با رقابت تیم‌های مکزیک و آفریقای جنوبی در ورزشگاه آزتکا مکزیک آغاز شد.
+جشن افتتاحیه با نمایشی از پرچم ۴۸ تیم حاضر در جام‌جهانی و مجسمه غول‌پیکری از جام طلایی محبوب برگزار شد و با اجرای خیره‌کننده و رنگارنگ شکیرا، بورنای بوی و خواننده شهیر آندره‌آ بوچلی به اوج رسید.
+همزمان با این جشن، هزاران هوادار مکزیک و آفریقای جنوبی با لباس‌ها و پرچم‌های رنگارنگ و تشویق‌های پرشور در ورزشگاه آزتکا گرد هم آمدند تا شاهد دیدار افتتاحیه جام جهانی ۲۰۲۶ باشند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245045
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245045_1781214828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گفته یک منبع آگاه از روند گفتگوها، در پی پیام دونالد ترامپ، رئیس‌جمهوری آمریکا در شبکه‌های اجتماعی مبنی بر قریب‌الوقوع بودن توافق با تهران، «گشایش‌های واقعی» در مذاکرات صلح میان ایران و ایالات متحده رخ داده است.
+
+این منبع آگاه در گفتگو با شبکه خبری سی‌ان‌ان اعلام کرد که میانجی‌ها نسبت به رسیدن طرفین به خط پایان و نهایی شدن توافق، «به طور محتاطانه‌ای خوش‌بین» هستند. آن‌ها به آخرین دور از گفتگوهایی اشاره کردند که توسط مذاکره‌کنندگان قطری طی روزهای چهارشنبه و پنجشنبه در تهران انجام شد.
+
+به گفته این منبع، واسطه‌های درگیر در مذاکرات سیگنال‌هایی فرستاده‌اند مبنی بر اینکه سفر دیروز مذاکره‌کنندگان قطری به تهران و گفتگوهایی که تا بامداد امروز ادامه داشت، به پیشبرد روند توافق کمک شایانی کرده است؛ آن هم در شرایطی که دو کشور در روزهای گذشته مشغول تبادل آتش و حملات تلافی‌جوایه علیه یکدیگر بودند.
+
+این منبع در پایان تاکید کرد: «میانجی‌ها موفق شده‌اند به گشایش‌های جدی دست پیدا کنند.»
+
+#آمریکا #ایندیپندنت_فارسی
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245044
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245044_1781214829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری آمریکا درباره ایران گفت به یک توافق عالی رسیده‌اند و افزود نهایی شدن آن در چند روز آینده ممکن است.
+
+او افزود که با بنیامین نتانیاهو، نخست‌وزیر اسرائیل و رجب طیب اردوغان، رییس جمهوری ترکیه در این رابطه گفت‌وگو کرده است.
+
+ترامپ افزود: «جی‌دی ونس در مراسم امضای توافق حضور خواهد داشت.»
+
+او ادامه داد: «این توافق به معنای آن است که ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245043
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245043_1781214829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گفته یک منبع آگاه از روند گفتگوها، در پی پیام دونالد ترامپ، رئیس‌جمهوری آمریکا در شبکه‌های اجتماعی مبنی بر قریب‌الوقوع بودن توافق با تهران، «گشایش‌های واقعی» در مذاکرات صلح میان ایران و ایالات متحده رخ داده است.
+
+این منبع آگاه در گفتگو با شبکه خبری سی‌ان‌ان اعلام کرد که میانجی‌ها نسبت به رسیدن طرفین به خط پایان و نهایی شدن توافق، «به طور محتاطانه‌ای خوش‌بین» هستند. آن‌ها به آخرین دور از گفتگوهایی اشاره کردند که توسط مذاکره‌کنندگان قطری طی روزهای چهارشنبه و پنجشنبه در تهران انجام شد.
+
+به گفته این منبع، واسطه‌های درگیر در مذاکرات سیگنال‌هایی فرستاده‌اند مبنی بر اینکه سفر دیروز مذاکره‌کنندگان قطری به تهران و گفتگوهایی که تا بامداد امروز ادامه داشت، به پیشبرد روند توافق کمک شایانی کرده است؛ آن هم در شرایطی که دو کشور در روزهای گذشته مشغول تبادل آتش و حملات تلافی‌جوایه علیه یکدیگر بودند.
+
+این منبع در پایان تاکید کرد: «میانجی‌ها موفق شده‌اند به گشایش‌های جدی دست پیدا کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245042
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245042_1781214830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، پنجشنبه در کاخ سفید به خبرنگاران گفت که توافق احتمالی با جمهوری اسلامی ممکن است تا چند روز دیگر در اروپا امضا شود.
+
+او افزود که جی‌دی ونس، معاون ربیس‌جمهوری آمریکا، در مراسم امضای توافق احتمالی میان آمریکا و ایران شرکت خواهد کرد.
+
+ترامپ درباره ایران گفت به یک توافق عالی رسیده‌اند و افزود نهایی شدن آن در چند روز آینده ممکن است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14593
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14593_1781214831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : هر کی میگه الان تو جنوب کشور جنگ نیست، ببرش کنار یکی بخابون زیر گوشش.
+@withyashar
+</div>
+
+## WithYashar — post 14592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در بندر عباس 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: برخی منابع آگاه صدای انفجارها را مرتبط با مدیریت و بسته نگه داشتن تنگه هرمز می‌دانند.
+@withyashar
+</div>
+
+## WithYashar — post 14590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار در گناوه 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند خرم اباد برای مقابله با پهپاد ها فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 14588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش درگیری و تبادل آتش هم اکنون در تنگه هرمز🚨
+@withyashar
+</div>
+
+## WithYashar — post 14587
+
+
+
+
+## WithYashar — post 14586
+
+
+
+
+## WithYashar — post 14585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک🚨
+@withyashar
+</div>
+
+## WithYashar — post 14584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس، به نقل از یک منبع: نتانیاهو هیچ اطلاع قبلی نداشت و وقتی ترامپ بیانیه اولیه خود را در مورد توافق با ایران منتشر کرد، غافلگیر شد.
+@withyashar
+</div>
+
+## WithYashar — post 14583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+بوست داره میریزه…
+</div>
+
+## WithYashar — post 14582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: دیروز گفتید که ایران ممکن است در حال همکاری با ایالات متحده باشد. آیا شما معتقدید که این بار در خواست خود برای پیگیری دیپلماسی صادق هستند؟
+
+ترامپ: این به سطح هیجان آغاز شده در آن بستگی دارد. ما در سه روز گذشته به شدت به آن‌ها فشار آوردیم. امشب حتی سخت‌تر به آن‌ها ضربه خواهیم زد. آن‌ها این را می‌دانستند.
+ما دقیقاً به آن‌ها گفتیم که قصد داریم چه کاری انجام دهیم.
+@withyashar
+</div>
+
+## WithYashar — post 14581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️واشنگتن پست: توافق بزودی در رم یا ژنو امضا میشه
+@withyashar
+</div>
+
+## WithYashar — post 14580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره رهبری ایران:
+
+من این افراد را بسیار منطقی‌تر از کسانی که دیگر در میان ما نیستند می‌یابم.
+
+این گروه متفاوتی است و فکر می‌کنم گروهی باهوش‌تر و دارای دلیل و منطق است.
+
+همه آنها این توافق را تأیید کرده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 14579
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14579_1781214831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا رهبر ایران این توافق را تأیید کرده است؟
+
+ترامپ: تا جایی که می‌دانم پاسخ بله است.
+@withyashar
+</div>
+
+## WithYashar — post 14578
+
+
+
+
+## WithYashar — post 14577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : ما این جنگ رو از نظر نظامی خیلی زود بردیم، تنها چیزی که نبردیم، رسانه‌های فیک‌نیوزه
+
+تنگه بازه؛ ولی این تنگه‌ها از چند ماه پیش هم باز بودن، فقط شما خبر نداشتید
+@withyashar
+</div>
+
+## WithYashar — post 14576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نتانیاهو: رئیس جمهور ترامپ با نخست وزیر نتانیاهو در مورد نهایی شدن یادداشت تفاهم با ایران برای ورود به مذاکرات صحبت کرد.اگرچه اسرائیل طرف این یادداشت تفاهم نیست،نخست وزیر از تعهد رئیس جمهور ترامپ برای اطمینان از اینکه توافق نهایی که در پایان مذاکرات شامل…
+</div>
+
+## WithYashar — post 14575
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14575_1781214832.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: عملیات جزیره خارک دیگر روی میز نیست. می‌خواهید آشوب ببینید؟ می‌خواهید مرگ و ویرانی ببینید بگذارید ایران سلاح هسته‌ای داشته باشد نمی‌خواهم برای دستیابی به توافق با ایران ضرب‌الاجل تعیین کنم. @withyashar
+</div>
+
+## WithYashar — post 14574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: عملیات جزیره خارک دیگر روی میز نیست.
+
+می‌خواهید آشوب ببینید؟ می‌خواهید مرگ و ویرانی ببینید بگذارید ایران سلاح هسته‌ای داشته باشد
+
+نمی‌خواهم برای دستیابی به توافق با ایران ضرب‌الاجل تعیین کنم.
+@withyashar
+</div>
+
+## mwarmonitor — post 10751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+</div>
+
+## mwarmonitor — post 10750
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10750_1781214833.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️یک فروند هواپیمای گشت دریایی P-8A Poseidon نیروی دریایی آمریکا که پیش‌تر در پایگاه هوایی شیخ عیسی در بحرین مستقر بود، به پایگاه هوایی ملک سلطان در عربستان سعودی منتقل شده و اکنون در مأموریتی جدید به سمت خلیج فارس در حال پرواز است.
+
+🔸پایگاه شیخ عیسی در بحرین امروز چندین بار توسط سپاه هدف قرار گرفته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10749
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10749_1781214834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️۴ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز منطقه خلیج فارس در حال پرواز هستند، در حالی که ۴ فروند دیگر نیز به‌تازگی از تل‌آویو پرواز کرده‌اند. ✈️همچنین یک فروند هواپیمای هشدار زودهنگام و کنترل هوایی E-3B Sentry آواکس متعلق به نیروی هوایی…
+</div>
+
+## mwarmonitor — post 10748
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10748_1781214834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️۴ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز منطقه خلیج فارس در حال پرواز هستند، در حالی که ۴ فروند دیگر نیز به‌تازگی از تل‌آویو پرواز کرده‌اند.
+
+✈️همچنین یک فروند هواپیمای هشدار زودهنگام و کنترل هوایی E-3B Sentry آواکس متعلق به نیروی هوایی آمریکا از پایگاه PSAB برخاسته و به سمت خلیج فارس در حال حرکت است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+</div>
+
+## mwarmonitor — post 10746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل بعد از دیدن پست ترامپ @mwarmonitor
+</div>
+
+## mwarmonitor — post 10745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: اگرچه اسرائیل طرف این یادداشت تفاهم نیست، اما من از تعهد ترامپ قدردانی کردم که هر توافق نهایی شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک‌ها و پایان دادن به حمایت ایران از نیروهای نیابتی‌اش در منطقه خواهد بود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10744
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«ما به تازگی به یک توافق عالی برای پایان دادن به جنگ با ایران دست یافته‌ایم. در حال حاضر کار روی نهایی کردن اسناد و مدارک جریان دارد که احتمالاً طی چند روز آینده به پایان خواهد رسید. همچنین ممکن است مراسم امضای این توافق در اروپا برگزار شود.
+این اتفاق بسیار بزرگی است؛ بازار بورس ۱۰۰۰ واحد رشد داشته و این نشان‌دهنده استقبال و رضایت آن‌ها از این توافق است. وقتی بازار بورس بالا می‌رود یعنی از توافق راضی هستند و اگر افت کند یعنی آن را نمی‌پسندند. اما روند بازار صعودی بوده است. قیمت نفت کاهش یافته و فکر می‌کنم حتی از سطح قبلی خود نیز پایین‌تر خواهد آمد. پیش از این وقتی در ایالت آیووا بودم، قیمت هر گالن نفت ۱ دلار و ۸۵ سنت بود. مطمئن نیستم که دقیقاً به آن رقم برسیم، اما به آن بسیار نزدیک خواهیم شد. قیمت‌ها کاهش می‌یابد و با افت قیمت نفت، هزینه‌های دیگر نیز پایین می‌آید.
+از همه مهم‌تر، ما به توافقی رسیده‌ایم که بر اساس آن ایران هرگز به سلاح هسته‌ای دست پیدا نخواهد کرد؛ این تمام هدفی بود که برای دستیابی به آن تلاش می‌کردیم و مسیر سختی را پشت سر گذاشتیم. این یک دستاورد بسیار بزرگ است. به زودی مراسم امضا برقرار خواهد شد و اسناد در مراحل پایانی خود قرار دارند. باید منتظر ماند و دید چه می‌شود. روند کار بسیار خوب است، کار رو به اتمام است و به سرعت نهایی خواهد شد. آن‌ها نیز به اندازه دیگران خواهان این توافق بودند. فکر می‌کنم این موضوع می‌تواند سرآغاز روابط خوب بسیاری در آینده باشد.
+من به تازگی با رهبران بسیاری از کشورهایی که نامشان در بیانیه آمده صحبت کرده‌ام؛ با بی‌بی (بنیامین نتانیاهو) و همچنین رهبران بزرگ کشورهایی چون قطر، امارات، عربستان سعودی، بحرین، کویت و دیگران گفتگو داشتم. همچنین قرار است با رئیس‌جمهور اردوغان از ترکیه صحبت کنیم که شخص فوق‌العاده‌ای است. روحیه همکاری بسیار خوبی حاکم است. کشور پاکستان نیز عملکرد فوق‌العاده‌ای داشت؛ نخست‌وزیر و کسی که من او را ژنرال می‌نامم — او یک ژنرال است، یک ژنرال عالی‌رتبه، و در واقع او یک فیلد مارشال (ارتشبد) است، یک درجه بالاتر.
+همه آن‌ها بسیار خرسند هستند. تمام منطقه خاورمیانه و حتی فراتر از آن خوشحال هستند. به محض اینکه توافق امضا شود، تنگه نیز بازگشایی خواهد شد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10743
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10743_1781214835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## FoxNewsTwitter — post 342880
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342880_1781214836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Inspiring a nation: Chesley 'Sully' Sullenberger, former Air Force fighter pilot and US Airways captain, became a hero in 2009 after safely landing Flight 1549 on the Hudson River, saving all 155 aboard in the 'Miracle on the Hudson.'
+</div>
+
+## FoxNewsTwitter — post 342879
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342879_1781214838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Sec. Rubio touts the upcoming White House UFC event as a "gift to the American people":
+
+"The America 250 celebration belongs to the people of the United States."
+
+"It's a gift to the American people. They're going to see their White House and their capital on their nation's birthday celebrating with a historic event."
+
+"We could've had a band... We could've done a Shakespeare in the park production... A billion people all over the world will be watching America celebrate its 250th birthday."
+
+"We're happy to be a part of that."
+</div>
+
+## FoxNewsTwitter — post 342878
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342878_1781214840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“You have done more for this nation in the seafood space than any president before you in my lifetime.”
+
+American fishermen came to the Oval Office to thank President Trump for cutting Biden-era regulations they say were crushing their industry — and even made him an honorary crew member: "You're one of us now."
+
+"We support you 100%."
+</div>
+
+## FoxNewsTwitter — post 342877
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342877_1781214842.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: BREAKING NOW: President Trump announces imminent deal ensures Iran “will never have a nuclear weapon”
+</div>
+
+## FoxNewsTwitter — post 342876
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342876_1781214843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump announces a major move to slash seafood costs and generate millions in new business for American fishermen by restoring commercial access to 3 areas of the western Pacific Ocean:
+
+"It's a large amount of space we're talking about that they were restricted. Other countries would use it, but our country couldn't use it."
+
+"You ever hear of anything so stupid?"
+</div>
+
+## pm_afshaa — post 93661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما : نترسید صداهای انفجار مربوط به مدیریت و بستن تنگه ی هرمزه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93659
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93659_1781214845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما اومدیم توافق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پرواز 8 هواپیمای سوخت‌رسان آمریکایی به علاوه یک هواپیمای هشدار زودهنگام در آسمان عربستان و نزدیک تنگه هرمز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز جنگنده های آمریکایی در آسمان شمال عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای توافق یکم زیاده
+</div>
+
+## pm_afshaa — post 93655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات سنگین نظامی آمریکا در خاورمیانه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پدافند خرم اباد برای مقابله با ریز پرنده ها فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایالات متحده به محض امضای توافق، تحریم‌ها علیه ایران را لغو خواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس:با توجه به اینکه آمریکا پیشنهاد ایران رو پذیرفته؛ احتمال قبول توافق توسط مراجع اصلی نظام بالاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93651
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93651_1781214845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤔 بعضی قیمت‌ها ارزونن... 
+💸بعضی قیمت‌ها مشکوکن... 
+😅 ولی این یکی فقط غیرقابل باوره 
+💎 هر گیگ فقط ۳ هزار تومن 
+💎 
+👎نه کیفیت کم شده 
+👎نه سرعت قربانی شده 
+👎نه قراره چیزی از دست بدی 
+👍فقط قراره کمتر پول بدی. 
+🚀 @LexVipBot 
+⚡️ @Lex_Server
+</div>
+
+## pm_afshaa — post 93650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🧨 رسانه‌های حکومتی در ایران از شنیده شدن صدای انفجار در منطقهٔ سیریک در بامداد آدینه خبر دادند.
+
+#خبر_فوری #انفجار #سیریک
+@DEJradio
+</div>
+
+## DEJradio — post 5601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رسانهٔ عربیه‌: در توافق اولیهٔ تهران و واشینگتن آتش‌بس ۶۰ روزه و بازگشایی تنگهٔ هرمز پیش‌بینی ‌شد
+
+رسانهٔ عربیه به نقل از منابع آگاه گزارش داد در توافق در حال مذاکره میان واشینگتن و جمهوری اسلامی، تمدید ۶۰ روزهٔ آتش‌بس و بازگشایی تنگهٔ هرمز برای کشتیرانی تجاری در نظر گرفته شده است.
+بر اساس این گزارش، آمریکا در مقابل بخشی از تحریم‌ها را کاهش می‌دهد و محاصرهٔ دریایی علیه جمهوری اسلامی را متوقف می‌کند.
+به گفتهٔ منابع العربیه همچنین قرار است مقامات تهران و واشینگتن در درازای این دوره درمورد سرنوشت ذخایر اورانیوم غنی‌شدهٔ جمهوری اسلامی مذاکره کنند.
+
+#خبر #دژ #توافق
+@DEJradio
+</div>
+
+## DEJradio — post 5600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دولت اسرائیل بدون مشارکت در توافق، از تضمین‌های ترامپ برای محدود کردن جمهوری اسلامی، پشتیبانی می‌کند
+
+دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد این کشور در توافق میان آمریکا و جمهوری اسلامی مشارکتی ندارد.
+بنا بر بیانیهٔ دفتر نتانیاهو، اسرائیل از تضمین‌های دونالد ترامپ دربارهٔ شروط محدود‌کنندهٔ جمهوری اسلامی در توافق نهایی پشتیبانی می‌کند.
+بر پایهٔ این بیانیه، نتانیاهو در گفت‌وگو با دونالد ترامپ از تعهد او برای گنجاندن خروج اورانیوم غنی‌شدهٔ جمهوری اسلامی، برچیدن زیرساخت‌های غنی‌سازی، محدودیت برنامهٔ موشکی تهران و محدودیت در پشتیبانی جمهوری اسلامی از گروه‌های نیابتی، در توافق احتمالی نهایی، قدردانی کرد.
+
+#خبر #دژ #توافق #اسرائیل
+@DEJradio
+</div>
+
+## DEJradio — post 5599
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5599_1781214846.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 شاهزاده رضا پهلوی:
+ملتی که یک‌بار بر ترس غلبه کند، هرگز به گذشته بازنمی‌گردد.
+
+پیام به ملت ایران
+۲۰ خرداد ۲۵۸۵/۱۴۰۵
+
+#شاهزاده_رضا_پهلوی #ایران_را_پس_میگیریم
+@DEJradio
+</div>
+
+## DEJradio — post 5598
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5598_1781214846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌞
+🔺 ممنوعه شیرین؛ عاشقانه سگ‌ها در برلین
+
+گزارش: ملیکا رضاپور
+
+#سگ #تابستان_برلین
+@DEJradio
+</div>
+
+## DEJradio — post 5597
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5597_1781214847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+پنجشنبه ۲۱ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## mamlekate — post 103684
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103684_1781214847.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سنتکام: یک نفتکش دیگر ناقض «محاصره دریایی» جمهوری اسلامی را از کار انداختیم
+
+فرماندهی مرکزی ایالات متحده‌ آمریکا، سنتکام، پنج‌شنبه ۲۱ خرداد با انتشار بیانیه‌ای در شبکه اجتماعی ایکس نوشت: «نیروهای آمریکایی ساعت ۱۱:۲۰ شب به وقت شرق آمریکا در ۱۰ ژوئن ۲۰ خرداد، یک نفتکش را در دریای عمان پس از آنکه این کشتی با تلاش برای انتقال نفت ایران، محاصره دریایی علیه ایران را نقض کرد، از کار انداختند. این سومین کشتی تجاری بود که این هفته توسط نیروهای آمریکایی از کار انداخته شد.»
+
+در این بیانیه آمده است: «نفتکش جَلویر را که با پرچم گینه بیسائو در حرکت بود و سعی داشت نفت را از ایران از طریق دریای عمان منتقل کند، از کار انداختیم.»
+
+این بیانیه در تشریح نحوه از کار انداختن این کشتی اشاره کرده است که در پی خودداری مکرر خدمه این شناور از پیروی از دستورالعمل‌های نیروهای آمریکایی یک هواپیمای آمریکایی دو فروند موشک «هل‌فایر» را به سمت موتورخانه آن کشتی شلیک کرد.
+
+سنتکام همچنین یادآور شده است که اوایل این هفته، هواپیماهای آمریکایی نفتکش‌های «مَریوِکس» و «سِتِبِلّو» را که با پرچم پالائو در حرکت بودند به ترتیب در روزهای دوشنبه و سه‌شنبه از کار انداختند. سنتکام تاکید کرده است که «مَریوِکس» با تلاش برای حرکت به سمت یک بندر ایرانی، محاصره دریایی را نقض کرد و «سِتِبِلّو» نیز سعی در انتقال نفت ایران داشت.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103683
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103683_1781214849.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیویی که از معرفی ایران توی افتتاحیه جام جهانی وایرال شده تولید هوش مصنوعیه، و مراسم افتتاحیه جام جهانی نیست. هم پرچم خرچنگ نشان داره هم شیروخورشید (روی سقف). بعضی از پرچم‌های فریم آخر اصلا معلوم نیست کدوم کشور هستند.
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای تسنیم: آمریکا از اصلاحیه‌های اخیر خود کوتاه آمده!
+
+خبرگزاری تسنیم، وابسته به سپاه، نوشته:
+متن تفاهم تا این لحظه در مراجع ذی‌صلاح ایران به تایید نهایی نرسیده است
+
+▪️ پیگیری‌های خبرنگار تسنیم از منابع مطلع حاکیست: آخرین تحول رخ داده این است که فشار نظامی و دیپلماتیک آمریکا برای تغییر در متن ۱۴ ماده‌ای پاسخ نداده و آمریکا از طریق واسطه قطری اعلام کرده است که نیازی به اصلاحیه‌های اخیر آمریکا نیست.
+
+▪️ به گفته این منابع، ترامپ طی روزهای اخیر با شروع به فشار و تهدید و اقدام نظامی و از طریق دیگر با فشار میانجی قطری تلاش کرد تا از دو سو مواضع ایران را تغییر دهد که در نهایت ایران تغییرات جدید را نپذیرفت.
+
+▪️ با این حال این متن همچنان نیازمند بررسی و نهایی شدن در نهادهای ذیربط در ایران است و تا آن زمان سایر گمانه زنی‌ها و خبرها، معتبر نیست.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"خبرگزاری مهر" وابسته به سازمان تبلیغات اسلامی، در پستی نوشته:
+♦️شنیده شدن صدای انفجار در نزدیکی ساحل سیریک؛ جزئیات همچنان مبهم
+
+🔹منابع محلی در استان هرمزگان از شنیده شدن صدای انفجاری در دریا، حدود دو کیلومتری ساحل سیریک، خبر می‌دهند. هنوز علت و منبع این صدا تأیید نشده است.
+
+🔹منابع محلی در منطقه سیریک (استان هرمزگان) می‌گویند صدای انفجاری در دریا، در فاصله حدود دو کیلومتری ساحل، به گوش رسیده است.
+
+🔹هنوز از ماهیت و علت این انفجار اطلاعات دقیقی در دست نیست، اما با توجه به دستورالعمل‌های مربوط به بسته بودن تنگه هرمز، این وضعیت احتمالی می‌تواند در همین راستا باشد.
+
+🔹 با این حال، این فرضیه تاکنون به طور رسمی تأیید نشده است و‌ خبرنگار مهر در تلاش است تا جزئیات بیشتری را از مقامات محلی و رسمی پیگیری کند. /مهر
+
+"خبرگزاری صدا و سیما" هم بعدش در سه پست نوشت:
+خبرنگار صداو سیما در سیریک:
+دقایقی پیش صدای انجار در سیریک شنیده شد.
+
+🔹منشا و‌ مکان آن هنوز مشخص نیست.
+🔺منابع خبری از شنیده‌شدن مجدد صدا در محدوده دریایی سیریک خبر دادند
+🔺ماهیت و علت انفجارها در سیریک  هنوز بطور دقیق مشخص نشده اما برخی منابع آگاه آنرا مرتبط با مدیریت و بسته نگه داشتن تنگه هرمز می‌دانند.
+
+آپدیت ۱:۱۰
+پست تازه خبرگزاری مهر:
+♦️تکرار صدای انفجار در محدوده دریایی سیریک؛ علت هنوز نامشخص
+
+🔹منابع خبری مهر تأیید کرده‌اند که بار دیگر صدای انفجار در محدوده دریایی سیریک، در استان هرمزگان، به گوش رسیده است.
+
+🔹 هنوز ماهیت و علت دقیق این انفجارها مشخص نشده، با این حال براساس اخبار رسیده به خبرنگار مهر احتمال می‌رود که این رویدادها با سیاست‌های مربوط به بسته نگه داشتن تنگه هرمز در ارتباط باشد.
+
+🔹پیش از این نیز منابع محلی از شنیده شدن صدای انفجاری در دریا، در فاصله حدود دو کیلومتری ساحل سیریک، خبر داده بودند.
+
+🔹با این حال، هیچ‌یک از این فرضیه‌ها تاکنون به طور رسمی تأیید نشده است.
+
+آپدیت ۱:۱۵
+تسنیم: سیریک نیست. سمت دریا است.
+یک منبع در استانداری هرمزگان به تسنیم کفت:
+🔹 تا این لحظه هیچ اصابت پرتابه و درگیری در سیریک وجود نداشته است.
+🔹 صداهای شنیده شده از سمت دریا و مرتبط با تنگه هرمز است.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76249
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76249_1781214850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابعی در جمهوری اسلامی نوشته‌اند که: با میانجی‌گری قطر، آمریکا به شبکه beIN Sports معافیت داده تا مسابقات جام جهانی را در ایران پخش کند.
+
+تاکید هم کردند که: این امتیاز توسط دولت ایران و کاملاً جدا از هرگونه یادداشت تفاهم (MoU) به دست آمده.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76248
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76248_1781214851.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره مقامات جمهوری اسلامی:
+من این افراد را بسیار منطقی‌تر از افرادی می‌دانم که دیگر با ما نیستند. این یک گروه متفاوت است و من فکر می‌کنم گروهی باهوش‌تر است که منطق دارد. همه آنها توافق را تأیید کرده‌اند.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76247
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76247_1781214851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در یک برنامه تلویزیونی گفت: «مواردی که درباره توافق مطرح می‌شود، گمانه‌زنی است و موضوع نهایی نشده است.»
+
+او اضافه کرد: «وضعیت مذاکرات از ابتدا برای ما روشن بود و بخش عمده متن نهایی شده بود، اما آمریکایی‌ها مواضع خود را تغییر می‌دادند.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76246
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76246_1781214852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل طرف تفاهم‌نامه با جمهوری اسلامی نیست
+
+دفتر نخست‌وزیری اسرائیل، اعلام کرد که دونالد ترامپ، رییس‌جمهوری آمریکا، درباره یک یادداشت تفاهم در حال شکل‌گیری با حکومت ایران برای ورود به مذاکرات، با بنیامین نتانیاهو گفت‌وگو کرده است.
+
+این دفتر افزود نتانیاهو از تعهد ترامپ درباره شرایط هر توافق نهایی با ایران ابراز قدردانی کرده، هرچند اسرائیل طرف این تفاهم‌نامه نیست.
+
+دفتر نتانیاهو نوشت تعهد ترامپ شامل این موارد است:
+-حذف مواد غنی‌شده
+-برچیدن زیرساخت‌های غنی‌سازی
+-محدودیت‌های تولید موشک
+- توقف حمایت جمهوری اسلامی از گروه‌های نیابتی خود در منطقه
+@VahidOOnLine
+به نوشته تایمز اسرائیل دفتر آقای نتانیاهو در بیانیه‌ای که «سعی در کم‌اهمیت جلوه دادن توافق احتمالی» داشت، می‌گوید که آنها درباره «یادداشت تفاهم قریب‌الوقوع با ایران در مورد ورود به مذاکرات» صحبت کردند.
+به گفته دفتر آقای نتانیاهو، در این مکالمه، نخست‌وزیر اسرائیل دیدگاه نسبتا خوش‌بینانه‌ای نسبت به توافق ابراز کرده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76245
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76245_1781214853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر: ضرب‌الاجل شما برای رسیدن از این مرحله به یک توافق نهایی چیست؟
+
+ترامپ: نمی‌خواهم ضرب‌الاجل بگویم چون بعدش می‌گویید من ضرب‌الاجل را رعایت نکردم.
+
+خیلی مهم نخواهد بود چون قرار است امضا شود.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76244
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76244_1781214853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: تنگه باز است. تنگه برای چندین ماه است که باز بوده، اما شما فقط از آن خبر نداشتید.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76243
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76243_1781214854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شما قبلاً گفته‌اید که ایران و آمریکا به توافق نزدیک بوده‌اند. هنوز این اتفاق نیفتاده است. چرا اینقدر مطمئن هستید که این بار متفاوت است؟
+
+ترامپ: چون آنها ضربه سختی را تحمل کرده‌اند. ضربه‌ای که کمتر کسی می‌تواند تحمل کند. و آنها خیلی بیشتر از من می‌خواهند به توافق برسند.
+===
+خبرنگار نیوزنیشن در کاخ سفید:
+از رئیس‌جمهور ترامپ پرسیده شد که آیا می‌تواند این توافق را به سرانجام برساند یا نه، چون پیش‌تر هم به آن نزدیک شده بود. او گفت: «من بسیار مطمئنم.»
+
+او درباره اینکه آیا واقعاً این توافق تا پایان این هفته نهایی می‌شود یا نه، با احتیاط پاسخ داد: «به‌زودی خواهد بود، شاید همین آخر هفته.»
+
+ترامپ در پاسخ به این پرسش که آیا رهبر عالی این توافق را تأیید کرده است، گفت: «برداشت من این است که پاسخ مثبت است.»
+KellieMeyerNews
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76242
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76242_1781214854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران: ممکن است آخر هفته در اروپا قراردادی امضا شود. من نمی‌توانم آنجا باشم، اما جی دی ونس آنجا خواهد بود.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ‌ در چندماه اخیر برای کنترل بازار و کشاندن جمهوری اسلامی پای میز به انواع دروغ ها و بلوف ها متوسل شده
+
+فقط در یک فقره٫ ۱۱ عدد دروغ در یک روز اعلام کرد
+
+با حمله دیشب و پریشب به ایران٫ احتمالا چند روز دست نگه می دارد و مجدد اعلام جنگ میکند
+
+ترامپ در حال بازی قلاب و ماهی است…
+ماهیگرها میفهمند چیست
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لحظاتی قبل صدای انفجار در سیریک شنیده شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87953
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87953_1781214854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت امور خارجه ایران: هنوز به جمع‌بندی نهایی [در مورد متن تفاهم‌نامه] نرسیده‌ایم. مسئولین ذی‌ربط نظام باید در مورد تک تک جزئیات متن به جمع‌بندی برسند. به محض رسیدن به جمع‌بندی نهایی، آن را رسما اعلام خواهیم کرد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87952
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87952_1781214856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس، به نقل از یک منبع:
+
+نتانیاهو هیچ اطلاع قبلی نداشت و وقتی ترامپ بیانیه اولیه خود را در مورد توافق با ایران منتشر کرد، غافلگیر شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت خارجه:
+توافقی در کار نیست
+
+هرگاه به جمع‌بندی برسیم که متن تفاهم تامین‌کنندهٔ منافع ملت ایران است آن را اعلام می‌کنیم.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واشنگتن پست مدعی شد:
+
+توافق قطعی شده و بزودی در ژنو یا رم امضا خواهد شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار: آیا رژیم ایران عوض شده؟
+
+ترامپ: بله، نه یک بار بلکه دو بار
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ
+
+عملیات تصرف جزیره خارک از دستور کار خارج شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+
+ما پیروز شدیم بزرگترین ارتش دنیا پیروز شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما به نقل از سخنگوی وزارت خارجه:
+
+تا الان ایران به جمع‌بندی نهایی درباره توافق نرسیده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87945
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87945_1781214857.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو، نخست وزیر اسرائیل، می‌گوید اسرائیل «طرف» تفاهم‌نامه بین ایالات متحده و ایران نیست.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87944
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87944_1781214857.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس: ترامپ دروغ می گوید تفاهمی امضا نشده
+
+یک منبع آگاه به خبرگزاری فارس گفت: ایران هیچ پیش‌نویس توافق یا تفاهم‌نامه اولیه‌ای با ایالات متحده را تأیید نکرده است، که با ادعای دونالد ترامپ، رئیس جمهور آمریکا، مبنی بر موافقت تهران با متن نهایی، در تضاد است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341810
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341810_1781214858.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «ما به‌تازگی به یک توافق اولیه برای پایان دادن به جنگ با ایران دست یافته‌ایم و اکنون در مرحله نهایی‌سازی اسناد هستیم. انتظار داریم این روند طی چند روز آینده تکمیل شود و احتمالاً مراسم امضای توافق در اروپا برگزار خواهد شد. این اتفاق بسیار بزرگی است.»
+
+او افزود: «بر اساس این توافق، تنگه هرمز بلافصله پس از امضای رسمی آن بازگشایی خواهد شد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341809
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341809_1781214859.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد پس از تایید گفت‌وگوها در بالاترین سطح میان ایران و آمریکا، حملات برنامه‌ریزی‌شده امشب علیه ایران لغو شده و زمان و مکان امضای توافق به‌زودی اعلام خواهد شد؛ این در حالی است که او پیش‌تر از حملات شدید و حتی احتمال تصرف جزیره خارک سخن گفته بود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341808
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341808_1781214861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای انفجار در نزدیکی ساحل سیریک خبر دادند. به گزارش خبرگزاری مهر، صدای انفجاری در دریا و حدود دو کیلومتری ساحل سیریک شنیده شد. هنوز علت و منبع این صدا تایید نشده است.
+https://iranintl.com/202606118532
+</div>
+
+## IranIntlTV — post 341807
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341807_1781214862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال مکزیک در نخستین بازی جام جهانی ۲۰۲۶، آفریقای جنوبی را با نتیجه دو بر صفر شکست داد و نخستین پیروزی تورنمنت بیست و سوم را به نام خود ثبت کرد.
+
+🔹مکزیک، یکی از سه میزبان جام جهانی درحالی در استادیوم آزتکا بر آفریقای جنوبی غلبه کرد که ۱۶ سال پیش، در افتتاحیه جام جهانی ۲۰۱۰، به مصاف این تیم رفته بود.
+
+🔹گل‌های مکزیک را خولیان کینیونس در دقیقه ۹ و رائول خیمنس در دقیقه ۶۷ بازی به ثمر رساندند.
+
+🔹دو بازیکن آفریقای جنوبی در این بازی، با کارت قرمز مستقیم، اخراج شدند؛ اسپه‌هلو سیتوله در دقیقه ۴۹ و تمبا زوانه در دقیقه ۸۴ کارت قرمز دریافت کردند.
+
+🔹مکزیک، در گروه A جام جهانی ۲۰۲۶ با کره جنوبی، جمهوری چک و آفریقای جنوبی، هم‌گروه است.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341806
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341806_1781214862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش دارد و می‌خواهد فعلا اوضاع را آرام نگه دارد. محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه را ویران و نابود کنید تا بیشتر دردشان بگیرد.»
+
+این در حالی است که دونالد ترامپ اعلام کرده توافق با جمهوری اسلامی تا چند روز دیگر امضا خواهد شد.
+https://iranintl.com/202606119566
+</div>
+
+## IranIntlTV — post 341803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسپه‌هلو سیتوله، مدافع تیم ملی فوتبال آفریقای جنوبی، در دقیقه ۵۸ بازی افتتاحیه جام جهانی برابر مکزیک، در حالی که گوتیرز در موقعیت تک‌به‌تک بود، از پشت سر روی او خطا کرد و با دریافت نخستین کارت قرمز مستقیم جام، از بازی اخراج شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341802
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341802_1781214863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست‌وزیری اسرائیل، اعلام کرد که دونالد ترامپ، رییس‌جمهوری آمریکا، درباره یک یادداشت تفاهم در حال شکل‌گیری با حکومت ایران برای ورود به مذاکرات، با بنیامین نتانیاهو گفت‌وگو کرده است.
+
+این دفتر افزود نتانیاهو از تعهد ترامپ درباره شرایط هر توافق نهایی با ایران ابراز قدردانی کرده، هرچند اسرائیل طرف این تفاهم‌نامه نیست.
+
+دفتر نتانیاهو نوشت: «تعهد ترامپ شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و پایان دادن به حمایت ایران از نیروهای نیابتی در منطقه بوده است.»
+https://iranintl.com/202606116113
+</div>
+
+## IranIntlTV — post 341801
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341801" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: چرخش ۱۸۰ درجه‌ای ترامپ
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341800
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341800_1781214864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در یک برنامه تلویزیونی گفت: «مواردی که درباره توافق مطرح می‌شود، گمانه‌زنی است و موضوع نهایی نشده است.»
+
+او اضافه کرد: «وضعیت مذاکرات از ابتدا برای ما روشن بود و بخش عمده متن نهایی شده بود، اما آمریکایی‌ها مواضع خود را تغییر می‌دادند.»
+https://iranintl.com/202606115319
+</div>
+
+## IranIntlTV — post 341799
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341799_1781214864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری آمریکا درباره توافق با تهران گفت: «جمهوری اسلامی سلاح هسته‌ای نخواهد داشت.»
+
+زمانی که یک خبرنگار از ترامپ در کاخ سفید پرسید که آیا مجتبی خامنه‌ای این توافق را تایید کرده، او گفت: «تا جایی که من می‌دانم، پاسخ بله است.»
+
+ترامپ اضافه کرد که تفاهم‌نامه بسیار مفصل و دارای جزییات است و این توافق نهایی خواهد شد.
+
+او افزود: «عملیات جزیره خارک از دستور کار خارج شده و دیگر مطرح نیست.»
+https://iranintl.com/202606119753
+</div>
+
+## IranIntlTV — post 341798
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341798_1781214865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، فرشاد محمودیان از معترضان «انقلاب ملی» ۱۷ دی در لردگان بازداشت شد. بنا بر این گزارش، او هنگام بازداشت به شدت مورد ضرب‌وشتم قرار گرفته است و پس از آن خبری از او در دست نیست.
+
+بر اساس این گزارش، او حدود یک هفته پس از بازداشت به زندان شهرکرد منتقل شده است، اما اطلاعاتی از وضعیت پرونده و شرایط فعلی او در دست نیست.
+
+https://iranintl.com/202606113340
+</div>
+
+## IranIntlTV — post 341797
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341797_1781214865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه «همبستگی ملی برای ایران» با انتشار بیانیه‌ای اعلام کرد در ادامه تجمعات اعتراضی شنبه‌ها در ایالات متحده، برای برگزاری یک زنجیره انسانی در شهر واشینگتن فراخوان داده است.
+
+بر اساس این فراخوان، این تجمع در محل یادمان کشته‌شدگان و جان‌باختگان برگزار خواهد شد. برگزارکنندگان اعلام کرده‌اند این برنامه هم‌زمان در حمایت از آزادی زندانیان سیاسی در ایران و مخالفت با صدور و اجرای حکم اعدام برگزار می‌شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341796
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341796_1781214867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری آمریکا درباره ایران گفت به یک توافق عالی رسیده‌اند و افزود نهایی شدن آن در چند روز آینده ممکن است.
+
+او افزود که با بنیامین نتانیاهو، نخست‌وزیر اسرائیل و رجب طیب اردوغان، رییس جمهوری ترکیه در این رابطه گفت‌وگو کرده است.
+
+ترامپ افزود: «جی‌دی ونس در مراسم امضای توافق حضور خواهد داشت.»
+
+او ادامه داد: «این توافق به معنای آن است که ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.»
+https://iranintl.com/202606116294
+</div>
+
+## IranIntlTV — post 341795
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341795_1781214868.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های ایران با انتشار تصویری، از حضور مهدی مهدوی‌کیا، ستاره پیشین تیم ملی فوتبال ایران در مراسم افتتاحیه جام جهانی ۲۰۲۶ در استادیوم آزتکا مکزیک خبر داده‌اند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341794
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341794_1781214868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیامک آرام، فعال سیاسی و برگزارکننده تجمع‌های واشینگتن، درباره تجمع روز شنبه آینده در این شهر گفت: «استمرار این حضورها ضروری است. تجربه همه جوامع نیز نشان داده که تظاهرات و حضور مستمر در عرصه عمومی می‌تواند افکار عمومی، رسانه‌ها و در نهایت سیاستمداران را تحت تاثیر قرار دهد و بر تصمیم‌گیری حکومت‌ها درباره ایران فشار وارد کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341793
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341793_1781214870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی، گفت: «کنترل آمریکا و ایران بر تنگه هرمز نسبی است، اما از نظر نظارت بر کشتیرانی و مدیریت عبور و مرور در منطقه، آمریکا تقریبا کنترل کامل را دارد.»
+
+او افزود: «البته این به معنای از بین رفتن توان جمهوری اسلامی نیست و حکومت می‌تواند با استفاده از پهپادها یا دیگر سامانه‌های خود به کشتی‌ها حمله کند یا به آنها آسیب برساند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال مکزیک، نخستین گل جام جهانی ۲۰۲۶ را در دقیقه ۹ بازی افتتاحیه در برابر آفریقای جنوبی به ثمر رساند.
+
+🔹گل اول آزتک‌ها روی اشتباه گلر آفریقای جنوبی توسط خولیان کینیونس زده شد.
+
+🔹با وجود اینکه مکزیک تاکنون در ۶ افتتاحیه جام جهانی حاضر بوده است، اما این نخستین‌بار است که مکزیک اولین گل تورنمنت را به ثمر می‌رساند.
+
+🔹بعد از گل دقیقه ۶ فیلیپ لام به کاستاریکا، این سریع‌ترین گل ۲۰ سال اخیر افتتاحیه‌های جام جهانی است.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6966
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:37:05 UTC
+
+Another blast near Sirik, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+انفجار دیگری در نزدیکی سیریک، استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6965
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6965_1781214872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:25:19 UTC
+
+State-owned Mehr Newss confirms the explosion sound near Sirik, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر صدای انفجار در نزدیکی سیریک، استان هرمزگان، ایران را تایید کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6964
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6964_1781214873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:11:00 UTC
+
+An explosion was heard in Sirik, Hormozgan Province, #Iran as per state-affiliated Daneshjoo news.
+
+ترجمه خودکار فارسی
+
+بنا بر گزارش خبرگزاری دولتی دانشجو، صدایی شبیه به انفجار در سیریک واقع در استان هرمزگان، #Iran شنیده شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 20:25:13 UTC
+
+Trump celebrating a deal while the Iranian embassy accounts are tweeting TACO.
+Quite a timeline.
+
+ترجمه خودکار فارسی
+
+ترامپ در حال جشن گرفتن یک توافق است، در حالی که حساب‌های کاربری سفارت ایران در حال توییت کردن تصویر تاکو (TACO) هستند.
+عجب دوره و زمانه‌ای شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220433
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220433_1781214873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری حکومتی مهر از شنیده شدن صدای انفجار در نزدیکی ساحل سیریک خبر داده و گمانه‌زنی کرده است که این امر به «بسته بودن تنگه هرمز» مربوط می‌شود. جمهوری اسلامی پیشتر کشتی‌های تجاری در تنگه هرمز را تهدید به حمله کرده بود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پوشش ویژه | پرزیدنت ترامپ: توافق با جمهوری اسلامی شاید آخرهفته امضا شود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: تنگه هرمز به محض امضای توافق بزرگ با حکومت ایران باز می‌شود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آینده مبهم و صداهای انفجار؛ نگاه مخاطبان شبکه‌های اجتماعی به تحولات اخیر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220429
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220429_1781214873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از چرایی چرخش موضع جهان عرب نسبت به اسرائیل و ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو و ترامپ در مورد «تفاهم‌نامه ورود به مذاکرات» با حکومت ایران صحبت کردند؛ محدودیت‌های موشکی و توقف حمایت از نیابتی‌‌ها در توافق نهایی
+
+▪️دفتر نخست وزیر اسرائيل، بنیامین نتانیاهو،‌ عصر پنج‌شنبه ۲۱ خرداد اعلام کرد که دونالد ترامپ رئیس جمهوری آمریکا، عصر همین روز با آقای نتانیاهو در مورد «تفاهم‌نامه در حال شکل‌گیری» با جمهوری اسلامی ایران «برای ورود به مذاکرات» صحبت کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159848.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220427
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220427_1781214875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جنگ پنهان روسیه؛ استفاده از دختران برای ترور نظامیان و ایجاد ناامنی در اوکراین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220426
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220426_1781214878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در حالی که آمریکا برای دومین شب پیاپی مواضع جمهوری اسلامی را هدف حملات هوایی قرار داد، مقام‌های حکومت تهران از «انتقام نهایی» سخن می‌گویند و همزمان تلاش‌ها برای تمدید آتش‌بس و دستیابی به توافق ادامه دارد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220425
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220425_1781214879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکریا برادوست در برنامه تفسیر خبر: معلوم نیست در باقی‌مانده جمهوری اسلامی چه کسی حرف آخر را می‌زند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220424
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220424_1781214879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️زوال قدرت چانه‌زنی جمهوری اسلامی پس از هربار درگیری با آمریکا؛ گفت‌وگو با احمد وخشیته
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220423
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220423_1781214880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امیر طاهری در برنامه تفسیر خبر: هزینه تصرف جزیره خارک بسیار بالا خواهد بود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ ساعاتی پس از تهدید به ادامه بمباران و تمایل به تصرف خارک: حملات برنامه‌ریزی شده علیه ایران را لغو کردم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آغاز جام جهانی ۲۰۲۶ در آمریکا ، مکزیک و کانادا
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16798
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16798_1781214881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این مهمه!! E-3G AEW&C
+</div>
+
+## Persian_Trend_Official — post 16797
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16797_1781214882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این مهمه!!
+E-3G AEW&C
+</div>
+
+## Persian_Trend_Official — post 16796
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16796_1781214882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📡۸ هواپیمای سوخت‌رسانی هوایی نیروی هوایی ایالات متحده در حال حاضر بر فراز عربستان سعودی و خلیج فارس در حال فعالیت هستند،
+</div>
+
+## Persian_Trend_Official — post 16795
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16795_1781214883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیررسمی/پدافند ماهشهر
+</div>
+
+## Persian_Trend_Official — post 16794
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16794_1781214883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کشتی که تلاش داشت وارد تنگه هرمز شود هدف قرار گرفت..
+</div>
+
+## Persian_Trend_Official — post 16793
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16793_1781214884.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کشتی که تلاش داشت وارد تنگه هرمز شود هدف قرار گرفت..
+</div>
+
+## Persian_Trend_Official — post 16792
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16792_1781214884.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+• امروز سه فروند بمب افکن B-1B آمریکایی از مبدا پایگاه هوایی Dyess، در پایگاه هوایی Fairford انگلیس بر زمین نشستند. با رسیدن این سه، هم اکنون ۱۸ فروند بمب افکن B1-B در فیرفورد حضور دارند.
+</div>
+
+## Persian_Trend_Official — post 16791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده/گزارش ها از انفجار در بندر گناوه و بندر عباس
+</div>
+
+## Persian_Trend_Official — post 16790
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16790_1781214886.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند هوایی در خرم‌آباد فعال شد
+</div>
+
+## Persian_Trend_Official — post 16789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز جنگنده های آمریکایی در آسمان شمال عراق
+</div>
+
+## Persian_Trend_Official — post 16788
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16788_1781214886.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات سنگین نظامی آمریکا در خاورمیانه
+</div>
+
+## Persian_Trend_Official — post 16785
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16785_1781214887.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج جدید سوخت‌رسان‌های آمریکایی از اروپا به سمت خاورمیانه
+
+
+تصاویر منتشرشده از سامانه ردیابی پروازها نشان می‌دهد دست‌کم ۳ فروند هواپیمای سوخت‌رسان KC-135R نیروی هوایی آمریکا بامداد امروز از پایگاه هوایی میلدنهال بریتانیا برخاسته و در مسیر شرق اروپا و خاورمیانه قرار گرفته‌اند.
+🔹 این هواپیماها با شناسه‌های مختلف عملیاتی در فاصله زمانی کوتاهی از یکدیگر به پرواز درآمده‌اند؛ اقدامی که معمولاً در چارچوب تقویت پشتیبانی هوایی، افزایش گشت‌های رزمی یا آماده‌سازی برای عملیات‌های گسترده‌تر انجام می‌شود.
+🔹 این تحرکات همزمان با افزایش فعالیت سوخت‌رسان‌ها و هواپیماهای آواکس آمریکا در منطقه خلیج فارس مشاهده شده است.
+
+Phantom
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16784
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16784_1781214887.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دقایقی قبل صدای انفجار تو سیریک شنیده شد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16783
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16783_1781214887.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خوش چشم دیشب گفت احتمالا دور جدید جنگ تو راهه و امروز توافق شد.‌ (بشنوید ولی باور نکنید) 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16782
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16782_1781214888.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خوش چشم دیشب گفت احتمالا دور جدید جنگ تو راهه و امروز توافق شد.‌ (بشنوید ولی باور نکنید)
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 : آمریکا دسترسی به دارایی‌های مسدودشده ایران را تسهیل خواهد کرد.
+
+به نقل از خبرگزاری انتخاب
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشنگتن پست: توافق ایران و آمریکا نهایی شده است
+بر اساس ادعای واشنگتن پست، توافق میان ایران و ایالات متحده به مرحله نهایی رسیده و قرار است به‌زودی در یکی از دو شهر ژنو یا رم به امضا برسد.
+🔹 این گزارش مدعی است مقامات عالی‌رتبه دو کشور پس از دیداری رو در رو، توافق را در برابر رسانه‌ها به‌صورت رسمی امضا خواهند کرد.
+🔹 تاکنون هیچ مقام رسمی در تهران یا واشنگتن این ادعا را تأیید نکرده است.
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16779
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16779_1781214888.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست وزیری اسرائیل: رئیس جمهور ترامپ عصر امروز با نخست وزیر نتانیاهو در مورد تفاهم نامه در حال شکل گیری با ایران برای ورود به مذاکرات صحبت کرد.
+
+اگرچه اسرائیل طرف این تفاهم نامه نیست، نخست وزیر از تعهد رئیس جمهور ترامپ مبنی بر اینکه توافق نهایی در پایان مذاکرات شامل حذف مواد غنی شده، برچیدن زیرساخت های غنی سازی، محدود کردن تولید موشک و توقف حمایت ایران از نیروهای نیابتی تروریستی خود در منطقه خواهد بود، ابراز قدردانی کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور ایالات متحده روز پنج‌شنبه ۲۱ خرداد اعلام کرد که انتظار می‌رود مراسم امضای توافق میان آمریکا و ایران این آخر هفته در اروپا برگزار شود و جی‌دی ونس، معاون رئیس‌جمهور، در این مراسم شرکت خواهد کرد.
+
+🔸دونالد ترامپ از دستیابی به یک «توافق بزرگ» با ایران برای پایان دادن به جنگ خاورمیانه خبر داد و در دفتر بیضی کاخ سفید به خبرنگاران گفت: «ما به‌تازگی به یک توافق بزرگ درباره جنگ با ایران دست یافتیم».
+
+🔸او افزود که «مشروط به نهایی شدن اسناد، که باید طی چند روز آینده انجام شود، احتمالاً مراسم امضا، در اروپا برگزار خواهد شد».
+
+🔸ترامپ اعلام کرد که به محض امضای توافق با ایران «تنگه هرمز به شکل رسمی باز خواهد شد».
+
+🔸رئیس‌جمهور آمریکا با اشاره به این که خودش نمی‌تواند در مراسم امضای این توافق شرکت کند، گفت جی‌دی ونس به این منظور به اروپا سفر خواهد کرد.
+
+🔸ترامپ از اواسط ماه مارس بارها گفته که دستیابی به توافقی با ایران برای پایان دادن به جنگ نزدیک است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22350
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22350_1781214889.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 8 فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا در حال حاضر بر فراز عربستان سعودی و خلیج فارس در حال عملیات هستن .
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجدد صدای انفجار سیریک
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22348
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار مجدد در بندرعباس
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم :
+
+متن تفاهم تا این لحظه در مراجع ذی‌صلاح  جمهوری اسلامی به تایید نهایی نرسیده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما : صداهای انفجار مربوط به مدیریت و بستن تنگه ی هرمزه.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر:
+
+صدای مجدد انفجار در سیریک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22344
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22344_1781214890.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت آواکس E3 آمریکا
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکر کنم توافق رو دارن جنوب کشور انجام میدن
+
+
+
+صداهای افنجار باز داره میاد از بندر گناوه و بندرعباسو بوشهر
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22342
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگذاری های داخلی تایید کردند که انفجار در سیریک رخ داده
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار: شما قبلاً گفته‌اید که ایران و آمریکا به توافق نزدیک بودند. هنوز این اتفاق نیفتاده است. چرا این‌قدر مطمئن هستید که این بار متفاوت است؟
+
+ترامپ: چون آن‌ها ضربه سختی خورده‌اند. آن‌ها ضربه‌ای خورده‌اند که خیلی کم‌کسی می‌تواند تحمل کند. و آن‌ها خیلی بیشتر از من می‌خواهند توافق کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی وزارت امور خارجه رژیم جمهوری اسلامی، اسماعیل بقایی:
+تا کنون، ایران به نتیجه نهایی در خصوص توافق نرسیده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+جمهوری اسلامی دیگر نمیتواند موشک بالستیک تولید کند یا از نیابتی ها حمایت کند.
+
+رئیس‌جمهور ترامپ امشب با نخست‌وزیر نتانیاهو درباره تفاهم‌نامه در حال شکل‌گیری با ایران برای ورود به مذاکرات گفت‌وگو کرد.
+
+اگرچه اسرائیل طرف این تفاهم‌نامه نیست، اما نخست‌وزیر از تعهد رئیس‌جمهور ترامپ قدردانی کرد که توافق نهایی در پایان مذاکرات شامل خارج کردن مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدود کردن تولید موشک و توقف حمایت ایران از نیروهای نیابتی خود در منطقه خواهد بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22338
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22338_1781214890.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+شاید تا آخر همین هفته (شنبه ، یکشنبه) توافق امضا بشه ، تا اونجایی که من میدونم، مجتبی خامنه‌ای هم تایید کرده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💰 کانال تلگرام میخرم
+بالای ۵۰ کا ( ویو خوب فیک نباشه)
+
+@AmirrPower
+</div>
+
+## IranianMinds — post 22336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال ۱۲ اسرائیل:
+
+ترامپ و نتانیاهو تلفنی صحبت کردند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283480
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283480_1781214892.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد که او با دونالد ترامپ، رئیس جمهور آمریکا، تلفنی درباره توافق احتمالی با ایران صحبت کرده است.
+
+به نوشته تایمز اسرائیل دفتر آقای نتانیاهو در بیانیه‌ای که «سعی در کم‌اهمیت جلوه دادن توافق احتمالی» داشت، می‌گوید که آنها درباره «یادداشت تفاهم قریب‌الوقوع با ایران در مورد ورود به مذاکرات» صحبت کردند.
+
+به گفته دفتر آقای نتانیاهو، در این مکالمه، نخست‌وزیر اسرائیل دیدگاه نسبتا خوش‌بینانه‌ای نسبت به توافق ابراز کرده است.
+
+دفتر نخست‌وزیری می‌گوید: «اگرچه اسرائیل طرف تفاهم‌نامه نیست، نخست‌وزیر از تعهد رئیس‌جمهور ترامپ مبنی بر اینکه توافق نهایی حاصل شده در پایان مذاکرات شامل حذف مواد غنی‌شده، برچیدن زیرساخت‌های غنی‌سازی، محدودیت‌های تولید موشک و توقف حمایت ایران از گروه‌های تروریستی نیابتی‌اش در منطقه خواهد بود، قدردانی کرد.»
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 283479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 ترامپ می‌گوید «یادداشت تفاهم قوی» با ایران «کمی مفهومی» است
+
+دونالد ترامپ در ادامه گفت‌وگویش با خبرنگاران در کاخ سفید در پاسخ به سوالی که آیا این «مفهوم» توافق، همانطور که قبلا گفته بود، فقط زمینه را برای مذاکرات عمیق‌تر فراهم می‌کند یا خیر.
+
+پاسخ داد: «این یک یادداشت تفاهم بسیار قوی است که کمی مفهومی است، اما چیزی است که قرار است انجام شود.»
+
+او افزود: «این یک یادداشت تفاهم بسیار دقیق است که مورد توافق بسیاری از کشورهای دیگر که نفوذ زیادی بر آنها (ایران) دارند نیز قرار گرفته است و همه می‌خواهند که انجام شود.»
+
+https://bbc.in/449qeXb
+@BBCPersian
+</div>
+
+## BBCPersian — post 283478
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283478_1781214892.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+دونالد ترامپ، رئیس‌جمهور آمریکا در ادامه سخنانش در دفتر بیضی کاخ‌ سفید در پاسخ به سوال خبرنگاری که پرسیده آیا رهبر ایران با این توافق موافقت کرده است، او گفت: «آنگونه که من متوجه شدم، پاسخ او مثبت است.»
+
+خبرنگاری از رئیس‌جمهور آمریکا پرسید که چقدر مطمئن است که این آخر هفته با ایران توافقی امضا خواهد شد، پاسخ داد: «به زودی، شاید همین آخر هفته.»
+
+ترامپ گفت به محض امضای توافق، محاصره دریایی تنگه هرمز توسط ایالات متحده فورا برداشته خواهد شد و افزود که ایران همچنین با عدم تولید سلاح هسته‌ای موافقت کرده است.
+
+خبرنگاری اشاره کرد که آقای ترامپ در گذشته گفته بود که آمریکا و ایران به توافق نزدیک هستند و می‌پرسد چرا این بار فرق دارد.
+
+رئیس جمهور آمریکا پاسخ داد: «چون آنها ضربه سختی را تحمل کرده‌اند. ضربه‌ای که کمتر کسی می‌تواند تحمل کند و آنها خیلی بیشتر از من می‌خواهند به توافق برسند.»
+
+آقای ترامپ در پاسخ به سؤالی جداگانه گفت آنچه تغییر کرده «میزان اشتیاق» ایران برای توافق است.
+
+https://bbc.in/4e3FUkL
+📷EPA/Shutterstock
+@BBCPersian
+</div>
+
+## BBCPersian — post 283477
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283477_1781214893.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز پنجشنبه ۲۱ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## BBCPersian — post 283476
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283476_1781214895.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+دونالد ترامپ، رئیس‌جمهور آمریکا در تازه‌ترین اظهارنظر در خصوص توافق با ایران گفته است که ایالات متحده «به‌تازگی به یک توافق بزرگ در مورد جنگ با ایران رسیده است.»
+
+او گفته است که «ما در حال نهایی کردن اسناد هستیم. این کار باید طی چند روز آینده انجام شود.»
+
+آقای ترامپ می‌گوید که پس از نهایی شدن اسناد، «احتمالا امضا آن شاید در اروپا» انجام خواهد شد و این کار باید «خیلی سریع» انجام شود.
+
+به گفته او «ما توافقی داریم که ایران هرگز سلاح هسته‌ای نخواهد داشت، که هدف اصلی از آنچه که ما برای رسیدن به این هدف طی کردیم، همین بود. بنابراین، این یک چیز بسیار بزرگ است.»
+
+رئیس جمهور ایالات متحده تأکید کرد که توافق «به زودی امضا» انجام خواهد شد و اسناد «تقریبا به شکل نهایی هستند، بنابراین خواهیم دید».
+
+آقای ترامپ همچنین گفت تنگه هرمز نیز «به محض اینکه آن را امضا کنیم» باز خواهد شد.
+
+او همچنین می‌گوید که با رهبران منطقه، از جمله متحدان خلیج فارس و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، صحبت کرده است و افزود: «تمام خاورمیانه بسیار خوشحال است».
+
+https://bbc.in/444ZKWS
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391759
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391759_1781214895.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقلا از این برادر کسمغز عرزشی یاد بگیرید داره خون گریه میکنه، چجوری با قاتل عاغا توافق کردید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ گفته مجتبی خامنه‌ای رهبر مسلمین جهان با آمریکا به توافق رسیده.
+خاک بر سرت عرزشی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان ترامپ قلبشو بگیره بیفته زمین بگه سکته زدم هم کسی باور نمیکنه و به آمبولانس زنگ نمیزنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقت نکرد تسلیم شه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گفته بعضی از کاربران؛
+تو سیریک صدای امضایِ توافق به گوش میرسه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لباسای محرم رو آماده کردی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391753
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391753_1781214896.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شکیرای وطنی هم رسید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391752
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391752_1781214898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به وقت مادر جندگی
+
+جمهوری عسلامی و عرزشی به تنظیمات کارخانه برگشت
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391751
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391751_1781214898.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعیددد داداش چیکار کردی که تبدیلت کرد به نهنگ؟ لیاقت این همه زیبایی و نرمی و لطافت رو نداشتیییی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391750
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391750_1781214900.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مواظب طلاهاتون باشید
+
+یه پسر ۱۵ ساله کرجی کل طلاهای مامانشو دزدیده و به دوس دختر ۱۳ سالش هدیه داده!
+
+بعد اینکه فهمیدن، به خونوادش گفته دوس دخترم کل زندگیمه و حتی جونمم براش میدم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391749
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391749_1781214900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران: ممکن است آخر هفته در اروپا قراردادی امضا شود. من نمی‌توانم آنجا باشم، اما جی دی ونس آنجا خواهد بود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127280
+
+<div align="center">
+  <a href="telegram/content/alonews_127280_1781214901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: تاکنون هیچ برخورد موشکی یا درگیری در سیریک ثبت نشده است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127279
+
+<div align="center">
+  <a href="telegram/content/alonews_127279_1781214901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری معتبر تسنیم :
+تا این لحظه، متن تفاهم‌نامه هنوز به تأیید نهایی نهادهای مربوطه تو ایران نرسیده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127278
+
+<div align="center">
+  <a href="telegram/content/alonews_127278_1781214901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: برخی منابع آگاه صدای انفجار را مرتبط با مدیریت و بسته نگه داشتن تنگه هرمز می‌دانند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127277
+
+<div align="center">
+  <a href="telegram/content/alonews_127277_1781214901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در سیریک 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127276
+
+<div align="center">
+  <a href="telegram/content/alonews_127276_1781214902.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امواج مدیا به نقل از منبع آگاه سیاسی در تهران:
+
+
+🔴متن توافق شامگاه چهارشنبه آماده و نهایی شد
+
+
+🔴دوحه با ایران و آمریکا در تماس بوده تا زمینه دستیابی به توافق را فراهم کند
+روند اجرای تفاهم در صورت تایید نهایی، آغاز خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127275
+
+<div align="center">
+  <a href="telegram/content/alonews_127275_1781214902.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در سیریک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127274
+
+<div align="center">
+  <img src="telegram/content/alonews_127274_1781214902.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥مکزیک فاتح افتتاحیه شد
+
+مکزیک 2 _ آفریقای جنوبی 0
+
+@AloSport
+</div>
+
+## alonews — post 127273
+
+<div align="center">
+  <a href="telegram/content/alonews_127273_1781214903.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس، به نقل از یک منبع: نتانیاهو هیچ اطلاع قبلی نداشت و وقتی ترامپ بیانیه اولیه خود را در مورد توافق با ایران منتشر کرد، غافلگیر شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127272
+
+<div align="center">
+  <a href="telegram/content/alonews_127272_1781214903.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش چشم دیشب تو شبکه افق گفته بود فکر نکنم توافق بشه و یکی دو هفته جنگ رو داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127271
+
+<div align="center">
+  <a href="telegram/content/alonews_127271_1781214903.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا رژیم ایران عوض شده؟
+
+
+🔴ترامپ: بله، نه یک بار بلکه دو بار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127270
+
+<div align="center">
+  <a href="telegram/content/alonews_127270_1781214903.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست: توافق قطعی شده و بزودی در ژنو یا رم امضا خواهد شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127269
+
+<div align="center">
+  <a href="telegram/content/alonews_127269_1781214903.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست: توافق قطعی شده و بزودی در ژنو یا رم امضا خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127268
+
+<div align="center">
+  <a href="telegram/content/alonews_127268_1781214903.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: آمریکا دسترسی به دارایی‌های مسدودشده ایران را تسهیل خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان یعنی با قاتل حضرت سید علی خامنه‌ای 💔، قاتل خانواده‌ی رهبر جدیدمون 💔 قاتل سردار سلیمانی 💔، قاتل سید مقاومت حسن نصرالله💔، قاتل شهید فقید اسماعیل هنیه💔، قاتل دانشمندمون محسن فخری‌زاده💔، قاتل سردار حسین سلامی💔، قاتل سردار محمد باقری غلامعلی رشید💔، قاتل سردار…
+</div>
+
+## alonews — post 127266
+
+<div align="center">
+  <a href="telegram/content/alonews_127266_1781214904.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ما این جنگ رو از نظر نظامی خیلی زود بردیم، تنها چیزی که نبردیم، رسانه‌های فیک‌نیوزه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127265
+
+<div align="center">
+  <a href="telegram/content/alonews_127265_1781214904.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: تا الان ایران به جمع‌بندی نهایی درباره توافق نرسیده است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127264
+
+<div align="center">
+  <a href="telegram/content/alonews_127264_1781214904.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : تنگه بازه؛ ولی این تنگه‌ها از چند ماه پیش هم باز بودن، فقط شما خبر نداشتید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127263
+
+<div align="center">
+  <a href="telegram/content/alonews_127263_1781214904.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: تا الان ایران به جمع‌بندی نهایی درباره توافق نرسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127262
+
+<div align="center">
+  <a href="telegram/content/alonews_127262_1781214904.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسپویل نوحه جدید در تجمعات:
+
+برادر برادر امضای آخرو بزن
+
+به رسم عقیله امضای آخرو بزن
+
+غیور دلاور امضای آخرو بزن
+
+به امداد زهرا امضای آخرو بزن
+
+بگو یا علی و امضای آخرو بزن
+
+به اذن ابالفظل امضای آخرو بزن
+
+تموم برگه‌ها رو بزن
+
+از هیچی نگذر و بزن
+
+جای مقررو بزن
+
+حیدر یا حیدر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127261
+
+<div align="center">
+  <a href="telegram/content/alonews_127261_1781214905.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: می‌خواهید آشوب ببینید؟ می‌خواهید مرگ و ویرانی ببینید بگذارید ایران سلاح هسته‌ای داشته باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ---
 📅 بروزرسانی: 1405/03/21 23:13
@@ -4535,10 +7000,8 @@ https://bbc.in/4v5B0d7
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
-<div dir="rtl" style="text-align:left; margin-top:10px;"><a href="https://github.com/rhyerbeyer/aio-downloader-change/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+
 <!-- NAV END -->
