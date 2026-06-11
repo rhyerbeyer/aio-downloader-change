@@ -7,6 +7,1364 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/22 03:00
+---
+
+## VahidOOnLine — post 245069
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245069_1781220606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش تسنیم، زمین‌لرزه‌ای با بزرگی ۴.۱ بامداد جمعه ۲۲ خرداد حوالی کهنوج در استان کرمان را لرزاند. این زمین‌لرزه در عمق ۱۹ کیلومتری زمین رخ داده است. تا لحظه انتشار این خبر، گزارشی از خسارات احتمالی یا تلفات ناشی از این زمین‌لرزه منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245068
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245068_1781220607.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سفارت جمهوری اسلامی در سارایوو، ویدیویی از دیدار شینزو آبه، نخست‌وزیر سابق ژاپن با علی خامنه‌ای، رهبر سابق جمهوری اسلامی منتشر کرده است که تاریخ آن به ۲۲ خرداد شش سال قبل بازمی‌گردد. آبه در آن زمان پیامی از دونالد ترامپ، رئیس‌جمهوری وقت آمریکا به تهران آورده بود. علی خامنه‌ای نیز در واکنش گفت، «ترامپ را حتی شایسته مبادله پیام هم نمی‌دانم.» شینزو آبه سه سال پس از این ملاقات در تیرماه ۱۴۰۱ ترور شد. علی خامنه‌ای در ۹ اسفند ۱۴۰۴ در حمله آمریکا و اسرائیل کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245067
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245067_1781220609.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حسین سیمایی صراف، وزیر علوم، روز پنجشنبه ۲۱ خردادماه با اشاره به برافراشته شدن پرچم شیروخورشیدنشان ایران در دانشگاه‌ها، گفت دانشجویانی که به پرچم جمهوری اسلامی توهین کرده‌اند، مجازات می‌شوند.
+
+وزیر علوم افزود: «کسانی که پرچم جمهوری اسلامی را آتش زدند، پرونده آن‌ها در کمیته‌ها و شوراهای انضباطی بررسی شده و در مراجع قضایی به مجازات خواهند رسید.»
+
+در جریان خیزش ملی دی‌ماه ۱۴۰۴، دانشجویان در دانشگاه‌های شریف، امیرکبیر، بهشتی، تهران و شماری از دانشگاه‌های علوم پزشکی، پرچم ملی شیروخورشیدنشان ایران را برافراشتند و با سر دادن شعارهایی خواستار بازگرداندن نام‌های اولیه دانشگاه‌هایی شدند که در دوران پهلوی آغاز به کار کرده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245066
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245066_1781220610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرده در حال بررسی گزارش‌هایی است که بر اساس آنها حملات آمریکا ممکن است یک تاسیسات آبی در جنوب ایران را هدف قرار داده باشد.
+
+تیم هاوکینز، سخنگوی سنتکام، با بیان این مطلب به شبکه خبری سی‌بی‌اس افزوده: «از این گزارش‌ها آگاه شده و در حال بررسی آنها هستیم.»
+
+این اظهارات پس از آن مطرح شد که مقام‌های حکومت ایران اعلام کردند حمله به یک تاسیسات آبی باعث شده که حدود ۲۰ هزار نفر به آب آشامیدنی دسترسی نداشته باشند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245065
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245065_1781220610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران، با اشاره به روند بررسی توافق احتمالی میان تهران و واشنگتن، بر لزوم تایید قطعی تمامی مفاد این سند از سوی نهادهای بالادستی تاکید کرد و گفت: «ابتدا باید مراجع ذی‌ربط نظام درباره جزءبه‌جزء هرگونه تفاهمی به جمع‌بندی برسند.» به گزارش فارس، او با رد شایعات و گمانه‌زنی‌های رسانه‌ای درباره حصول توافق نهایی، تصریح کرد که فرآیند تصمیم‌گیری پله‌پله و با نظارت دقیق در حال انجام است و افزود: «به‌محض اینکه به جمع‌بندی نهایی برسیم، موضوع را رسما اعلام می‌کنیم.»
+این اظهارات سخنگوی وزارت خارجه در شرایطی مطرح می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، پیش‌تر گفت بود اسناد توافق در وضعیت تقریبا نهایی قرار دارد و مراسم امضای آن به‌زودی و شاید ظرف چند روز آینده برگزار خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245064
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245064_1781220611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از نمایندگان احزاب مختلف بریتانیا خواستار تعطیلی دفتر صداوسیمای جمهوری اسلامی در لندن و آغاز تحقیقات درباره فعالیت‌های این رسانه شدند. این درخواست پس از انتشار گزارشی مطرح شد که مدعی است در یکی از برنامه‌های وابسته به صداوسیما، دو روزنامه‌نگار ایرانی مخالف جمهوری اسلامی در بریتانیا تهدید شده‌اند.
+
+چند نماینده محافظه‌کار و کارگر این اظهارات را مصداق تحریک به خشونت دانسته و خواستار اقدام دولت و پلیس مبارزه با تروریسم شده‌اند. برخی از آنها همچنین خواهان قرار گرفتن سپاه پاسداران در فهرست سازمان‌های ممنوعه بریتانیا و اعمال تحریم‌های بیشتر علیه نهادهای وابسته به جمهوری اسلامی شده‌اند.
+
+وزارت کشور بریتانیا اعلام کرده تهدیدهای منتسب به ایران را زیر نظر دارد و اقدامات لازم را برای مقابله با آنها در دستور کار قرار داده است. پلیس متروپولیتن لندن نیز گفته هرگونه گزارش مرتبط با امنیت ملی یا تروریسم را بررسی خواهد کرد.
+
+متن کامل را اینجا بخوانید
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اهدای یک واحد مسکونی به نارین و آیلین، دو خواهر سنندجی که پس از سال‌ها آزار جسمی و روانی از خانه پدر و نامادری خود نجات یافتند، به گزارش ایرنا تازه‌ترین اقدام برای حمایت از این دو کودک است.
+مادر نارین و آیلین در سخنانی ضمن قدردانی از تیم پزشکی به سرپرستی دکتر شاه‌غیبی، از تلاش‌های انجام‌شده برای درمان دخترش تشکر کرد. او ابراز امیدواری کرد نارین هرچه زودتر سلامتی خود را به دست آورد و از همه مردمی که در این مدت جویای احوال فرزندش بوده‌اند قدردانی کرد. مادر این دو خواهر همچنین از مردم خواست برای بهبود و سلامتی کامل نارین دعا کنند.
+انتشار جزئیات نجات این دو کودک از سرویس بهداشتی یک خانه در حوالی میدان گاز سنندج، جامعه را با شوک بزرگی مواجه کرد؛ به‌طوری‌که مردم و اهالی منطقه با جدیت و نگرانی عمیق، پیگیر وضعیت جسمی، روحی و درمانی آنان بودند. در همین راستا، گروهی از شهروندان در دیدار با استاندار کردستان، این قضیه را به عنوان یک دغدغه عمومی مطرح و خواستار برخورد قاطع و حمایت همه‌جانبه از این دو خواهر شدند. در جریان عیادت آرش زره‌تن لهونی، استاندار کردستان، از کودکان در بیمارستان کوثر، مادر نارین و آیلین با تشریح آخرین وضعیت فرزندانش، صراحتا خواستار فراهم شدن شرایطی برای زندگی دخترانش در کنار خود شد که این درخواست با هماهنگی اداره‌کل راه و شهرسازی و واگذاری خانه محقق شد. در حال حاضر، یکی از این دو خواهر به دلیل شدت جراحات، شکستگی‌ها و آسیب‌های ناشی از خشونت خانگی مزمن پدر و نامادری همچنان تحت مراقبت‌های ویژه درمانی قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245062
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245062_1781220612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم کلانتری، تولیت شاهچراغ، با هشدار نسبت به ایجاد تفرقه در درون جمهوری اسلامی گفت برخی افراد تلاش می‌کنند اختلافات مربوط به رقابت‌های پیشین را بزرگنمایی کنند، در حالی که به گفته او همگی در موضوع «مقابله با آمریکا» تفاوتی با یکدیگر ندارند.
+
+او تاکید کرد «در شرایط تقابل با دشمن»، حمله به نیروهای داخلی و «دامن زدن به اختلافات» به زیان حکومت است.
+
+کلانتری همچنین از مسئولان حکومتی خواست در گفتار و تصمیم‌گیری هوشیار باشند و از ارسال آنچه «پالس منفی» به «دشمن» خواند، پرهیز کنند. او گفت برخی اظهارنظرها درباره مذاکره یا موضوعات هسته‌ای می‌تواند از سوی طرف مقابل به عنوان نشانه ضعف تعبیر شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245061
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245061_1781220612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی ایران، پنجشنبه ۲۱ خردادماه، در یک برنامه تلویزیونی گفت بخش عمده متن تفاهم نهایی شده است. بقایی افزود مشکل اصلی این است که آمریکا در جریان مذاکرات بارها مواضع خود را تغییر داده و همین موضوع روند دستیابی به توافق را با اخلال مواجه کرده است.
+او با اشاره به نقش قطر و پاکستان به عنوان میانجی گفت اقدامات آمریکا روند دیپلماتیک را تحت تاثیر قرار می‌دهد و وضعیت مذاکرات از ابتدا برای ایران روشن بوده است.
+این اظهارات در حالی مطرح می‌شود که دونالد ترامپ اعلام کرده توافق با جمهوری اسلامی ممکن است طی روزهای آینده امضا و نهایی شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245060
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245060_1781220613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه العربیه بامداد جمعه ۲۲ خردادماه به نقل از منابع خود گزارش داد پیش‌نویس مفاد نهایی توافق میان آمریکا و جمهوری اسلامی شامل تمدید آتش‌بس به مدت ۶۰ روز و بازگشایی تنگه هرمز است.
+
+به گفته منابع العربیه، مذاکره‌کنندگان در طول این دو ماه برای دستیابی به یک راه‌حل سیاسی دائمی تلاش خواهند کرد. این منابع افزودند مذاکرات هسته‌ای بر سازوکارهای راستی‌آزمایی، روندهای بازرسی و محدودیت‌های آینده متمرکز خواهد بود و در همین دوره درباره اورانیوم غنی‌شده با غلظت بالا نیز گفتگو خواهد شد.
+
+به گفته منابع العربیه، آمریکا دسترسی به بخشی از دارایی‌های مسدودشده حکومت ایران را تسهیل خواهد کرد و در چارچوب توافق، کاهش و لغو بخشی از تحریم‌ها را دنبال خواهد کرد. این منابع همچنین گفتند آزادی کشتیرانی بر پایه توافق میان آمریکا و جمهوری اسلامی احیا خواهد شد و گفتگوها درباره لبنان و امنیت منطقه‌ای نیز پس از توافق ادامه می‌یابد.
+
+این گزارش پس از آن منتشر شد که دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۲۱ خردادماه اعلام کرد اسناد توافق با جمهوری اسلامی «تقریبا نهایی» شده و ممکن است ظرف چند روز آینده در اروپا به امضا برسد. ترامپ همچنین گفت این توافق می‌تواند به جنگ با جمهوری اسلامی پایان دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: یه کشتی متخلف تو هرمز رو هدف قرار دادیم دلیل صدای انفجار سیریک همین بود
+@withyashar
+</div>
+
+## WithYashar — post 14596
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14596_1781220613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت توافق به سبک خاورمیانه
+@withyashar
+</div>
+
+## WithYashar — post 14595
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14595_1781220613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه اف۳۵ کد اضطراری 7700 داد!!
+فرود اضطراری @withyashar
+</div>
+
+## WithYashar — post 14594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: دو انفجار در بندرعباس شنیده شده.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+One of the most recognizable lawns in the world is nearly ready for fight night.
+
+The UFC Octagon is in place outside the White House for the "UFC Freedom 250" celebration on June 14th — which is also President Trump's birthday.
+
+Preparations have been underway for weeks, including the installation of a roughly 90-foot-tall steel arch, dubbed the "claw." The event is expected to attract 4,000 spectators.
+</div>
+
+## FoxNewsTwitter — post 342884
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342884_1781220614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump pauses Iran strikes amid peace talks, Jay Clayton is nominated as the next DNI, FOX News' @GriffJenkins reports.
+</div>
+
+## FoxNewsTwitter — post 342883
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342883_1781220616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A U.S. senator just made ESPN's Top 10.
+
+Missouri @Eric_Schmitt laid out near the left field foul line during the Congressional Baseball Game, never taking his eyes off a drifting fly ball before hauling in a diving catch.
+
+Schmitt got up with his nose bleeding, fired the ball back to the infield, and had Nationals Park on its feet.
+
+But his baseball history — and that specific glove — takes him all the way back to his high school days and a $40 restring at Play It Again Sports, he tells the @RuthlessPodcast.
+
+To his own disbelief, the catch landed at No. 5 on SportsCenter's Top 10 plays as Republicans rolled to an 11-2 win over Democrats — their sixth straight victory in the annual charity game. | @HolmesJosh @MichaelDuncan
+</div>
+
+## FoxNewsTwitter — post 342882
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342882_1781220619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+KHOSRO ISFAHANI: "A bad deal with Iran is worse than no deal... A bad deal is going to only enable this regime."
+
+"The JCPOA under Obama enabled them to bring us October 7th — imagine what else this regime would do." https://twitter.com/WillCainShow/status/2065179987892744397#m
+</div>
+
+## FoxNewsTwitter — post 342881
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342881_1781220621.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The White House lawn has been transformed for fight night.
+
+A UFC Octagon now sits just steps from the White House, surrounded by plenty of seats for an audience.
+
+The setup is for the upcoming "Freedom 250" event on June 14, weeks before America prepares to celebrate its 250th anniversary.
+</div>
+
+## pm_afshaa — post 93666
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93666_1781220622.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رضایی، سخنگوی کمیسیون امنیت ملی مجلس:
+
+احتمال فریب از سوی ترامپ بالاست، او فردا معامله بزرگی در پیش داره و میخواد فعلا اوضاع رو آرام نگه داره. محکم‌تر بزنید، زیرساخت‌ها و مراکز اقتصادی و هوش مصنوعی دشمن در منطقه رو ویران و نابود کنید تا بیشتر دردشون بگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بندر عباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: یه کشتی متخلف تو هرمز رو هدف قرار دادیم دلیل صدای انفجار سیریک همین بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلمبه های سنگین اسراییل به لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5604
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5604_1781220622.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 دژ فوتبالی با مهدی رستم‌پور، هر شب پس از خبر ۲۱ ویژه جام‌جهانی فوتبالی
+
+چرا قلعه‌نوعی مدیر اجرایی تیم ملی را از اتوبوس پیاده کرد؟ پای یک میلیون دلار پول در میان بود.
+
+✨نظرات و ویدیوهای خود را برای این برنامه به تلگرام دژ ارسال کنید:
+@Dejreport
+
+#فوتبال #جام_جهانی
+@DEJradio
+</div>
+
+## DEJradio — post 5603
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5603_1781220623.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 ساعاتی پس از آنکه دونالد ترامپ اعلام کرد حمله به ایران لغو و توافق نهایی شده، صدای چندین انفجار در نواحی جنوبی ایران شنیده شد. منابع عربی نیز از درگیری نیروهای سـ.ـپاه و تنفنگداران آمریکایی در تنگه هرمز خبر دادند.
+
+منابع محلی در منطقه سیریک (استان هرمزگان) می‌گویند صدای انفجاری در دریا، در فاصله حدود دو کیلومتری ساحل، به گوش رسیده است.
+
+*عکس آرشیوی
+
+#جنگ #هرمزگان
+@DEJradio
+</div>
+
+## VahidOnline — post 76253
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76253_1781220623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه بامداد جمعه ۲۲ خردادماه به نقل از منابع خود گزارش داد پیش‌نویس مفاد نهایی توافق میان آمریکا و جمهوری اسلامی شامل تمدید آتش‌بس به مدت ۶۰ روز و بازگشایی تنگه هرمز است.
+
+به گفته منابع العربیه، مذاکره‌کنندگان در طول این دو ماه برای دستیابی به یک راه‌حل سیاسی دائمی تلاش خواهند کرد. این منابع افزودند مذاکرات هسته‌ای بر سازوکارهای راستی‌آزمایی، روندهای بازرسی و محدودیت‌های آینده متمرکز خواهد بود و در همین دوره درباره اورانیوم غنی‌شده با غلظت بالا نیز گفتگو خواهد شد.
+
+به گفته منابع العربیه، آمریکا دسترسی به بخشی از دارایی‌های مسدودشده حکومت ایران را تسهیل خواهد کرد و در چارچوب توافق، کاهش و لغو بخشی از تحریم‌ها را دنبال خواهد کرد. این منابع همچنین گفتند آزادی کشتیرانی بر پایه توافق میان آمریکا و جمهوری اسلامی احیا خواهد شد و گفتگوها درباره لبنان و امنیت منطقه‌ای نیز پس از توافق ادامه می‌یابد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای خبرگزاری فارس:
+ایران اجازۀ عبور نفتکش متخلف از تنگۀ هرمز را نداد
+
+🔹پیگیری خبرنگار فارس در بندرعباس از منابع محلی نشان می‌دهد دقایقی قبل نیروهای ایران اجازۀ عبور یک نفتکش متخلف که بدون هماهنگی وارد محدودۀ تنگه شده بود را ندادند.
+
+🔹گزارش‌های مردمی نیز از شنیده شدن صدای سه انفجار در فاصله حدود دو کیلومتری ساحل از سیریک حکایت دارد.
+
+صدا و سیما:
+یک منبع آگاه نظامی تایید کرد صداهای انفجار شنیده شده در شهرستان سیریک مربوط به مقابله با یک فروند شناور متخلفی است که قصد عبور از تنگه هرمز را داشت
+
+براساس اعلام این مقام نظامی؛ شناوری که دقایقی پیش مخل نظم دریانوردی اعلام شده بود یک فروند نفت کش است که با اخطار نیروی دریایی سپاه ناچار به رعایت قانون منع تردد در تنگه هرمز شد.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ادعای ارتش آمریکا:
+
+در حال بررسی گزارش‌ها درباره حمله به تاسیسات آب ایران هستیم
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-گزارش‌های اولیه حاکی از آن است که ایران دوباره با یک کشتی، احتمالاً یک رزمنده سطحی آمریکایی، در حین عبور از تنگه هرمز درگیر شده است. این در حالی است که فرماندهی مرکزی ایالات متحده اعلام کرده است که عبور امن برای کشتی‌های تجاری که محاصره ایالات متحده را نقض نمی‌کنند، در دسترس است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341824
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341824_1781220624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید از ونکوور: همه دنیا برای شادی به جام جهانی می‌روند، اما مردم من زیر فشار له می‌شوند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/x7UesvMnjhM
+@iranintltv
+</div>
+
+## IranIntlTV — post 341823
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341823_1781220625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرده در حال بررسی گزارش‌هایی است که بر اساس آنها حملات آمریکا ممکن است یک تاسیسات آبی در جنوب ایران را هدف قرار داده باشد.
+
+تیم هاوکینز، سخنگوی سنتکام، با بیان این مطلب به شبکه خبری سی‌بی‌اس افزوده: «از این گزارش‌ها آگاه شده و در حال بررسی آنها هستیم.»
+
+این اظهارات پس از آن مطرح شد که مقام‌های حکومت ایران اعلام کردند حمله به یک تاسیسات آبی باعث شده که حدود ۲۰ هزار نفر به آب آشامیدنی دسترسی نداشته باشند.
+https://iranintl.com/202606118442
+</div>
+
+## IranIntlTV — post 341822
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341822_1781220626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا از تهران: این تیم ملی ما نیست؛از دوره قبل که برای دست‌بوسی رفتند، دیگر تیم ما نبود
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/x7UesvMnjhM
+@iranintltv
+</div>
+
+## IranIntlTV — post 341821
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341821_1781220628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرهاد از شیراز: امید بعضی از ما به جنگ از این جهت بود که بتوانیم خودمان کار را تمام کنیم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/x7UesvMnjhM
+@iranintltv
+</div>
+
+## IranIntlTV — post 341820
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341820_1781220630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنتونی از سوئد: به سندروم انتظار ترامپ و بی‌بی مبتلا شده‌ایم؛ خودمان باید به خیابان بیاییم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/x7UesvMnjhM
+@iranintltv
+</div>
+
+## IranIntlTV — post 341819
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341819" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی | آیا واقعاً آمریکا و جمهوری اسلامی توافق کرده‌اند؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341818
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341818_1781220631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تورنتو برای نخستین بار میزبان جام جهانی فوتبال شده است و بزرگ‌ترین رویداد فوتبالی جهان حال و هوای این شهر و ونکوور را تحت تاثیر قرار داده است. طرفداران فوتبال از سراسر جهان برای حضور در این رقابت‌ها راهی کانادا شده‌اند.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341817
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341817_1781220633.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ۲۰۲۶ با مراسمی پرستاره در ورزشگاه آزتکا در مکزیکوسیتی آغاز شد. این نخستین دوره جام جهانی با حضور ۴۸ تیم است که به میزبانی مشترک کانادا، مکزیک و آمریکا برگزار می‌شود.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341816
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341816_1781220634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد قائدی، مدرس روابط بین‌الملل، گفت: «همان‌طور که پس از آتش‌بس میان ایران و آمریکا، تبادل آتش و درگیری‌های محدود همچنان ادامه داشت، در لبنان نیز نه حزب‌الله و نه اسرائیل به‌طور کامل به آتش‌بس پایبند نبودند.»
+
+او افزود: «بنابراین حتی اگر چنین بندی در توافق جدید ذکر شود، تضمینی برای اجرای عملی آن وجود ندارد و ممکن است در آینده نیز نقض شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341815
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341815_1781220635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از نمایندگان احزاب مختلف بریتانیا خواستار تعطیلی دفتر صداوسیمای جمهوری اسلامی در لندن و آغاز تحقیقات درباره فعالیت‌های این رسانه شدند. این درخواست پس از انتشار گزارشی مطرح شد که مدعی است در یکی از برنامه‌های وابسته به صداوسیما، دو روزنامه‌نگار ایرانی مخالف جمهوری اسلامی در بریتانیا تهدید شده‌اند.
+
+چند نماینده محافظه‌کار و کارگر این اظهارات را مصداق تحریک به خشونت دانسته و خواستار اقدام دولت و پلیس مبارزه با تروریسم شده‌اند. برخی از آنها همچنین خواهان قرار گرفتن سپاه پاسداران در فهرست سازمان‌های ممنوعه بریتانیا و اعمال تحریم‌های بیشتر علیه نهادهای وابسته به جمهوری اسلامی شده‌اند.
+
+وزارت کشور بریتانیا اعلام کرده تهدیدهای منتسب به ایران را زیر نظر دارد و اقدامات لازم را برای مقابله با آنها در دستور کار قرار داده است. پلیس متروپولیتن لندن نیز گفته هرگونه گزارش مرتبط با امنیت ملی یا تروریسم را بررسی خواهد کرد.
+
+متن کامل را اینجا بخوانید
+https://iranintl.com/202606118100
+</div>
+
+## IranIntlTV — post 341814
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341814_1781220636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم کلانتری، تولیت شاهچراغ، با هشدار نسبت به ایجاد تفرقه در درون جمهوری اسلامی گفت برخی افراد تلاش می‌کنند اختلافات مربوط به رقابت‌های پیشین را بزرگنمایی کنند، در حالی که به گفته او همگی در موضوع «مقابله با آمریکا» تفاوتی با یکدیگر ندارند.
+
+او تاکید کرد «در شرایط تقابل با دشمن»، حمله به نیروهای داخلی و «دامن زدن به اختلافات» به زیان حکومت است.
+
+کلانتری همچنین از مسئولان حکومتی خواست در گفتار و تصمیم‌گیری هوشیار باشند و از ارسال آنچه «پالس منفی» به «دشمن» خواند، پرهیز کنند. او گفت برخی اظهارنظرها درباره مذاکره یا موضوعات هسته‌ای می‌تواند از سوی طرف مقابل به عنوان نشانه ضعف تعبیر شود.
+https://iranintl.com/202606112771
+</div>
+
+## IranIntlTV — post 341813
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341813_1781220636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در فاصله‌ای کوتاه از تهدید به حملات سنگین علیه ایران، دونالد ترامپ از تفاهمی تازه با جمهوری اسلامی خبر داد؛ توافقی که می‌گوید با حمایت کشورهای منطقه همراه است، اما اسرائیل می‌گوید از آن بی‌خبر بوده است.
+
+سمیرا قرایی گزارش می‌دهد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341812
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341812_1781220638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی، درباره اظهارات دونالد ترامپ مبنی بر توافق اولیه با جمهوری اسلامی گفت: «ممکن است اکنون در نزدیک‌ترین فاصله به یک توافق میان تهران و واشینگتن قرار داشته باشیم، اما پیش از این هم دونالد ترامپ چند بار تا آستانه توافق پیش رفته بود.»
+
+او افزود: «امروز ترامپ می‌گوید با رهبران کشورهای منطقه و همچنین بنیامین نتانیاهو گفت‌وگو کرده است، اما همین سخنان را پیش‌تر نیز، از جمله در ۲۴ مه، مطرح کرده بود و گفته بود همه این کشورها از توافق حمایت می‌کنند. با این حال، در عمل چنین توافقی شکل نگرفت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341811
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341811_1781220639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پس از تهدید دونالد ترامپ به حملات شدید علیه ایران و تصرف جزیره خارک، او گفت حمله به ایران را لغو کرده و در گفت‌وگو با مقام‌های عالی جمهوری اسلامی به توافقی اولیه با تهران رسیده است.
+
+ترامپ افزود تفاهم‌نامه‌ای بسیار مفصل و دارای جزییات تدوین شده و این توافق نهایی خواهد شد.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6970
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6970_1781220640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Steve Lookner ✓ @lookner Thu, 11 Jun 2026 22:20:27 UTC Iran state media Mehr: --"Minutes ago, Iranian forces did not allow the passage of an offending oil tanker that had entered the strait without coordination." --"A few minutes ago, residents of Bandar…
+</div>
+
+## Shin_Persian — post 6969
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Steve Lookner ✓ @lookner
+Thu, 11 Jun 2026 22:20:27 UTC
+
+Iran state media Mehr:
+--"Minutes ago, Iranian forces did not allow the passage of an offending oil tanker that had entered the strait without coordination."
+--"A few minutes ago, residents of Bandar Abbas and some local sources reported that two consecutive explosions were heard in the city...A source in the Hormozgan Governorate told Mehr: 'There has been no impact (impact or explosion caused by a projectile) related to these sounds.' Investigations to determine the exact origin of the sounds are ongoing, and additional information will be announced later."
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر ایران:
+--«دقایقی پیش، نیروهای ایرانی اجازه عبور به یک نفت‌کش متخلف که بدون هماهنگی وارد تنگه شده بود را ندادند.»
+--«دقایقی پیش، ساکنان بندرعباس و برخی منابع محلی گزارش دادند که صدای دو انفجار پی‌درپی در شهر شنیده شده است... یک منبع در استانداری هرمزگان به مهر گفت: "هیچ اصابتی (اصابت یا انفجار ناشی از پرتابه) در رابطه با این صداها رخ نداده است." تحقیقات برای تعیین منشأ دقیق صداها در جریان است و اطلاعات تکمیلی متعاقباً اعلام خواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 22:19:40 UTC
+
+Jet activity over Baghdad, #Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+فعالیت جت‌ها بر فراز بغداد، #عراق 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 21:54:27 UTC
+
+Explosion sound in Bandar Abbas, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+صدای انفجار در بندرعباس، استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 220444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تفاوت فعالیت‌های دانشجویی در جامعه امروز ایران با دهه‌های گذشته چیست؟ گفت‌وگو با با ایمان آقایاری
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220443
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220443_1781220641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حال و هوای لس‌آنجلس در روز اول جام جهانی ۲۰۲۶؛ گزارش آرمیتا آزاد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220442
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220442_1781220642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️استقبال اعضای مجلس اعیان بریتانیا از برنامه دولت برای مقابله با سپاه پاسداران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220441
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220441_1781220642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش جمهوری اسلامی به «تصرف» احتمالی جزیره خارک چه خواهد بود؟ گفت‌وگو با صالح کامرانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220440
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220440_1781220643.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محمدرضا فغانی داور بین المللی در مورد شرایط بازیکنان تیم ایران می‌گوید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220439
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220439_1781220644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مطالبه تاب‌آوری حکومت از مردم در سایه بحران اعتماد عمومی؛ گفت‌وگو با اسماعیل عبدی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220438
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220438_1781220644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حال و هوای تورنتو در روز اول آغاز جام جهانی ۲۰۲۶؛ گزارش امیرعلی پیروزبخش
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدای انفجارها در سواحل جنوب ایران؛ خبرگزاری حکومتی می‌گوید جمهوری اسلامی مانع عبور یک نفتکش شد
+
+▪️در پی شنیده شدن صدای چندین انفجار در سواحل جنوب ایران، خبرگزاری فارس وابسته به سپاه پاسداران به نقل از «منابع محلی» در بندرعباس گفت که نیروهای جمهوری اسلامی به یک نفتکش که «بدون هماهنگی» وارد محدود تنگه هرمز شده بود اجازه عبور ندادند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159871.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️انتقال ۴۰۸ زندانی افغان از ایران به افغانستان؛ نگاهی به روابط رو به گسترش جمهوری اسلامی و طالبان
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220435
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220435_1781220645.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبک ویژه برنامه‌ی جام جهانی ۲۰۲۶ هر شب ساعت ۲۳ به وقت ایران تا پایان جام جهانی با اجرای آرش آرا و ونوس مرادی مهمان خانه های شماست. ما هر شب با مرور مهم‌ترین اتفاقات و اخبار جام جهانی ۲۰۲۶، در کنار کارشناسان، خبرنگاران و مهمانان ویژه با شما همراه خواهیم بود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220434
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220434_1781220646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️برق جنوب غرب استان تهران، از جمله مناطق اسلامشهر، بهارستان و رباط‌کریم قطع شده است و مقامات حکومتی این قطع برق را ناشی از «نقص نفی در بخش فوق توزیع» عنوان کرده‌اند. سوءمدیریت و سال‌ها عدم سرمایه‌گذاری کافی در حوزه برق، از عوامل خاموشی‌های پی در پی در ایران است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16820
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16820_1781220646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#جام_جهانی 🏆
+2 گل و 3 اخراج در دیدار افتتاحیه جام جهانی 2026
+
+🇲🇽 مکزیک 2 - 0 آفریقای جنوبی 🇿🇦
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16819
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16819_1781220646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ کارشناس شبکه خبر: با صراحت میگویم که متاسفانه بخش عمده ای از شروط ده‌گانه رهبری در توافق وجود ندارد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16818
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16818_1781220648.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتصاب شکننده در کابینه استارمر
+
+▪️ دن جارویس وزیر دفاع انگلیس شد
+
+🔹 «کی‌یر استارمر» نخست‌وزیر انگلیس، در بحبوه بحران رهبری حزب کارگر و فشارهای فزاینده بر دولتش، «دن جارویس» را به عنوان وزیر دفاع جدید منصوب کرد.
+
+🔹 این انتصاب ساعاتی پس از استعفای ناگهانی «جان هیلی»، وزیر دفاع پیشین، و «آل کارنز»، وزیر نیروهای مسلح، انجام شد و نشان‌دهنده شکاف عمیق در کابینه بر سر بودجه و برنامه سرمایه‌گذاری دفاعی است.
+
+🔹 جان هیلی روز پنج شنبه در نامه‌ای تند به استارمر استعفا داد و اعلام کرد که برنامه سرمایه‌گذاری دفاعی دولت «به طور قابل توجهی کمتر از آنچه برای دفاع و امنیت کشور در این زمان خطرناک لازم است» تأمین شده است. / تسنیم
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👨‍💻صداوسیما: پخش تصویر انفجار اتمی اشتباه در تدوین بود. 💢 مجری برنامه‌ی به وقت ایران شبکه‌ی خبر درباره‌ی پخش تصاویری از انفجار اتمی در این شبکه گفت که بنا بر اطلاعی که به او داده‌اند این اتفاق به دلیل اشتباه در تدوین رخ داده بود و شایعات درباره‌ی هک شدن شبکه‌ی…
+</div>
+
+## Persian_Trend_Official — post 16816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: یک منبع آگاه نظامی تایید کرد صداهای انفجار شنیده شده در شهرستان سیریک مربوط به مقابله رزمندگان با یک فروند شناور متخلفی است که قصد عبور از تنگه هرمز را داشت.
+
+این منبع آگاه در نیروی دریایی سپاه گفت: پس از شرارت‌های دیشب ارتش تروریستی و کودک‌کش آمریکا در سواحل جنوبی کشور و مسدودشدن تنگه هرمز توسط ایران، نیروی دریایی سپاه تنگه هرمز را مسدود کرده و با اطلاعیه‌های پی در پی، شناورها را از دریانوردی ناایمن در تنگه هرمز برحذر داشته و اعلام کرده هر گونه تلاش برای گذر از تنگه هرمز، اقدامی مخل امنیت محسوب می‌شود.
+
+این منبع آگاه نظامی گفت: ناخدایان و کاپیتان‌های کشتی‌ها فریب ارتش تروریستی آمریکا برای گذشتن از تنگه هرمز را نخورند و بر اساس اطلاعیه نیروی دریایی سپاه در لنگرگاه بمانند.
+
+براساس اعلام این مقام نظامی؛ شناوری که دقایقی پیش مخل نظم دریانوردی اعلام شده بود یک فروند نفتکش است که با اخطار نیروی دریایی سپاه ناچار به رعایت قانون منع تردد در تنگه هرمز شد.
+
+نیروی دریایی سپاه بر حسب وظیفه ذاتی هم اینک مشغول رصد و پایش تنگه هرمز است و با هر شناوری که قصد عبور از این آبراهه را داشته باشد به شدت برخورد می‌کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷زلزله‌ای به بزرگی ۴.۱ ریشتر شهر کهنوج ایران را لرزاند.
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16814
+
+
+
+
+## Persian_Trend_Official — post 16813
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16813_1781220648.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👨‍💻صداوسیما: پخش تصویر انفجار اتمی اشتباه در تدوین بود.
+
+💢 مجری برنامه‌ی به وقت ایران شبکه‌ی خبر درباره‌ی پخش تصاویری از انفجار اتمی در این شبکه گفت که بنا بر اطلاعی که به او داده‌اند این اتفاق به دلیل اشتباه در تدوین رخ داده بود و شایعات درباره‌ی هک شدن شبکه‌ی خبر نادرست است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16811
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16811_1781220650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفیق دوست
+</div>
+
+## Persian_Trend_Official — post 16810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشها از انفجار در پادگان تیپ ۵۵ هوابرد ارتش درشیراز.
+غیررسمی
+</div>
+
+## Persian_Trend_Official — post 16809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtu.be/uMgTLpamlgI
+</div>
+
+## Persian_Trend_Official — post 16805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مراسم اولین سالگرد محمد باقری در مسجد امام صادق تهران
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16804
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16804_1781220650.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16803
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16803_1781220651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ارسال کد اضطراری 7700 یک Typhoon بریتانیایی
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی مخاطبان: شنیده شدن صدای انفجار از سمت فرودگاه بندرعباس
+</div>
+
+## Persian_Trend_Official — post 16801
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16801_1781220651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده F-35 در آسمان امارات
+</div>
+
+## Persian_Trend_Official — post 16800
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16800_1781220651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده F-35 در آسمان امارات
+</div>
+
+## IranianMinds — post 22359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدا و سیما:
+
+دقایقی پیش زلزله‌ای به مقیاس ۴.۱ ریشتر در حوالی کهنوج استان کرمان.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22358
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22358_1781220652.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یارو دیشب وسط اتوبان حکیم تهران پیاده دووید رفت وسط اتوبان اونجا گوشیه یارو که تو ماشین بود از دستش کند و دزدید رفت :/
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22357
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22357_1781220652.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه ساعت پیش شبکه خبر صداوسیما اینطوری هک شد : @IranianMinds
+</div>
+
+## IranianMinds — post 22356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره برای بار هزارم :
+
+بنظر‌ میرسه همه چیز بین ایران و آمریکا حل شده و بزودی به توافق میرسن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کد اضطراری ۷۷۰۰ در هوانوردی یک کد بین‌المللی است که خلبان با آن اعلام می‌کند هواپیما دچار وضعیت اضطراری عمومی شده و به کمک و اولویت فوری نیاز دارد. این کد علت مشکل را مشخص نمی‌کند؛ ممکن است نقص فنی، آتش‌سوزی یا هر وضعیت اضطراری دیگری باشد @IranianMinds
+</div>
+
+## IranianMinds — post 22354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان آرومتر مذاکره کنید بچه های جنوب راحت بخوابن
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه f35 کد اضطراری ۷۷۰۰ صادر کرد. @IranianMinds
+</div>
+
+## IranianMinds — post 22352
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22352_1781220654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه f35 کد اضطراری ۷۷۰۰ صادر کرد.
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22351
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22351_1781220654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه لیست ترور جدید منتشر کرد
+
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 زلزله کهنوج را لرزاند
+
+رسانه‌های ایران گزارش کرده‌اند که در شهرستان کهنوج در استان کرمان زلزله رخ داده است.
+
+خبرگزاری ایرنا گفته این زلزله به بزرگی ۴/۱ بوده است.
+
+براساس گزارش‌ها این زمین‌لرزه در عمق ۱۹ کیلومتری زمین به وقوع پیوسته است.
+
+هنوز گزارشی از خسارت‌های احتمالی منتشر نشده است.
+
+https://bbc.in/4vDVlpB
+@BBCPersian
+</div>
+
+## BBCPersian — post 283485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آستانه سومین میزبانی جام جهانی، به نظر نمی‌رسد که مکزیکی‌ها با وجود ناکامی‌های اخیر امیدوار باشند، به روزهای خوش گذشته بازگردند. البته بازگشت خاویر آگیره تا حدی ثبات را به تیم برگرداند. او توانست پس از دوره‌ای پر تلاطم، دوباره روحیه رقابت‌پذیری را به تیم برگرداند.
+
+
+رائول خیمنس، ستاره تیم با وجود موفقیت در لیگ برتر انگلیس، هیچ‌گاه نتوانست در اوج آمادگی به جام جهانی برسد. او اکنون در ۳۵ سالگی و پس از فصلی بسیار خوب با فولام، در آخرین فرصت خود، بار اصلی خط حمله مکزیک را به دوش می‌کشد.
+
+
+جمهوری چک پس از سال‌ها ناکامی، سرانجام دوباره به جام جهانی رسیده است. اتفاقی مهم برای تیمی که با وجود حضور مداوم در جام ملت‌های اروپا از ۱۹۹۶، در این مدت فقط یک‌بار به جام جهانی صعود کرده بود.
+
+
+لادیسلاو کریچی ۲۷ ساله، ستاره تیم، کاپیتان و مدافع میانی تیم، با وجود پستش، شم بالایی در گلزنی دارد و توانسته است در دوران حرفه‌ای‌اش به‌طور میانگین هر پنج بازی یک گل بزند.
+
+متن کامل این مطلب را در سایت فارسی بی‌بی‌سی بخوانید.
+
+https://bbc.in/449u96l
+📸GettyImages
+@BBCPersian
+</div>
+
+## BBCPersian — post 283484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 گفت‌وگوی تلفنی امیر قطر با ترامپ در خصوص احتمال توافق با ایران
+
+پیشتر دونالد ترامپ، رئیس جمهور آمریکا، گفت که او امروز با متحدان خود در سراسر منطقه، از جمله شیخ تمیم بن حمد آل ثانی، امیر قطر، صحبت کرده است.
+
+دولت قطر گفته است که در طول این مکالمه، آنها مذاکرات بین ایالات متحده و ایران را «بررسی» کرده‌اند.
+
+در بیانیه‌ دفتر مطبوعاتی امیر قطر آمده است که هر دو رهبر «نتایج رایزنی‌ها و تفاهماتی را که بین ایالات متحده آمریکا و جمهوری اسلامی ایران صورت گرفته و منجر به پیشرفت در تفاهمات ارائه شده در چارچوب مسیر مذاکرات شده است، بررسی کردند.»
+
+در ادامه قطر گفته است که «رئیس جمهور آمریکا اعلام کرد که تفاهمات حاصل شده مورد تایید همه طرف‌های ذیربط، با مشارکت و حمایت تعدادی از کشورهای برادر و دوست، از جمله کشور قطر، قرار گرفته است، در حالی که تلاش‌ها برای تکمیل مراحل نهایی آماده‌سازی برای اعلام مقدمات امضای توافق‌نامه ادامه دارد.»
+
+https://bbc.in/3QgC4LS
+@BBCPersian
+</div>
+
+## BBCPersian — post 283483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 مقام‌ها در ایران: هیچ حمله و انفجاری در سیریک گزارش نشده است
+
+پس از آن که گزارش‌هایی از شنیدن صدای انفجار در حوالی سیریک - سواحل خلیج فارس - شنیده شد، خبرگزاری تسنیم، نزدیک به سپاه پاسداران - به نقل از خبرنگار خود در هرمزگان نوشته است:
+
+«با توجه به تاکید نیروهای مسلح ایران بر بسته بودن کامل تنگه هرمز به دلیل تجاوزگری و ناامن‌سازی آمریکا، طبق بررسی‌ها، صداهایی که از دقایقی پیش در اطراف سیریک به گوش می‌رسد مربوط به اخطار و اقدام نیروهای مسلح برای جلوگیری از تخلفات از این دستورالعمل مدیریت آبراه تنگه هرمز است.»
+
+همزمان گزارش‌های اولیه و تایید نشده از شنیده شدن صدای انفجار در بندرعباس مخابره شده است اما مقام‌های محلی ضمن تکذیب حمله به فرودگاه بندرعباس از دردست بررسی بودن شناسایی منشاء صداها خبر داده‌اند.
+
+https://bbc.in/4eetDbV
+@BBCPersian
+</div>
+
+## BBCPersian — post 283482
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283482_1781220655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+اسماعیل بقایی، سخنگوی وزارت خارجه ایران در یک مصاحبه تلفنی گفت علیرغم فعالیت قطر و پاکستان به عنوان میانجی، روند دیپلماتیک مذاکرات به دلیل اقدامات آمریکا تحت تاثیر قرار گرفته است.
+
+آقای بقایی تاکید کرد که بخش عمده متن توافق نهایی شده اما به خاطر مواضع ضدونقیض آمریکا باعث تلاطم و اخلال در دست یافتن به توافق شده است.
+
+سخنگوی وزارت خارجه در این مصاحبه گفت: «ادعاها درباره زمان و مکان توافق صرفا گمانه‌زنی رسانه‌ای است و تا مراجع ذی‌ربط نظام درباره تک‌تک اجزای متن توافق به جمع‌بندی نهایی نرسند صحبت درباره شکل امضا و مکان آن فایده ندارد.»
+
+آقای بقایی اشاره کرد که متن توافق از پیش برای ما روشن بود اما طرف آمریکایی هربار مطالبه غیرمعقولی مطرح می‌کرد و بار دیگر تاکید کرده که ایران تحت فشار و تهدید از مواضع اصولی و خطوط قرمز خود کوتاه نخواهد آمد.
+
+https://bbc.in/4xjTyId
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 283481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 با اخبار احتمال توافق با ایران، نفت به زیر بشکه‌ای ۹۰ دلار رسید
+ریچل کلون، خبرنگار اقتصادی
+
+پس از آنکه دونالد ترامپ، رئیس جمهوری آمریکا گفت توافق با ایران می‌تواند تا آخر این هفته امضا شود، قیمت نفت به زیر ۹۰ دلار در هر بشکه سقوط کرد.
+
+قیمت نفت خام برنت، پس از بسته شدن بازارهای آمریکا، حدود ۸۹/۱۰ دلار در هر بشکه معامله شد که ۴/۷۵ درصد نسبت به روز قبل کاهش داشت.
+
+این یکی از پایین‌ترین قیمت‌ها از زمان آغاز درگیری چند ماهه آمریکا و ایران است. با ان حال این قیمت هنوز بسیار بالاتر از نرخ ۷۰ دلار در هر بشکه‌ است که قبل از جنگ معامله می‌شد.
+
+بازارهای اصلی بورس آمریکا نیز با روند صعودی بسته شدند؛ داو جونز ۱/۸۶ درصد، اس اند پی ۵۰۰ معادل ۱/۷۵ درصد و شاخص نزدک که بیشتر به فناوری وابسته است ۲/۵۴ درصد افزایش یافتند.
+
+https://bbc.in/4vO4WKS
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 #جام_جهانی شروع شده و میدون مال توئه! 
+🔽 هر اتفاقی توی زمین چمن، می‌تونه برگت رو ببره بالا. حالا وقتشه قهرمان روز باشی و بزرگ بازی کنی! 👑 ⚽️ این جام جهانی رو فقط باید توی بت فیدو پیش‌بینی کنی 
+😀 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی…
+</div>
+
+## Dirty_Kids — post 391769
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391769_1781220655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 #جام_جهانی شروع شده و میدون مال توئه! 
+🔽
+
+هر اتفاقی توی زمین چمن، می‌تونه برگت رو ببره بالا. حالا وقتشه قهرمان روز باشی و بزرگ بازی کنی! 👑
+
+⚽️ این جام جهانی رو فقط باید توی بت فیدو پیش‌بینی کنی
+
+
+😀 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان
+
+🏅 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان
+A21
+
+💸 هرچی بزرگ‌تر بازی کنی، جایزه‌ت بزرگ‌تره!
+همین حالا پیش بینیتو ثبت کن✏️
+https://fido874vt.click
+https://fido874vt.click
+
+📤
+📤
+📤
+📤
+📤
+📤
+📤
+📤
+(ورود با وی-پی-ان غیر اروپایی)
+
+
+😀 کانال تلگرام 👇
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 391768
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391768_1781220656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391767
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391767_1781220656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه لیست ترور جدید منتشر کرد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یه تشکری هم کنیم از عرزشیا که به جای ما 100 روزه دارن برا مرگ خامنه ای جشن میگیرن😂
+خداییش ما فقط هفته اولش تونستیم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391765
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391765_1781220657.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای تصویر تکرار این لحظه...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391764
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391764_1781220657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوتبالم فوتبالای قدیم
+یذره مارادونا ببینید لذت ببرید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391763
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391763_1781220658.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلخ و سنگین ، دردناک و سوزشی برای چپولای فاندخورِ فلسطین مال
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391762
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391762_1781220658.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پشماتون بریزه، دیشب وسط اتوبان حکیم تهران، پیاده موبایل یه نفرو دزدیدن😐😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری‌عسلامی مصرو تهدید کرده که اگه توی جام جهانی بخواید به ما گل بزنید سال بعد توی سریال یوزارسیف زلخیا رو میکنیم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127284
+
+<div align="center">
+  <a href="telegram/content/alonews_127284_1781220658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک فروند جنگنده اف-۳۵ آمریکایی بر فراز امارات متحده عربی اعلام وضعیت اضطراری کرد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127283
+
+<div align="center">
+  <a href="telegram/content/alonews_127283_1781220658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیگیری خبرنگار فارس در بندرعباس از منابع محلی نشان می‌دهد دقایقی قبل نیروهای ایران اجازه عبور یک نفتکش متخلف که بدون هماهنگی وارد محدوده تنگه شده بود را ندادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127282
+
+<div align="center">
+  <a href="telegram/content/alonews_127282_1781220659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: دو انفجار در بندرعباس شنیده شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127281
+
+<div align="center">
+  <a href="telegram/content/alonews_127281_1781220659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک فروند جنگنده اف-۳۵ آمریکایی بر فراز امارات متحده عربی اعلام وضعیت اضطراری کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 01:23
 ---
 
