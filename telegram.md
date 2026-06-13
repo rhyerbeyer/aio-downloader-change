@@ -1,10 +1,1679 @@
 # خواننده تلگرام
 
 <!-- TOP_NAV START -->
-<div dir="rtl" style="text-align:left; margin-bottom:10px;"><a href="https://github.com/rhyerbeyer/aio-downloader-change/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+
 <!-- TOP_NAV END -->
 
 <!-- MSG START -->
+
+---
+📅 بروزرسانی: 1405/03/23 16:30
+---
+
+## VahidOOnLine — post 245308
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245308_1781355646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در نشستی در همدان، گفت: «تفاهم نامه اسلام‌آباد که در حال پیگیری است، بر خاتمه جنگ در همه جبهه‌ها، از جمله لبنان تمرکز دارد و در این مرحله تصمیم بر این شده که بحثی در مورد موضوع هسته‌ای نشود.»
+
+او ادامه داد: «درباره زمان دقیق امضا باید منتظر بمانیم؛ اگرچه فردا نخواهد بود اما احتمال اینکه در روزهای آتی این اتفاق رقم بخورد، منتفی نیست.»
+
+بقائی افزود: «به دلیل تزلزل طرف مقابل در هرگونه اظهارنظر درباره این روند باید محتاط باشیم.»
+
+او اضافه کرد: «طرف مقابل به هیچ عنوان عملکرد مناسبی در ایفای تعهدات خود نداشته و ما نیز باید متناسب با آن پیش‌بینی‌های لازم را انجام دهیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245307
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245307_1781355647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سازمان پزشکی قانونی اعلام کرد در سال ۱۴۰۴، ۱۹ هزار و ۵۴۰ نفر در حوادث رانندگی جان خود را از دست داده‌اند؛ آماری که نسبت به سال قبل تغییر محسوسی نداشته و همچنان از تداوم بحران تلفات جاده‌ای حکایت دارد.
+بر اساس این گزارش، از مجموع جان‌باختگان، ۱۵ هزار و ۶۶۰ نفر مرد و سه هزار و ۸۸۰ نفر زن بوده‌اند. استان‌های تهران، فارس و سیستان و بلوچستان بیشترین آمار فوتی و استان‌های ایلام، کهگیلویه و بویراحمد و قم کمترین تعداد قربانیان را ثبت کرده‌اند.
+بیشترین تلفات با ۱۳ هزار و ۳۸۲ فوتی در محورهای برون‌شهری رخ داده است. همچنین در تصادفات درون‌شهری ۴ هزار و ۹۷۹ نفر و در محورهای روستایی هزار و ۷۳ نفر جان خود را از دست داده‌اند.
+آمارها نشان می‌دهد شهریورماه با ثبت ۲ هزار و ۶۲ فوتی مرگبارترین ماه سال و دی‌ماه با هزار و ۱۷۰ فوتی کم‌تلفات‌ترین ماه بوده است.
+در همین حال، تعداد مصدومان حوادث رانندگی در سال گذشته به ۳۷۸ هزار و ۷۲۹ نفر رسید که نسبت به سال قبل ۰.۷ درصد کاهش داشته است. همچنین آمار فوتی‌های اسفندماه با کاهش ۴.۸ درصدی و تعداد مصدومان این ماه با کاهش ۳۱.۷ درصدی نسبت به اسفند سال قبل همراه بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245306
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245306_1781355648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد پیمان گنجی، از بازداشت‌شدگان انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴، از سوی شعبه ۲۶ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده است.
+
+بر اساس این گزارش، این حکم به ریاست ایمان افشاری صادر شده و پرونده گنجی هم‌اکنون در شعبه ۹ دیوان عالی کشور در دست بررسی است.
+
+هرانا به نقل از یک منبع آگاه نوشت در این پرونده، «سوزاندن اموال عمومی» به‌عنوان مصداق اتهام منتسب به گنجی مطرح شده است.
+
+پیمان گنجی ۳۳ ساله است و پس از بازداشت در دی‌ماه ۱۴۰۴ به زندان تهران بزرگ منتقل شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245305
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245305_1781355649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، در شبکه ایکس نوشت تهران و واشینگتن بیش از هر زمان دیگری به تفاهم‌نامه صلح نزدیک شدند و احتمال نهایی شدن آن در ۲۴ ساعت آینده وجود دارد.
+
+او همچنین نوشت پاکستان برای امضای الکترونیکی تفاهم‌نامه صلح میان آمریکا و جمهوری اسلامی، بلافاصله پس از نهایی شدن آن، آماده می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245304
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245304_1781355650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی با اشاره به برگزاری مسابقات فوتبال جام جهانی ۲۰۲۶، در شبکه ایکس نوشت «در این جام جهانی، نام ایران را فرزندان قهرمان و جاویدنامش نمایندگی می‌کنند.»
+
+او همچنین از ایرانیان خواست پیراهن‌های منقش به تصاویر جاویدنامان ایران را به ورزشگاه‌ها و خیابان‌ها ببرند و افزود: «بگذارید جهان بداند تیم واقعی ایران، مردم شجاع ایران‌اند؛ نه نمایندگان رژیم جنایتکار و اشغالگر ایران.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245303
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245303_1781355651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در فاصله دو روز تا سفر تیم ملی فوتبال ایران به لس‌آنجلس برای آغاز رقابت‌های جام جهانی ۲۰۲۶، چهار عضو کاروان ایران موفق به دریافت ویزای آمریکا شدند.
+خبرگزاری فارس، روز شنبه ۲۳ خرداد ماه با اعلام این خبر گزارش کرد، وزارت خارجه آمریکا برای امید جمالی، رئیس دپارتمان بین‌الملل فدراسیون، علی افضلی، کارشناس بین‌الملل، مسعود اردشیر، افسر امنیتی تیم ملی و مهرپویا اسدی، آنالیزور تیم، روادید سفر به ایالات متحده صادر کرده است.
+با این حال، وضعیت ویزای ۱۱ نفر دیگر از اعضای کاروان ایران همچنان نامشخص است. مهدی تاج، رئیس فدراسیون فوتبال، هدایت ممبینی، دبیرکل فدراسیون، مهدی محمدنبی، مدیر تیم ملی، مهدی خراطی، مدیر اجرایی تیم ملی، محسن معتمدکیا، مدیر رسانه‌ای تیم ملی، سیامک قلیچ‌خانی، عضو بخش رسانه‌ای، مهدی ملک‌آباد، رئیس حراست فدراسیون، سروش سلماسی، آنالیزور تیم ملی و رضا جاودان، عضو کادر تدارکات، از جمله افرادی هستند که هنوز ویزای آمریکا را دریافت نکرده‌اند.
+به گزارش فارس، تیم ملی ایران که در شهر تیخوانای مکزیک حضور دارد، طبق برنامه روز دوشنبه پس از صرف ناهار در محل اردو راهی فرودگاه خواهد شد تا به لس‌آنجلس سفر کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245302
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245302_1781355652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاشم امینی، مدیرعامل شرکت آب و فاضلاب کشور، با اشاره به کاهش بارندگی‌ها در سال آبی جاری گفت ۲۳ استان ایران با تنش آبی مواجه‌اند. همزمان، عباس علی‌آبادی، وزیر نیرو جمهوری اسلامی، اعلام کرد طرح‌های انتقال آب به برخی مناطق، استفاده از تجهیزات کاهنده مصرف و برنامه‌های صرفه‌جویی در مصرف آب در حال اجرا و پیگیری است.
+
+پیش‌تر خبرگزاری ایلنا گزارش داد ۳۳ درصد از ظرفیت مجموع سدهای کشور خالی است. بر اساس این گزارش، تا ۱۶ خرداد سدهای دوستی و طرق در خراسان رضوی، بارزو در خراسان شمالی و ساوه در استان مرکزی در «وضعیت قرمز» قرار داشتند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245301
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245301_1781355653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مرکز عملیات تجارت دریایی بریتانیا (UKMTO) روز شنبه ۲۳ خرداد ماه کرد یک نفتکش در نزدیکی سواحل عمان هدف اصابت یک پرتابه ناشناس قرار گرفته است.
+بر اساس هشدار منتشرشده از سوی این نهاد، حادثه در فاصله حدود ۱۱ کیلومتری شرق عمان رخ داده و گزارش‌های اولیه نشان می‌دهد پرتابه‌ای ناشناس به بخش جلویی سمت چپ نفتکش برخورد کرده است.
+مرکز عملیات تجارت دریایی بریتانیا اعلام کرد تمامی خدمه کشتی در سلامت هستند و تاکنون هیچ‌گونه آلودگی یا خسارت زیست‌محیطی ناشی از این حادثه گزارش نشده است. همچنین نفتکش پس از حادثه به مسیر خود به سمت مقصد بعدی ادامه داده است.
+مرکز عملیات تجارت دریایی بریتانیا از شناورهای عبوری خواسته است هنگام عبور از منطقه با احتیاط عمل کرده و هرگونه فعالیت مشکوک را به این مرکز گزارش دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245300
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245300_1781355654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245299
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245299_1781355655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهباز شریف، نخست‌وزیر پاکستان، روز شنبه ۲۳ خرداد ماه در پیامی در شبکه اجتماعی ایکس اعلام کرد که تهران و واشنگتن «بیش از هر زمان دیگری به دستیابی به توافق صلح» نزدیک شده‌اند و احتمال می‌رود متن نهایی این توافق ظرف ۲۴ ساعت آینده نهایی شود.
+شریف نوشت: «ما بیش از هر زمان دیگری به توافق صلح نزدیک شده‌ایم. انتظار می‌رود نهایی‌سازی توافق در ۲۴ ساعت آینده انجام شود و پاکستان در حال آماده‌سازی برای امضاء الکترونیکی توافق بلافاصله پس از آن است.»
+او افزود پس از امضاء توافق، گفتگوهای فنی در سطح کارشناسی طی هفته آینده برگزار خواهد شد.
+نخست‌وزیر پاکستان همچنین از ایالات متحده و جمهوری اسلامی ایران به دلیل ادامه تعهد به روند مذاکرات قدردانی کرد و از کشورهای منطقه نیز به خاطر حمایت از این روند تشکر کرد.
+شهباز شریف در پایان ابراز اطمینان کرد که این «توافق صلح تاریخی» می‌تواند پایه‌ای مستحکم برای برقراری صلحی پایدار در منطقه باشد.
+نخست وزیر پاکستان در پایان این پیام، حساب‌های کاربری دونالد ترامپ، جی دی ونس، مارکو روبیو، استیو ویتکاف، عباس عراقچی و محمد باقر قالیباف را اضافه کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245298
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245298_1781355656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آویگدور لیبرمن، رهبر حزب راستگرای «اسرائیل، خانه ما» و وزیر پیشین دفاع این کشور، در شبکه ایکس نوشت: «توافقی که در حال شکل‌گیری با تهران است، یک پیروزی کامل برای آیت‌الله‌ها و از دیدگاه اسرائیل یک فاجعه است.»
+
+او اضافه کرد: «مسئولیت چنین توافقی برعهده بنیامین نتانیاهو است.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245297
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245297_1781355657.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل از ساکنان غسانیه، زراریه، مزرعه کوثریه الرز و صیر الغربیه در جنوب لبنان خواست فورا خانه‌های خود را ترک کنند و به شمال رودخانه زهرانی منتقل شوند. ارتش اسرائیل اعلام کرد در پی نقض توافق آتش‌بس از سوی حزب‌الله، علیه این گروه اقدام خواهد کرد.
+
+ارتش همچنین هشدار داد حضور در نزدیکی نیروها و تاسیسات حزب‌الله جان غیرنظامیان را به خطر می‌اندازد.
+
+ارتش اسرائیل پیش‌تر نیز برای ساکنان روستاهای صرفند، تفاحتا و مزرعه سینا در جنوب لبنان هشدار تخلیه صادر کرده بود.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245296
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245296_1781355658.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، در شبکه ایکس نوشت تهران و واشینگتن بیش از هر زمان دیگری به تفاهم‌نامه صلح نزدیک شدند و احتمال نهایی شدن آن در ۲۴ ساعت آینده وجود دارد.
+
+او همچنین نوشت پاکستان برای امضای الکترونیکی تفاهم‌نامه صلح میان آمریکا و جمهوری اسلامی، بلافاصله پس از نهایی شدن آن، آماده می‌شود.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245290
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245290_1781355659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا یوتیوب از کانال‌های مرتبط با نهادها و افراد تحریم‌شده جمهوری اسلامی درآمد کسب می‌کند؟
+
+گزارش تازه وایرد به نقل از یک پژوهش مستقل می‌گوید ده‌ها کانال مرتبط با افراد و نهادهای تحت تحریم آمریکا همچنان در یوتیوب فعال بوده‌اند و تبلیغات برندهای بزرگ روی ویدیوهای آن‌ها نمایش داده شده است.
+
+گوگل می‌گوید به قوانین تحریم‌ها پایبند است و علیه حساب‌های ناقض سیاست‌هایش اقدام کرده، اما هنوز مشخص نیست آیا بخشی از درآمد تبلیغات به این کانال‌ها پرداخت شده است یا نه.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقائی، سخنگوی وزارت خارجه:
+درباره زمان دقیق امضای تفاهم‌نامه باید منتظر بمونیم؛ اگرچه فردا نیست اما احتمال اینکه در روزهای آتی این اتفاق رقم بخوره منتفی نیست.
+@withyashar
+</div>
+
+## WithYashar — post 14716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده مجلس خطاب به عراقچی وزیر امور خارجه:
+مذاکره بعد از حمله نظامی، دیپلماسی نیست، مستعمره شدن است
+@withyashar
+</div>
+
+## WithYashar — post 14715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر آموزش و پرورش: به خاطر اهمیت حضور دانش آموزان در مراسم تشییع، تقویم امتحانات نهایی بازنگری میشه و احتمالا تاریخ امتحانات عقب میوفته
+@withyashar
+</div>
+
+## WithYashar — post 14714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از پخش آهنگ امیر تتلو از زندان که پشت تلفن اجرا شده بود، زندان تهران بزرگ تلفن او را مسدود کرد و تنها دلخوشی او هم گرفته شد.
+@withyashar
+</div>
+
+## WithYashar — post 14713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ: جمهوری اسلامی به‌احتمال زیاد در جریان آتش‌بس، سلاح‌های پیشرفته روسی رو به ذخایر تسلیحاتی خودش اضافه کرده.
+@withyashar
+</div>
+
+## WithYashar — post 14712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان UKMTO گزارشی از وقوع یک حادثه در فاصله ۶ مایل دریایی (6NM) در شرق عمان دریافت کرده است.
+
+گزارش شده است که یک کشتی نفت‌کش در بخش جلو و سمت چپ بدنه (Port Bow) مورد اصابت پرتابه ناشناس قرار گرفته است.
+@withyashar
+</div>
+
+## mwarmonitor — post 10823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️اطلاعیه رسمی کانال ⚠️ 🔸بدین‌وسیله به اطلاع همراهان گرامی می‌رسد که کانال خبری ما در پلتفرم X (توییتر سابق) راه‌اندازی شد. 🔸از این پس نیز ، آخرین اخبار و تحلیل‌های نظامی، سیاسی و همچنین مسائل اجتماعی ایران و جهان به‌صورت منظم در آن منتشر خواهد شد. 🔸از…
+</div>
+
+## mwarmonitor — post 10822
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸روزنامه واشنگتن‌پست: قطر در اوایل جنگ، از طریق کانال‌های محرمانه با ایران وارد گفت‌وگو شده تا مجموعه گازی «راس لافان» را از فهرست اهداف حمله تهران خارج کند؛ بر اساس گفته مقام‌های خاورمیانه‌ای و غربی که در جریان اطلاعات امنیتی قرار داشته‌اند.
+
+🔹به گفته این مقام‌ها، قطر پیشنهاد داده بود تولید گاز را متوقف کند؛ اقدامی که می‌توانست باعث افزایش شدید قیمت جهانی انرژی شود و آمریکا و اسرائیل را برای کوتاه‌تر کردن جنگ تحت فشار قرار دهد، در ازای اینکه ایران به این تأسیسات حمله نکند.
+
+🔹قطر هرگونه توافق پنهانی را رد کرده و گفته است که توقف فعالیت‌ها صرفاً به دلیل تهدیدهای معتبر علیه کارکنان و زیرساخت‌ها انجام شده است.
+
+🔹این گزارش همچنین می‌گوید مقام‌های آمریکایی از این اطلاعات امنیتی مطلع بوده‌اند و در ادامه، تأسیسات راس لافان در ۱۸ مارس هدف حملات ایران قرار گرفته که به زیرساخت‌هایی مرتبط با حدود ۲۰٪ صادرات LNG قطر آسیب زده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔰نخست وزیر پاکستان
+
+🔴ما به توافق صلح بیش از هر زمان دیگری نزدیک هستیم. انتظار می‌رود نهایی‌سازی آن ظرف ۲۴ ساعت آینده انجام شود و پاکستان بلافاصله پس از آن برای امضای الکترونیکی این توافق صلح آماده می‌شود، و سپس مذاکرات فنی در هفته آینده آغاز خواهد شد.
+
+🔴از ایالات متحده آمریکا و جمهوری اسلامی ایران بابت تعهد مستمرشان در طول مذاکرات تشکر می‌کنیم و همچنین قدردانی صمیمانه خود را از برادرانمان در منطقه برای حمایتشان ابراز می‌داریم. ما مطمئن هستیم که این توافق تاریخی صلح، پایه‌ای محکم برای صلح پایدار خواهد بود.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10820
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10820_1781355659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله سایبری به چهار بانک در ایران
+</div>
+
+## mwarmonitor — post 10819
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10819_1781355662.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری — هشدار تخلیه به ساکنان لبنان 🔸به ساکنان حاضر در روستاها و شهرک‌های زیر هشدار فوری داده می‌شود: غسانیه، الزراریه، مزرعه کوثرية الرز، صیر غربی 🔸 در پی نقض توافق آتش‌بس از سوی «حزب‌الله تروریستی»، ارتش دفاعی اسرائیل ناچار است علیه آن با قدرت اقدام کند.…
+</div>
+
+## mwarmonitor — post 10818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله‌ای به یک کشتی در دریای عمان.
+</div>
+
+## mwarmonitor — post 10816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله‌ای به یک کشتی در دریای عمان.
+</div>
+
+## FoxNewsTwitter — post 342930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+TANVI RATNA: Trump's multi-front pressure campaign takes aim at Russia's energy empire — sanctions, tariffs, and drone strikes have knocked 700,000 barrels per day of refining capacity offline while Europe locks in a binding legal phase-out of Russian gas. Putin retains buyers in China and India, but the system that once converted oil into geopolitical power is being dismantled piece by piece.
+</div>
+
+## FoxNewsTwitter — post 342928
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342928_1781355664.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"We will find these vicious murderers and drug lords anytime, anyplace, and send them to the depths of hell where they belong."
+
+President Trump issued the warning after announcing that U.S. Southern Command carried out a strike that killed Tren de Aragua leader Niño Guerrero.
+
+Trump says the operation was coordinated with Venezuelan authorities and marks a major blow against the gang that U.S. officials have accused of spreading violence, extortion, drug trafficking, and terror across the region.
+
+With Guerrero dead, Trump is signaling that other cartel and gang leaders are now on notice.
+</div>
+
+## FoxNewsTwitter — post 342924
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+</div>
+
+## FoxNewsTwitter — post 342920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+History was made Friday night as Team USA rolled past Paraguay 4-1 in its 2026 FIFA World Cup opener in Southern California.
+
+The victory was historic in more ways than one. It was the first time the U.S. had won a World Cup match by three goals since 1930 — when America also defeated Paraguay.
+
+The four-goal outburst also marked the first time the United States has scored at least four goals in a World Cup match. Folarin Balogun, 24, also made history, becoming the first American player since 1930 to score multiple goals in a World Cup game.
+</div>
+
+## pm_afshaa — post 93759
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93759_1781355666.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در اواخر بهمن ماه پارسال، ترامپ مصاحبه شمخانی را که گفته بود اگر آمریکایی‌ها سر حرفشون باشند ما می‌توانیم رابطه خوبی دلشته باشیم، بازنشر کرده بود ولی چند روز بعد شمخانی کشته شد.
+و دیشب هم پست عراقچی را بازنشر کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93758
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93758_1781355666.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقائی، سخنگوی وزارت خارجه:
+درباره زمان دقیق امضای تفاهم‌نامه باید منتظر بمونیم؛ اگرچه فردا نیست اما احتمال اینکه در روزهای آتی این اتفاق رقم بخوره منتفی نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93757
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93757_1781355667.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کیهان: اگه تنگه هرمز رو باز کنید دشمن دوباره حمله میکنه؛ هیچ آدم عاقلی نقطه قوت خودش رو پای میز مذاکره نمی‌بره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93756
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93756_1781355668.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بلومبرگ: جمهوری اسلامی به‌احتمال زیاد در جریان آتش‌بس، سلاح‌های پیشرفته روسی رو به ذخایر تسلیحاتی خودش اضافه کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93755
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93755_1781355669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با اینکه هنوز حدود دو هفته تا آغاز تابستان باقی مونده، جمهوری اسلامی در برخی استان‌های کشور قطعی‌های 2 تا 4 ساعته برق رو شروع کرده!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جزییات کامل مراسم دفن جنازه علی خامنه‌ای به نقل از خبرگزاری فارس:
+
+- روزهای شنبه ۱۳ و یکشنبه ۱۴ تیرماه: مراسم وداع با جنازه در مصلای خمینی.
+- روز دوشنبه ۱۵ تیرماه: مراسم تشییع در تهران.
+روز سه‌شنبه ۱۶ تیرماه: مراسم تشییع در شهر قم.
+- روز پنج‌شنبه ۱۸ تیرماه: مراسم تشییع در مشهد و تدفین در حرم امام‌رضا
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93753
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93753_1781355669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شهباز شریف، نخست‌وزیر پاکستان:
+ما از هر زمان دیگه‌ای به توافق صلح نزدیک‌تر شدیم؛ با توجه به اینکه احتمالاً نهایی شدن توافق طی 24 ساعت آینده انجام میشه، پاکستان در حال آماده‌سازی واسه امضای الکترونیکی توافق صلح است. هفته بعد هم مذاکرات تو سطح کارشناسی و فنی برگزار خواهد شد.
+
+ما اطمینان داریم که این توافق صلح تاریخی، پایه‌ای مستحکم واسه برقراری صلحی پایدار و بلندمدته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 الو سلام الان ساعت ۱۲:۱۶ روز شنبه ۲۳ خرداد. الان نیم ساعتی هست که خیلی از همراه بانکا قطع شده و کار نمیکنه، معلوم نیست باز چه گوهی دارن میخورن
+۶ تا همراه بانک دارم و هیچکدوم نمیره داخلشون ، اخطار خطای داخلی میاره
+ملی ، صادرات،مسکن،توسعه تعاون،کشاورزی،سپه
+اینارو من رو گوشیم دارم
+
+
+
+📞 اینجا هم قطع شده وسط اوج روز کاری روز شنبه که همه سر کارن. دم مغازه از ساعت ۱۰ کارتای تجارت ، ملی و صادرات همشون قطعه تا الان که هنوزم اینجوریه
+
+یکجا میگن حمله سایبری بوده یکجا میگن بروزرسانی زیرساخت.
+آخه بروزرسانی اونم توی این ساعت؟
+
+
+
+📞 الو اینترنت بانک سامان هم قطع شده. حرف مذاکره شد همه چیو قطع کردن که کسی نتونه پول بزنه خیلی ارز نریزه
+
+
+
+📞 از ساعت ۱۱:۳۰ قطع شدن
+هنوز هم قطع هستن
+من ملی ، سینا و سامان دارم
+کار نمیکنن
+میشه خرید کرد تو سوپرمارکت امتحان کردم
+ولی همراه بانک ها قطع هستن
+خودپرداز هم رفتم
+کار نمیکنه هیچی
+
+
+
+📞 سلام. امروز کارت های بانک ملی ، تجارت، صادرات کارت نمیکشه و میگه صادر کننده غیر فعاله.
+
+
+
+📞 درمورد مشکل بانکی، کل جنوب مملکت هم همینطوره.
+جز بانک زپرتی رفاه، کارت هیچ بانک دیگه‌ای کار نمیده. نه تنها کارتخوان‌ها، بلکه اپ‌های بانکی هم ارور میدن و امکان انتقال پول نیست.
+خوب شد دویست سیصد تومن پول نقد داشتم وگرنه بنزین هم نمیتونستم بزنم
+
+دوستی می‌گفت مث اینکه شب آخر (پس پریشب) دیتاسنترهایی که توی فرودگاه پیام هست رو زدن، و انتقال سیستم به دیتاسنترهای دیگه احتمالا باعث این مشکل شده
+
+
+
+❗️ درود . وقت خوش. شنیده شدن صدای پرواز هواپیما و صدای تک انفجار امروز شنبه ۲۳ خردا د ۱۴۰۵ ساعت ۱۳:۲۰ شهر همدان
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 342057
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342057_1781355670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی در نشستی در همدان، گفت: «تفاهم نامه اسلام‌آباد که در حال پیگیری است، بر خاتمه جنگ در همه جبهه‌ها، از جمله لبنان تمرکز دارد و در این مرحله تصمیم بر این شده که بحثی در مورد موضوع هسته‌ای نشود.»
+
+او ادامه داد: «درباره زمان دقیق امضا باید منتظر بمانیم؛ اگرچه فردا نخواهد بود اما احتمال اینکه در روزهای آتی این اتفاق رقم بخورد، منتفی نیست.»
+
+بقائی افزود: «به دلیل تزلزل طرف مقابل در هرگونه اظهارنظر درباره این روند باید محتاط باشیم.»
+
+او اضافه کرد: «طرف مقابل به هیچ عنوان عملکرد مناسبی در ایفای تعهدات خود نداشته و ما نیز باید متناسب با آن پیش‌بینی‌های لازم را انجام دهیم.»
+https://iranintl.com/202606138676
+</div>
+
+## IranIntlTV — post 342056
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342056_1781355671.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد پیمان گنجی، از بازداشت‌شدگان انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴، از سوی شعبه ۲۶ دادگاه انقلاب تهران به اتهام «محاربه» به اعدام محکوم شده است.
+
+بر اساس این گزارش، این حکم به ریاست ایمان افشاری صادر شده و پرونده گنجی هم‌اکنون در شعبه ۹ دیوان عالی کشور در دست بررسی است.
+
+هرانا به نقل از یک منبع آگاه نوشت در این پرونده، «سوزاندن اموال عمومی» به‌عنوان مصداق اتهام منتسب به گنجی مطرح شده است.
+
+پیمان گنجی ۳۳ ساله است و پس از بازداشت در دی‌ماه ۱۴۰۴ به زندان تهران بزرگ منتقل شد.
+https://iranintl.com/202606138701
+</div>
+
+## IranIntlTV — post 342054
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342054_1781355672.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب زنان ایران اعلام کرد، شنبه ۲۳ خرداد، دیوار جاویدنامان انقلاب ملی ایرانیان، در مرکز شهر گوتنبرگ سوئد افتتاح خواهد شد.
+
+گفت‌وگوی مهران عباسیان، خبرنگار ایران‌اینترنشنال، با دست‌اندرکاران دیوار جاویدنامان گوتبرگ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342053
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342053_1781355674.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی با اشاره به برگزاری مسابقات فوتبال جام جهانی ۲۰۲۶، در شبکه ایکس نوشت «در این جام جهانی، نام ایران را فرزندان قهرمان و جاویدنامش نمایندگی می‌کنند.»
+
+او همچنین از ایرانیان خواست پیراهن‌های منقش به تصاویر جاویدنامان ایران را به ورزشگاه‌ها و خیابان‌ها ببرند و افزود: «بگذارید جهان بداند تیم واقعی ایران، مردم شجاع ایران‌اند؛ نه نمایندگان رژیم جنایتکار و اشغالگر ایران.»
+https://iranintl.com/202606136475
+</div>
+
+## IranIntlTV — post 342052
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342052" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | شنبه ۲۳ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 342051
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342051_1781355676.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاشم امینی، مدیرعامل شرکت آب و فاضلاب کشور، با اشاره به کاهش بارندگی‌ها در سال آبی جاری گفت ۲۳ استان ایران با تنش آبی مواجه‌اند. همزمان، عباس علی‌آبادی، وزیر نیرو جمهوری اسلامی، اعلام کرد طرح‌های انتقال آب به برخی مناطق، استفاده از تجهیزات کاهنده مصرف و برنامه‌های صرفه‌جویی در مصرف آب در حال اجرا و پیگیری است.
+
+پیش‌تر خبرگزاری ایلنا گزارش داد ۳۳ درصد از ظرفیت مجموع سدهای کشور خالی است. بر اساس این گزارش، تا ۱۶ خرداد سدهای دوستی و طرق در خراسان رضوی، بارزو در خراسان شمالی و ساوه در استان مرکزی در «وضعیت قرمز» قرار داشتند.
+iranintl.com/202606138629
+</div>
+
+## IranIntlTV — post 342049
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342049_1781355677.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش سازمان کشورهای صادرکننده نفت، اوپک، نشان می‌دهد تولید نفت ایران در ماه گذشته میلادی به کمترین میزان از سال ۲۰۲۱ و دوران همه‌گیری کرونا رسیده است.
+
+عطا حسینیان، روزنامه‌نگار اقتصادی و حوزه انرژی، گفت: «جمهوری اسلامی در یک ماه گذشته هیچ درآمدی از محل صادرات نفت، محصولات پتروشیمی و فولاد نداشته و در حال حاضر کشور را با استفاده از پس‌اندازها اداره می‌کند.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342048
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342048_1781355679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آویگدور لیبرمن، رهبر حزب راستگرای «اسرائیل، خانه ما» و وزیر پیشین دفاع این کشور، در شبکه ایکس نوشت: «توافقی که در حال شکل‌گیری با تهران است، یک پیروزی کامل برای آیت‌الله‌ها و از دیدگاه اسرائیل یک فاجعه است.»
+
+او اضافه کرد: «مسئولیت چنین توافقی برعهده بنیامین نتانیاهو است.»
+iranintl.com/202606139088
+</div>
+
+## IranIntlTV — post 342047
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342047_1781355680.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل از ساکنان غسانیه، زراریه، مزرعه کوثریه الرز و صیر الغربیه در جنوب لبنان خواست فورا خانه‌های خود را ترک کنند و به شمال رودخانه زهرانی منتقل شوند. ارتش اسرائیل اعلام کرد در پی نقض توافق آتش‌بس از سوی حزب‌الله، علیه این گروه اقدام خواهد کرد.
+
+ارتش همچنین هشدار داد حضور در نزدیکی نیروها و تاسیسات حزب‌الله جان غیرنظامیان را به خطر می‌اندازد.
+
+ارتش اسرائیل پیش‌تر نیز برای ساکنان روستاهای صرفند، تفاحتا و مزرعه سینا در جنوب لبنان هشدار تخلیه صادر کرده بود.
+iranintl.com/202606138499
+</div>
+
+## IranIntlTV — post 342046
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342046_1781355681.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف، نخست‌وزیر پاکستان، در شبکه ایکس نوشت تهران و واشینگتن بیش از هر زمان دیگری به تفاهم‌نامه صلح نزدیک شدند و احتمال نهایی شدن آن در ۲۴ ساعت آینده وجود دارد.
+
+او همچنین نوشت پاکستان برای امضای الکترونیکی تفاهم‌نامه صلح میان آمریکا و جمهوری اسلامی، بلافاصله پس از نهایی شدن آن، آماده می‌شود.
+
+iranintl.com/202606139832
+</div>
+
+## IranIntlTV — post 342045
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342045_1781355682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر رسانه‌ها و خبرگزاری‌ها در ایران، شنبه ۲۳ خرداد، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 342044
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342044_1781355684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال، درباره اختلال و قطعی خدمات در بانک‌های ملی، صادرات، تجارت و توسعه صادرات گفت: «بانکداری اسلامی که حکومت تلاش کرد از ابتدا اجرا کند، با نظام بانکداری روز جهان سازگاری و تطابق نداشت و همین موضوع، چه از نظر فنی و چه از نظر مالی، مشکلات متعددی ایجاد کرده است.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342043
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342043_1781355687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوار جاویدنامان انقلاب ملی ایرانیان در شهر گوتنبرگ سوئد افتتاح شد. این یادمان که بیش از ۱۰۰ تصویر از جان‌باختگان راه آزادی ایران را در بر می‌گیرد، با هدف پاسداشت یاد و نام افرادی برپا شده است که برای آزادی، حقوق بشر و دستیابی به آینده‌ای سکولار و انسانی جان خود را از دست دادند.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال و گفت‌وگوی او با ویدا تهرانی، دبیرنخست سپیدار حزب زنان ایران
+@iranintltv
+</div>
+
+## Shin_Persian — post 7017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 12:40:19 UTC
+
+Asked Claude to install the latest Win 11 on a local VM, hilariously it bypassed the Microsoft Account requirement with no sweat, I didn't even ask it to do so! I was away from the computer for a few mins, came back and saw everything's done and it was in the desktop already!
+
+ترجمه خودکار فارسی
+
+از کلود (Claude) خواستم آخرین نسخه ویندوز ۱۱ را روی یک ماشین مجازی (VM) محلی نصب کند؛ به طرز خنده‌داری بدون هیچ دردسری الزام حساب کاربری مایکروسافت را دور زد، در حالی که من حتی از او نخواسته بودم این کار را انجام دهد! چند دقیقه از پای کامپیوتر دور شدم، وقتی برگشتم دیدم همه چیز انجام شده و سیستم در دسکتاپ است!
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7016
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7016_1781355689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 12:17:38 UTC
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 12:12:04 UTC
+
+Ali Khamenei’s burial set for July 9 (131 days after his death) in Imam Reza Shrine in Mashhad, Razavi Khorasan Province of Iran.
+
+ترجمه خودکار فارسی
+
+مراسم تدفین علی خامنه‌ای برای ۹ جولای (۱۳۱ روز پس از مرگ او) در حرم امام رضا در مشهد، استان خراسان رضوی ایران برنامه‌ریزی شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7013
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7013_1781355690.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 11:56:55 UTC
+
+"They all end with some kind of negotiation"?
+
+IDK man, Hitler seems pretty dead to me, as well as the rest of the douchebags who refused to surrender UNCONDITIONALLY.
+
+ترجمه خودکار فارسی
+
+«همه آن‌ها با نوعی مذاکره به پایان می‌رسند»؟
+
+نمی‌دانم پسر، هیتلر به نظر من کاملاً مرده می‌رسد، و همچنین بقیه آن تفاله‌هایی که از تسلیمِ بدون قید و شرط خودداری کردند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 11:30:03 UTC
+
+Jet activity over Baghdad, #Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+فعالیت جنگنده‌ها بر فراز بغداد، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7011
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7011_1781355692.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+UKMTO Operations Centre @UK_MTO
+Sat, 13 Jun 2026 11:14:18 UTC
+
+UKMTO WARNING 068-26
+
+Click here to view the full warning.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260613-ukmto_warning_attack_068_26.pdf?rev=138c37f827c14de6b10e25e72f5a8f66
+#MaritimeSecurity #MarSec
+
+ترجمه خودکار فارسی
+
+هشدار یو‌کی‌ام‌تی‌او (UKMTO) ۰۶۸-۲۶
+
+برای مشاهده متن کامل هشدار اینجا کلیک کنید.⤵️
+https://www.ukmto.org/-/media/ukmto/products/20260613-ukmto_warning_attack_068_26.pdf?rev=138c37f827c14de6b10e25e72f5a8f66
+#MaritimeSecurity #MarSec_
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 106045
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106045_1781355693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا یوتیوب از کانال‌های مرتبط با نهادها و افراد تحریم‌شده جمهوری اسلامی درآمد کسب می‌کند؟
+
+گزارش تازه وایرد به نقل از یک پژوهش مستقل می‌گوید ده‌ها کانال مرتبط با افراد و نهادهای تحت تحریم آمریکا همچنان در یوتیوب فعال بوده‌اند و تبلیغات برندهای بزرگ روی ویدیوهای آن‌ها نمایش داده شده است.
+
+گوگل می‌گوید به قوانین تحریم‌ها پایبند است و علیه حساب‌های ناقض سیاست‌هایش اقدام کرده، اما هنوز مشخص نیست آیا بخشی از درآمد تبلیغات به این کانال‌ها پرداخت شده است یا نه.
+</div>
+
+## FarsiVOA — post 220579
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220579_1781355694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد در روز جمعه، بیش از هفتاد موضع حزب‌الله را در جنوب لبنان هدف‌گیری کرد.
+
+بنابر بیانیه ارتش اسرائیل علاوه بر زیرساخت‌ها، نیروهای حزب‌الله نیز شناسایی و حذف شدند. زیرساخت‌های منهدم شده شامل سکوهای پرتاب موشک و ساختمان‌های متعلق به سازمان تروریستی حزب‌الله است که با هدف آسیب رساندن به مردم و ارتش اسرائیل استفاده می‌شد.
+
+ارتش اسرائیل تاکید کرد به حملات خود به مواضع و نیروهای حزب‌الله در این مناطق ادامه می‌دهد.
+</div>
+
+## FarsiVOA — post 220578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اصابت پرتابه ناشناس به یک نفت‌کش در شرق عمان؛ تنش دریایی در آستانه توافق احتمالی
+
+▪️سازمان عملیات تجارت دریایی بریتانیا اعلام کرد یک نفت‌کش در حدود ۶ مایل دریایی شرق عمان هدف اصابت یک پرتابه ناشناس قرار گرفته است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8160427.html/?nocach=1
+</div>
+
+## FarsiVOA — post 220577
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220577_1781355696.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بلومبرگ به نقل از شهباز شریف، نخست‌وزیر پاکستان، گزارش داد که توافق صلح میان آمریکا و جمهوری اسلامی ایران احتمالاً ظرف ۲۴ ساعت آینده نهایی خواهد شد.
+
+شریف گفته دو طرف بر سر چارچوب توافقی که هدف آن پایان دادن به جنگ چندماهه در خاورمیانه است، به تفاهم رسیده‌اند و متن نهایی توافق نیز آماده شده است.
+
+به گفته نخست‌وزیر پاکستان، اسلام‌آباد اکنون در حال آماده‌سازی برای امضای الکترونیکی توافق است؛ امضایی که انتظار می‌رود ظرف ۲۴ ساعت انجام شود. پس از آن، گفت‌وگوهای فنی میان طرف‌ها در هفته آینده دنبال خواهد شد.
+
+پاکستان در ماه‌های گذشته نقش میانجی را در مذاکرات ایالات متحده و جمهوری اسلامی ایفا کرده است. شریف این تحول را نشانه نزدیک شدن طرف‌ها به پایان جنگ دانسته است.
+</div>
+
+## FarsiVOA — post 220576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اوکراین زیرساخت‌های نفتی روسیه را هدف گرفت؛ تشدید حملات دو طرف در ۴۸ ساعت اخیر
+
+▪️ارتش اوکراین اعلام کرد یک تأسیسات فرآوری و پمپاژ نفت در منطقه ولگوگراد روسیه را هدف قرار داده و این حمله باعث آتش‌سوزی شده است.
+
+▪️بر اساس این اعلام، این مرکز در فرآوری، انتقال و پمپاژ نفت از طریق خطوط لوله به پالایشگاه‌ها و زیرساخت‌های صادراتی روسیه نقش دارد.
+
+▪️در حمله‌ای جداگانه، مقام‌های روسیه گفتند یک پهپاد اوکراینی به پایانه دریایی بندر تمریوک در منطقه کراسنودار برخورد کرده، یک نفر کشته شده و آتش‌سوزی رخ داده است.
+
+▪️این حملات ادامه موجی است که در ۴۸ ساعت اخیر شدت گرفته است. اوکراین روز پیش اعلام کرده بود دو پالایشگاه‌ در تاتارستان را هدف قرار داده و وقوع آتش‌سوزی در هر دو مرکز را تأیید کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160425.html
+</div>
+
+## FarsiVOA — post 220575
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220575_1781355697.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد دونالد توسک، نخست‌وزیر لهستان، گفته دولت این کشور در تابستان به برنامه حمایت از سوخت پایان خواهد داد. این تصمیم با افزایش امیدها به توافق میان آمریکا و جمهوری اسلامی و کاهش فشار بازار انرژی هم‌زمان شده است.
+
+این برنامه در ماه مارس، پس از جهش بهای نفت در پی جنگ آمریکا و جمهوری اسلامی، آغاز شد.
+
+دولت لهستان برای مهار فشار بر مصرف‌کنندگان، مالیات بر ارزش افزوده سوخت را کاهش داد، عوارض سوخت را پایین آورد و سقف قیمت روزانه تعیین کرد.
+
+برآورد اولیه وزارت دارایی لهستان نشان می‌داد هزینه این بسته معادل تقریبی ۴۳۶ میلیون دلار است که در برآورد بعدی دولت، هزینه ماهانه معادل حدود ۴۱۰ میلیون دلار، اعلام شد.
+
+دولت همچنین برای جبران بخشی از این هزینه، مالیات بادآورده‌ای از شرکت‌های انرژی را بررسی کرده بود که می‌توانست حدود ۱.۶۴ میلیارد دلار درآمد ایجاد کند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220574
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220574_1781355698.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با صدور هشدار فوری از ساکنان غسانیه، زراریه، مزرعه کوثریه الرز و صیر غربیه در جنوب لبنان خواست فوراً خانه‌های خود را ترک کرده و به شمال رود زهرانی بروند.
+
+در این هشدار آمده است که به‌دلیل نقض توافق آتش‌بس از سوی حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه مواضع این گروه اقدام کند.
+
+ارتش اسرائیل تأکید کرده حضور در نزدیکی نیروها، تأسیسات و تجهیزات جنگی حزب‌الله، جان غیرنظامیان را در معرض خطر قرار می‌دهد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220573
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220573_1781355698.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل شرکت ملی صنایع پتروشیمی می‌گوید برای بخشی از محصولات پتروشیمی که مازاد تولید دارند و انبارها از آن‌ها پر شده، مجوز صادرات صادر شد.
+
+جمهوری اسلامی در پی هدف قرار گرفتن مجتمع‌های پتروشیمی ماهشهر و عسلویه در جنگ ۳۹ روزه، صادرات محصولات پتروشیمی را ممنوع کرده بود و طی هفته‌های گذشته گزارش‌های زیادی از کمبود و جهش قیمت محصولات پتروشیمی، خصوصا کودهای کشاورزی و محصولات بسته‌بندی دارو و مواد غذایی منتشر شده است.
+
+حسن عباس‌زاده مدیرعامل شرکت ملی صنایع پتروشیمی همچنین گفته است تاکنون ۳۸ درصد از پتروشیمی‌هایی که مورد هدف قرار گرفته یا تولید آنها مختل شده بود، به مدار تولید بازگشته است.
+
+او تصریح کرد برای محصولاتی که همچنان با محدودیت عرضه روبه‌رو هستند، ممنوعیت صادرات برقرار است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶رهبر باند مواد مخدر ونزوئلایی در حمله آمریکا کشته شد
+
+دونالد ترامپ، رئیس‌ جمهور آمریکا طی پیامی از کشته شدن رهبر باند بدنام ونزوئلایی مواد مخدر "ترن د آراگوا" در حمله ارتش ایالات متحده خبر داد.
+
+ترامپ در این پیام که شنبه ۱۳ ژوئن در شبکه تروث سوشال منتشر شد "ترن د آراگوا" را "از خون‌بارترین سازمان‌های تروریستی روی زمین" خواند و نوشت که این عملیات به دستور او و توسط فرماندهی جنوبی ارتش آمریکا انجام شده است.
+
+همچنین به گفته ترامپ، دولت ونزوئلا از این "حمله سریع و مرگبار" علیه نینو گررو، "رهبر بدنام" این گروه و قاچاقچی مواد مخدر حمایت کرده است: «این اقدام با هماهنگی نزدیک با دوستان ما در ونزوئلا انجام شد که با آن‌ها همکاری بسیار خوبی داریم.»
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125925
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125925_1781355699.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶شهباز شریف: توافق صلح آمریکا و ایران ظرف ۲۴ ساعت ممکن است
+
+شهباز شریف، نخست‌وزیر پاکستان اعلام کرد که پس از ماه‌ها مذاکرات توافق صلح میان آمریکا و ایران ممکن است ظرف ۲۴ ساعت آینده نهایی شود.
+
+نخست‌وزیر پاکستان روز شنبه ۲۳ خرداد (۱۳ ژوئن) در پیامی در شبکه اجتماعی ایکس گفت پاکستان در حال آماده‌سازی برای امضای الکترونیکی این توافق بلافاصله پس از نهایی شدن آن است و سپس هفته آینده مذاکرات فنی آغاز خواهد شد.
+
+شریف همچنین پیش‌تر گفته بود "متن نهایی و مورد توافق" میان دو طرف حاصل شده و پاکستان در حال همکاری نزدیک با هر دو طرف برای تکمیل مراحل بعدی است.
+
+نخست‌وزیر پاکستان از آمریکا و ایران به‌خاطر تعهد در مذاکرات و همچنین از کشورهای منطقه برای حمایت‌شان قدردانی کرد و گفت این توافق می‌تواند پایه‌ای برای صلحی پایدار باشد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125924
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125924_1781355700.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 محسن رضایی: ترامپ با آزادی دارایی‌ها موافقت کرد اما علنا اعلام نمی‌کند
+ 
+محسن رضایی، فرمانده پیشین سپاه پاسداران مدعی شد که دونالد ترامپ با آزادسازی بخشی از دارایی‌های بلوکه‌شده ایران، از جمله حدود ۲۴ میلیارد دلار، موافقت کرده اما این موضوع را به‌صورت علنی اعلام نکرده است.
+ 
+رضایی همچنین مدعی شد توان بازدارندگی ایران به سطحی رسیده که حتی ترامپ از مذاکره با ایران هراس دارد.
+او در ادامه به آن چه که "موفقیت ایران در مقابله با جنگنده‌ها و تجهیزات پیشرفته آمریکایی" خواند اشاره کرد و گفت "جنگ نامتقارن باعث برتری پهپادها و توان دریایی ایران در برابر تجهیزات گران‌قیمت شده است".
+ 
+این در حالی است که جی‌دی ونس، معاون رئیس‌ جمهوری آمریکا، در پیامی در شبکه ایکس گزارش‌ها درباره توافق احتمالی با ایران را نادرست خواند و تأکید کرد ایران در برابر امضای توافق یا شرکت در مذاکرات، هیچ پول نقدی دریافت نخواهد کرد و آزادسازی منابع مالی نیز صرفا با امضای توافق انجام نمی‌شود.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16942
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16942_1781355701.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از هدف قرار گرفتن لانچر راکت انداز Tos-1 روسی توسط پرتابه FPV ارتش اوکراین
+
+در 0:07 مشاهده میکنیم که این واحد راکت انداز توس-1 اکثر راکت های لود شده خود را قبل انهدام شلیک کرده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16941
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16941_1781355703.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدار غریب‌آبادی با سفیران چین و روسیه در تهران
+
+معاون وزیر امور خارجه در پیامی نوشت: شراکت راهبردی ایران، چین و روسیه و هماهنگی‌ها و تعاملات میان سه کشور با قوت تداوم خواهد یافت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16940
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16940_1781355704.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به یک کشتی در تنگهٔ هرمز
+
+سازمان عملیات تجارت دریایی انگلیس: یک نفتکش در 6 مایلی شرق عمان هدف اصابت یک پرتابهٔ ناشناخته قرار گرفته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16939
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16939_1781355705.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢16 تا نماینده مجلس (از جمله ثابتی و رسایی) به همراه قشر تندرو امشب جلوی وزارت خارجه تجمع اعتراضی برگزار میکنن و به روند مذاکرات اعتراض میکنن‌.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهباز شریف: بیش از هر زمان دیگری به توافق صلح میان ایران و آمریکا نزدیک شده‌ایم.
+
+احتمال می‌رود روند نهایی‌سازی توافق ظرف 24 ساعت آینده تکمیل شود. پاکستان در حال آماده‌سازی برای امضای الکترونیکی توافق بلافاصله پس از نهایی شدن آن است.
+
+مذاکرات فنی و کارشناسی درباره جزئیات اجرای توافق از هفته آینده آغاز خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16937
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16937_1781355706.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: ایران و عمان بیانیه مشترکی درباره تنگه هرمز صادر می‌کنند.
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره ای جدید از پایگاه موفق السلطی اردن چندین اصابت در این پایگاه در جریان حملات موشکی چند شب پیش سپاه تأیید می‌کند.
+
+اکثر موشک ها به دلیل خطای بالا به چند ده متری هدف اصابت کرده اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158254
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158254_1781355706.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸احمد میدری، وزیر کار و رفاه جمهوری اسلامی، روز شنبه اعلام کرد به رغم دستور مسعود پزشکیان برای افزایش مبلغ کالابرگ، محدودیت‌های مالی وجود دارد و هنوز نتیجه‌ای حاصل نشده است.
+
+🔸رئیس‌جمهور ایران روز ۱۷ خرداد در نشست شورای هماهنگی اقتصادی دولت گفته بود که «حداقل شش دهک پایین درآمدی باید از افزایش اعتبار کالابرگ بهره‌مند شوند».
+
+🔸با این حال میدری اعلام کرد به دلیل «محدودیت‌های درآمدی» ناشی از جنگ اخیر «برای تأمین منابع مالی هنوز به نتیجه نرسیدیم».
+
+🔸او وعده داد که دولت در جست‌وجوی منابع مالی برای افزایش مبلغ کالابرگ است. دولت پزشکیان سال گذشته با حدف ارز ترجیحی، اقدام به توزیع کالابرگ به شکل ماهانه در کشور کرد.
+
+🔸این در حالی است که آمارهای بانک مرکزی و مرکز آمار ایران حاکی از افزایش شدید نرخ تورم در ماه‌های اخیر و بخصوص افزایش شدید قیمت مواد غذایی است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158253
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158253_1781355707.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ستاد برگزاری مراسم خاکسپاری علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، روز شنبه ۲۳ خرداد با انتشار اطلاعیه‌ای، جزئیات برنامه‌های تشییع و تدفین او را اعلام کرد.
+
+🔸طبق برنامه اعلام‌شده، مراسم تشییع علی خامنه‌ای در روزهای ۱۳ و ۱۴ تیرماه در مصلای تهران برگزار می‌شود.
+
+🔸پس از آن، پیکر رهبر پیشین جمهوری اسلامی برای ادامه آیین‌های تشییع در روزهای ۱۵ و ۱۶ تیر به شهر قم و سپس مشهد منتقل می‌شود.
+
+🔸بر اساس اعلام مسئولان، محل خاکسپاری او در محل دفن امام هشتم شیعیان پیش‌بینی شده، اما زمان دقیق این مراسم به‌صورت جداگانه و پس از برگزاری مراسم‌های تشییع اعلام خواهد شد.
+
+🔸علی خامنه‌ای، رهبر جمهوری اسلامی، نهم اسفند ۱۴۰۴ در نخستین دقایق حمله هوایی آمریکا و اسرائیل به ایران کشته ‌شد.
+
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158252
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158252" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، ۲۳ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158251
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158251_1781355709.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شهباز شریف، نخست‌وزیر پاکستان، روز شنبه ۲۳ خرداد اعلام کرد که تهران و واشینگتن بر سر متن نهایی تفاهم‌نامه به توافق رسیده‌اند.
+
+🔸به گفته این مقام عالی‌رتبه پاکستانی که نقش میانجی را میان ایران و آمریکا داشته است، این تفاهم‌نامه در عرض ۲۴ ساعت آینده «به صورت الکترونیکی» امضا خواهد شد.
+
+🔸شریف ادامه داده است که در پی امضای تفاهم‌نامه، دو طرف در هفته جاری پس از تعطیلات آخر هفته میلادی «مذاکرات فنی» خود را آغاز خواهند کرد.
+
+🔸عباس عراقچی، وزیر خارجه جمهوری اسلامی، پیشتر در مصاحبه‌ای تلویزیونی گفته بود که پس از نهایی‌ شدن پیش‌نویس توافق، مراسم امضا به طور «غیر حضوری» و «از راه دور» انجام خواهد شد.
+
+🔸او پس از آن این توضیح را داد که دونالد ترامپ، رئیس جمهور آمریکا، روز پنجشنبه گفت که این مراسم، احتمالاً در یک کشور اروپایی و با حضور جی‌دی ونس برگزار خواهد شد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22462
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22462_1781355710.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جالبه که بدونید:
+در اواخر بهمن ماه پارسال، ترامپ مصاحبه شمخانی را که گفته بود اگر آمریکایی‌ها سر حرفشون باشند ما می‌توانیم رابطه خوبی داشته باشیم، بازنشر کرده بود ولی چند روز بعد شمخانی کشته شد.
+و دیشب هم پست عراقچی را بازنشر کرده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22461
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22461_1781355710.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴با اینکه هنوز دو هفته به شروع تابستون مونده، در بعضی از مناطق کشور، قطعی‌های دو تا چهار ساعته شروع شده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22460
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22460_1781355711.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی:
+
+یک سال پیش در چنین روزی.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کیهان:
+
+اگر تنگه هرمز را باز کنید، دشمن دوباره حمله می‌کند. هیچ آدم عاقلی نقطه قوت خود را پای میز مذاکره نمی‌برد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست‌وزیر پاکستان:
+
+من اطمینان دارم که توافق تاریخی بین تهران و واشنگتن، پایه و اساس صلح پایدار را بنا خواهد کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22457
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22457_1781355712.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴۱۶ نفر از نماینده مجلس، امشب جلوی وزارت خارجه تجمع اعتراضی برقرار می‌کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22456
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22456_1781355713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکانت اسرائیل به فارسی:
+
+تاریخ خلق تصویر: یک سال پیش.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283692
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283692_1781355714.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پس از آن که اعتراضات هفته گذشته زنان افغان در هرات به خشونت کشیده شد، عده‌ای از افغان‌های ساکن ایران برای حمایت از آن‌ها به خیابان آمدند.
+
+براساس گزارش‌ها، تجمع‌ها در ایران روز چهارشنبه (۲۰ خرداد) بعد از برخورد خشن طالبان با زنان در هرات برگزار شده است.
+
+زنان معترض با حمل پلاکاردها شعار «کار، تحصیل، آبادی» را سر داده و خواستار آزادی، آموزش، عدالت و حقوق برابر برای تمام مردم افغانستان شدند.
+
+براساس گزارش‌ها، این تجمع ساعتی بعد با حضور نیروهای انتظامی جمهوری اسلامی ایران پایان یافت. معترضان می‌گویند که به آنان گفته شد که تجمع نیاز به مجوز دارد و در نهایت آنان متفرق شدند.
+
+تظاهرات هفته گذشته در هرات به فراخوان شماری از زنان و در اعتراض به «بی‌عدالتی» برگزار شد و در جریان تیراندازی به سوی معترضان در آن، دست‌کم دو نفر کشته و چندین نفر هم مجروح شدند.
+
+منابع محلی در هرات همچنین به بی‌بی‌سی گفته‌اند که دست‌کم چهار نفر روز جمعه (۲۲ خرداد) پس از تلاش برای برگزاری تظاهرات در مقابل دفتر والی بازداشت شدند.
+
+https://bbc.in/49XtQiw
+@BBCPersian
+</div>
+
+## BBCPersian — post 283691
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283691_1781355717.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بیش از سه ماه پس از کشته شدن علی خامنه‌ای در حمله آمریکا و اسرائیل، دفتر نشر آثار رهبر سابق جمهوری اسلامی، برنامه تشییع و خاکسپاری او را اعلام کرد.
+
+بر اساس اطلاعیه دفتر نشر آثار علی خامنه‌ای مراسم تشییع او از ۱۳ تیر ماه در تهران آغاز می‌شود و با خاکسپاریش در ۱۸ تیرماه در حرم امام رضا در مشهد به پایان می‌رسد.
+
+مراسم تشییع و خاکسپاری شماری دیگر از اعضای خانواده آقای خامنه‌ای هم که همراه او در حملات آمریکا و اسرائيل به تهران در نهم اسفند کشته شدند، همزمان برگزار می‌شود.
+
+قرار است این مراسم در شهرهای تهران، قم و مشهد برگزار شود.
+
+محمدامین توکلی‌زاده، معاون فرهنگی و اجتماعی شهرداری تهران پیش‌تر گفته بود که متولی مراسم سپاه پاسداران است و سه روز «بدرقه مردمی» در‌نظر گرفته شده است.
+
+آقای توکلی‌زاده همچنین گفته بود: «در حال تدارک برای جمعیتی بیش از ۱۵ تا ۲۰ میلیون نفر در پایتخت هستیم.»
+
+📸NurPhoto via Getty Images
+
+https://bbc.in/49ZGZaP
+@BBCPersian
+</div>
+
+## BBCPersian — post 283690
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283690_1781355718.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نخست‌وزیر پاکستان: تفاهم‌نامه ایران و آمریکا احتمالا تا ۲۴ ساعت آینده نهایی می‌شود
+
+نخست‌وزیر پاکستان می‌گوید ایران و آمریکا بیش از هر زمانی به توافق صلح نزدیک‌تر شده‌اند.
+
+شهباز شریف دقایقی پیش در پستی در شبکه ایکس نوشت که انتظار می‌رود تفاهم‌نامه ایران و آمریکا ظرف ۲۴ ساعت آینده نهایی شود.
+
+او گفت که پاکستان در حال فراهم کردن تدارکات لازم برای «امضای الکترونیکی» این سند است و پس از آن هم «گفت‌و‌گوهای فنی» آغاز خواهد شد.
+
+پیشتر مقام‌های بلندپایه آمریکا و ایران گفته‌ بودند که دو طرف به امضای توافقی نزدیک‌ شده‌اند که از جمله به بازگشایی تنگه هرمز منجر خواهد شد.
+
+انتظار می‌رود که پس از امضای این تفاهم‌نامه، دور جدیدی از گفت‌و‌گو در مورد موضوعات اصلی مورد اختلاف، از جمله برنامه هسته‌ای ایران و رفع تحریم‌ها، انجام شود.
+
+📸Reuters
+
+https://bbc.in/4xqfelV
+@BBCPersian
+</div>
+
+## BBCPersian — post 283676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی ایران سه‌شنبه ۲۶ خرداد در نخستین مسابقه خود در جام جهانی ۲۰۲۶ مقابل نیوزلند در لس‌آنجلس به میدان می‌رود.
+
+این تیم که کمپ خود را برای دور زدن محدودیت‌های صدور ویزای آمریکا به شهر مرزی تیخوانا در مکزیک منتقل کرده، چند روزی است مشغول آماده‌سازی و تمرین است.
+
+آمریکا به ۱۵ عضو کاروان ورزشی تیم ملی فوتبال ایران در جام جهانی ویزای ورود به کشورش را نداد و شنیده‌ها درباره «صدور ویزا برای نیمی از آنها» هنوز رنگ واقعیت نگرفته است.
+
+مهدی محمدنبی، سرپرست کاروان تیم ملی که خود از این دسته است، گفت: «رئیس فیفا نتوانسته به وعده‌هایش برای تأمین دسترسی کامل فدراسیون فوتبال ایران به سه بازی تیم در ایالات متحده عمل کند.»
+</div>
+
+## BBCPersian — post 283670
+
+
+
+
+## Dirty_Kids — post 391881
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391881_1781355719.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شمخانی وقتی میبینه هم توافق شد هم اورانیوم رو دادن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391880
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391880_1781355719.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق صلح آمریکا و ایران تا ۲۴ ساعت آینده نهایی می‌شود
+
+شهباز شریف، نخست‌وزیر پاکستان:
+
+«ما بیش از هر زمان دیگری به توافق صلح نزدیک هستیم. با توجه به اینکه احتمالاً نهایی شدن آن در ۲۴ ساعت آینده پیش‌بینی می‌شود، پاکستان در حال آماده‌سازی برای امضای الکترونیکی توافق‌نامه صلح بلافاصله پس از آن است و پس از آن مذاکرات فنی در هفته آینده برگزار خواهد شد.
+ما مایلیم از ایالات متحده آمریکا و جمهوری اسلامی ایران به خاطر تعهد مداومشان در طول مذاکرات تشکر کنیم و از برادرانمان در منطقه به خاطر حمایتشان صمیمانه قدردانی می‌کنیم. ما اطمینان داریم که این توافق‌نامه صلح تاریخی، پایه محکمی برای صلح پایدار ایجاد خواهد کرد.»
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391879
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391879_1781355720.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی
+
+ولی دختر تنگسیری خوب چیزیه، چقدرم آرایش کرده پدرسوخته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113581
+
+<div align="center">
+  <img src="telegram/content/Hranews_113581_1781355722.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اعلام سازمان پزشکی قانونی کشور، طی سال گذشته ۱۹ هزار و ۵۴۰ نفر در حوادث رانندگی جان خود را از دست دادند که از این تعداد، ۱۵ هزار و ۶۶۰ نفر مرد و سه هزار و ۸۸۰ نفر زن بودند. همچنین ۳۷۸ هزار و ۷۲۹ نفر در پی تصادفات رانندگی مصدوم شدند. در این مدت، استان‌های تهران، فارس و سیستان و بلوچستان بیشترین آمار تصادفات را به خود اختصاص دادند و استان‌های ایلام، کهگیلویه و بویراحمد و قم به ترتیب کمترین شمار تصادفات را ثبت کردند.
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 113580
+
+<div align="center">
+  <img src="telegram/content/Hranews_113580_1781355722.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات دی‌ماه ۱۴۰۴؛ پیمان گنجی به اعدام محکوم شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – پیمان گنجی، جوان ۳۳ ساله و یکی از بازداشت شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ که در زندان تهران بزرگ محبوس است، توسط شعبه ۲۶ دادگاه انقلاب تهران از بابت اتهام “#محاربه” به #اعدام محکوم شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، پیمان گنجی، یکی از بازداشت شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ به اعدام محکوم شد.
+
+بر اساس اطلاعات دریافتی هرانا، آقای گنج، ۳۳ ساله، توسط شعبه ۲۶ دادگاه انقلاب تهران به ریاست قاضی ایمان افشاری از بابت اتهام “محاربه” به اعدام محکوم شده و هم اکنون پرونده وی در شعبه ۹ دیوان عالی کشور در دست بررسی است.
+یک منبع مطلع از پرونده این زندانی به هرانا گفت: “عباس جعفری دولت‌آبادی، دادستان پیشین تهران، وکالت آقای گنجی را در این پرونده بر عهده دارد. همچنین، در این پرونده سوزاندن اموال عمومی به عنوان مصداق اتهام منتسب به آقای گنجی عنوان شده است.”
+
+ادامه مطلب
+
+#پیمان_گنجی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 113579
+
+<div align="center">
+  <img src="telegram/content/Hranews_113579_1781355723.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نامه پخشان عزیزی از زندان اوین؛ «من آنی‌ام که برای زندگی می‌میرم، نه آنکه برای مرگ زندگی کنم»
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – پخشان عزیزی، زندانی سیاسی محکوم به #اعدام، با نگارش نامه‌ای از بند زنان زندان اوین که نسخه‌ای از آن برای هرانا ارسال شده، به تشریح دیدگاه‌های خود درباره وضعیت پرونده‌اش، اتهامات منتسب به وی، جنگ و تحولات منطقه و آنچه «بازی‌های سیاسی» پیرامون پرونده‌اش خوانده، پرداخته است. وی در بخشی از این نامه با اشاره به وضعیت حقوقی خود نوشته است: «تا کنون هیچ توقف حکمی که از آن گفته می‌شود، چه به من و چه به وکیلم ابلاغ نشده است.» او همچنین ادامه وضعیت خود را در چارچوب بلاتکلیفی قضایی توصیف کرده است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، پخشان عزیزی در این نامه که در تاریخ ۲۰ خردادماه ۱۴۰۵ از بند زنان زندان اوین نگاشته شده، با اشاره به وضعیت خود به عنوان یک زندانی سیاسی محکوم به اعدام، از فشارهای ناشی از سال‌ها حبس و صدور و تایید مکرر حکم اعدام سخن گفته است. او همچنین تاکید کرده است که تاکنون هیچ ابلاغ رسمی مبنی بر توقف اجرای حکم به وی یا وکیلش ارائه نشده است.
+
+وی در بخش دیگری از این نامه، ضمن رد اتهامات مرتبط با عضویت در گروه‌های سیاسی و تجزیه‌طلبی، فعالیت‌های خود را در چارچوب مددکاری اجتماعی و همکاری با آوارگان جنگی در سوریه توصیف کرده و با محکوم کردن جنگ و حملات علیه غیرنظامیان، بر ضرورت گفت‌وگو، صلح و احقاق حقوق جوامع مختلف در چارچوبی غیرتجزیه‌طلبانه تاکید کرده است.
+
+متن کامل این نامه را به نقل از هرانا در ادامه بخوانید
+
+#پخشان_عزیزی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## manototv — post 106045
+
+<div align="center">
+  <a href="telegram/content/manototv_106045_1781355723.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا یوتیوب از کانال‌های مرتبط با نهادها و افراد تحریم‌شده جمهوری اسلامی درآمد کسب می‌کند؟
+
+گزارش تازه وایرد به نقل از یک پژوهش مستقل می‌گوید ده‌ها کانال مرتبط با افراد و نهادهای تحت تحریم آمریکا همچنان در یوتیوب فعال بوده‌اند و تبلیغات برندهای بزرگ روی ویدیوهای آن‌ها نمایش داده شده است.
+
+گوگل می‌گوید به قوانین تحریم‌ها پایبند است و علیه حساب‌های ناقض سیاست‌هایش اقدام کرده، اما هنوز مشخص نیست آیا بخشی از درآمد تبلیغات به این کانال‌ها پرداخت شده است یا نه.
+</div>
+
+## alonews — post 127620
+
+<div align="center">
+  <a href="telegram/content/alonews_127620_1781355724.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: زمان امضای تفاهم‌نامه فردا نخواهد بود
+
+
+🔴تفاهم‌نامه اسلام‌آباد بر پایان جنگ متمرکز است و در این مرحله موضوع هسته‌ای در دستور کار مذاکرات قرار ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127619
+
+<div align="center">
+  <a href="telegram/content/alonews_127619_1781355724.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این صحبت‌های عراقچی به شدت وایرال شده
+
+
+🔴اصرار بر مقاومت و غنی سازی باعث جنگ شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127618
+
+<div align="center">
+  <a href="telegram/content/alonews_127618_1781355726.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات اسرائیل به لبنان ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127617
+
+<div align="center">
+  <a href="telegram/content/alonews_127617_1781355727.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ: ایران بخش‌های گسترده‌ای از زرادخانه موشکی خود را بازسازی کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127616
+
+<div align="center">
+  <a href="telegram/content/alonews_127616_1781355727.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈با اینکه هنوز حدود ۲هفته تا شروع تابستون مونده، قطعی‌های ۲ تا ۴ ساعته برق تو بعضی از استان‌های کشور شروع شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127615
+
+<div align="center">
+  <a href="telegram/content/alonews_127615_1781355728.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه هدف قرار گرفتن راکت انداز Tos-1A روسی توسط پرتابه FPV اوکراینی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127614
+
+<div align="center">
+  <a href="telegram/content/alonews_127614_1781355729.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال دلار هرات توسط تلگرام مسدود شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127613
+
+<div align="center">
+  <a href="telegram/content/alonews_127613_1781355730.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رایزنی غریب آبادی با سفرای چین و روسیه درباره پیش نویس یادداشت تفاهم اسلام آباد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127612
+
+<div align="center">
+  <a href="telegram/content/alonews_127612_1781355730.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تداوم تنش آبی در ۲۳ استان
+
+
+🔴مدیرعامل شرکت مهندسی آب و فاضلاب کشور : بررسی‌ها نشان می‌دهد ۲۳ استان کشور با تنش آبی مواجه‌اند و در برخی کلانشهرها از جمله تهران ضرورت مدیریت مصرف و استفاده از تجهیزات کاهنده بیش از گذشته احساس می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127611
+
+<div align="center">
+  <a href="telegram/content/alonews_127611_1781355730.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست به نقل از یک مقام دولت ترامپ: تعیین میزان پولی که ایران می‌تواند به طور بالقوه دریافت کند دشوار است زیرا بستگی به آنچه آنها ارائه می‌دهند دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127610
+
+<div align="center">
+  <a href="telegram/content/alonews_127610_1781355731.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 حمله هوایی اسرائیل به شهر انصار در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127609
+
+<div align="center">
+  <a href="telegram/content/alonews_127609_1781355731.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جزئیات مراسم وداع، تشییع و تدفین رهبر 
+🔴شنبه و یکشنبه ۱۳ و ۱۴ تیر (۱۹ و ۲۰ محرم): مراسم وداع در مصلای امام خمینی(ره) تهران 
+🔴دوشنبه ۱۵ تیر (۲۱ محرم): مراسم تشییع در تهران 
+🔴سه‌شنبه ۱۶ تیر (۲۲ محرم): مراسم تشییع در شهر قم 
+🔴پنجشنبه ۱۸ تیر مراسم تشییع در مشهد…
+</div>
+
+## alonews — post 127608
+
+<div align="center">
+  <a href="telegram/content/alonews_127608_1781355731.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نخست وزیر پاکستان:  ما اکنون به یک توافق صلح نزدیک‌تر از هر زمان دیگری هستیم. 
+🔴با احتمال نهایی‌سازی در ۲۴ ساعت آینده، پاکستان در حال آماده‌سازی برای امضای الکترونیکی توافق صلح بلافاصله پس از آن است 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127607
+
+<div align="center">
+  <a href="telegram/content/alonews_127607_1781355732.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان UKMTO گزارشی از وقوع یک حادثه در فاصله ۶ مایل دریایی (6NM) در شرق عمان دریافت کرده است.
+
+
+🔴گزارش شده است که یک کشتی نفت‌کش در بخش جلو و سمت چپ بدنه (Port Bow) مورد اصابت پرتابه ناشناس قرار گرفته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127606
+
+<div align="center">
+  <a href="telegram/content/alonews_127606_1781355732.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری/ نخست‌وزیر پاکستان: متن نهایی توافقنامه صلح بین ایران و آمریکا به دست آمد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127605
+
+<div align="center">
+  <a href="telegram/content/alonews_127605_1781355732.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یوتیوب صفحهٔ خبرگزاری فارس رو به خاطر تحریم "مسدود" کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ---
 📅 بروزرسانی: 1405/03/23 14:35
@@ -2422,10 +4091,8 @@ https://bbc.in/4onLYbc
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
-<div dir="rtl" style="text-align:left; margin-top:10px;"><a href="https://github.com/rhyerbeyer/aio-downloader-change/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+
 <!-- NAV END -->
