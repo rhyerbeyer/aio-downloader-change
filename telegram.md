@@ -7,6 +7,1087 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 03:21
+---
+
+## VahidOOnLine — post 246112
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246112_1781740267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فرانسه بامداد پنجشنبه ۲۸ خردادماه گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، امضای توافق با ایران برای پایان دادن به جنگ را تایید کرده است. ترامپ هنگام ترک کاخ ورسای در پاسخ به پرسش خبرنگاران درباره امضای تفاهم‌نامه گفت: «امضا شده است.»
+
+به گزارش خبرگزاری فرانسه، ترامپ همچنین تایید کرد که این توافق در کاخ ورسای به امضا رسیده و گفت: «بله، ما آن را در ورسای امضا کردیم. همین الان امضا کردیم.» این اظهارات پس از دیدار و ضیافت شام او با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای مطرح شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی که اکنون نام او به عنوان مذاکره‌کننده اصلی با آمریکا مطرح است، در سخنرانی و مجموعه‌ اظهارنظرهایی که چهارشنبه شب، همزمان با انتشار متن یادداشت تفاهم انجام شد، از نقش خود در مجموعه تحولات اخیر صحبت کرد و تاکید کرد که یا دیگران با او برای تصمیم‌گیری همراه می‌شوند یا خودش تصمیم می‌گیرد. قالیباف همچنین گفت سیستم «مدیریتی» و «نظامی» کشور از «فرد محوری» خارج شده است. تا پیش از کشته شدن علی خامنه‌ای، رهبر سابق جمهوری اسلامی در حمله آمریکا و اسرائیل، او درباره همه امور تصمیم می‌گرفت. قالیباف افزود که برای همه سناریو‌ها، از جمله کشته شدن علی خامنه‌ای هم برنامه‌ریزی شده بود. اظهارات قالیباف در حالی مطرح می‌شود که هنوز با گذشت بیش از سه ماه از معرفی مجتبی خامنه‌ای به عنوان رهبر جدید نظام، هیچ تصویر یا حتی صدای ضبط شده‌ای از او منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246110
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246110_1781740269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فاکس‌نیوز به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خرداد در جریان ضیافت شام با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای، تفاهم‌نامه میان آمریکا و ایران را شخصا امضا کرد.
+بر اساس این گزارش، پس از امضای مسعود پزشکیان، رئیس‌جمهوری ایران، این تفاهم‌نامه اجرایی شده است. یک نسخه از سند امضاشده نیز برای ایران و کشورهای میانجی ارسال شده است.
+فاکس‌نیوز همچنین گزارش داد با اجرایی شدن این توافق، مراسم اصلی امضای تفاهم‌نامه که قرار بود در ژنو برگزار شود، لغو شده است. با این حال، اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، اعلام کرد برنامه حضور تیم‌های مذاکره‌کننده در ژنو همچنان پابرجاست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246109
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246109_1781740270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت داوطلب این مسئولیت نبوده و حتی «کراهت شدید» نسبت به آن داشته است زیرا دونالد ترامپ در کشته شدن قاسم سلیمانی نقش داشت.
+او افزود با وجود این، چون مسئولان بر حضور او تاکید داشتند این مسئولیت را از سر وظیفه پذیرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246108
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246108_1781740272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام ارشد دولت آمریکا در یک نشست توجیهی با خبرنگاران تاکید کردند که هیچ‌یک از امتیازهای اقتصادی پیش‌بینی‌شده در یادداشت تفاهم تهران و واشینگتن بدون اجرای تعهدات حکومت ایران عملی نخواهد شد و همه مراحل به صورت تدریجی، قابل راستی‌آزمایی و مشروط به رفتار تهران خواهد بود.
+این مقام‌های آمریکایی درباره بند نخست تفاهم‌نامه درباره پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها از جمله لبنان، گفتند این بند هیچ تعهد تازه‌ای برای واشینگتن ایجاد نمی‌کند، بلکه چارچوبی طراحی شده است که هرگونه گشایش اقتصادی در آینده تنها در صورتی اتفاق بیفتد که حکومت ایران به تعهدات خود عمل کند.
+این مقامات درباره بند سوم در ارتباط با ضرب‌الاجل ۶۰ روزه برای توافق نهایی، تاکید کردند که تفاهم‌نامه، خود توافق نهایی نیست و هر یک از طرفین تا زمان دستیابی به توافق جامع می‌توانند از مذاکرات خارج شوند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246107
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246107_1781740273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، بامداد پنجشنبه ۲۸ خردادماه گفت گزینه رقیق‌سازی مواد غنی‌شده در داخل ایران از ابتدای مذاکرات هسته‌ای مطرح بوده و موضوع تازه‌ای نیست. او افزود این گزینه برای جلوگیری از طرح پیشنهادهایی مانند انتقال مواد غنی‌شده به خارج از ایران مطرح شده است و تاکید کرد: «انتقال مواد غنی‌شده به خارج از ایران برای ما قابل قبول نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246106
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246106_1781740275.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «سازوکارهای مدیریت تنگه هرمز تا حدود زیادی با عمان بسته شده است و جمهوری اسلامی در ازای خدمات در تنگه هرمز هزینه دریافت خواهد کرد. تردد ایمن با حفظ حاکمیت جمهوری اسلامی بر تنگه هرمز خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246105
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246105_1781740276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید به رویترز گفت: «ترامپ چهارشنبه یادداشت تفاهمی را که با هدف پایان دادن به جنگ با ایران تدوین شده است، امضا کرد.»
+خبرگزاری تسنیم، وابسته به سپاه، نیز به نقل از یک منبع نزدیک به تیم مذاکره‌کننده گزارش داد که متن فارسی این تفاهم‌نامه به عنوان یک سند رسمی به امضای دو طرف آمریکا و جمهوری اسلامی رسیده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246104
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246104_1781740277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «موشک‌های ایران فقط برای شلیک شدن هستند نه برای مذاکره. موشک‌های ما اصلا دوست ندارند که کسی درباره‌شان حرف بزند درباره توانایی دفاعی ایران در هیچ روندی و با هیچ طرفی صحبت نخواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246103
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246103_1781740277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «از ابتدا گفته‌ایم که مواد غنی‌شده هسته‌ای به خارج از ایران منتقل نخواهد شد. رقیق‌سازی مواد غنی‌شده گزینه جدیدی نیست، الان هم به عنوان یک گزینه معرفی شده است تا راه را بر گزینه‌های دیگر ببندیم.»
+او افزود: «گزینه غیرقابل قبول برای ما، انتقال مواد غنی‌شده هسته‌ای به خارج از کشور است.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246102
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246102_1781740278.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت هر پیروزی در جنگ اگر در نهایت به یک سند حقوقی و سیاسی منتهی نشود و ثبت نشود، هیچ منفعتی نخواهد داشت.
+او افزود جمهوری اسلامی در جنگ ۴۰ روزه پیروز شده و دستاورد این پیروزی در مذاکره شکل می‌گیرد.
+به گفته قالیباف، این تفاهم‌نامه «کارنامه شکست آمریکا» است؛ تعبیری که او آن را نقل‌قولی از غربی‌ها دانست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246101
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246101_1781740280.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری رویترز به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد تفاهم‌نامه با ایران را که با هدف پایان دادن به جنگ میان دو کشور تدوین شده است، امضا کرد.
+این مقام کاخ سفید جزئیات بیشتری درباره روند امضا یا مفاد تازه این تفاهم‌نامه ارائه نکرد. پیش‌تر اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، اعلام کرد توافق ایران و آمریکا به امضای روسای جمهوری دو کشور رسیده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246100
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246100_1781740281.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «احتمالا اکنون متن تفاهم‌نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد. متن این تفاهم‌نامه الان رسما نهایی شده است، چرا که دو طرف آن را امضا کرده‌اند. این تفاهم‌نامه قرار شد که به صورت دیجیتال امضا شود.»
+او افزود: وقتی تفاهم‌نامه به امضای روسای جمهوری دو کشور برسد نقض آن هزینه بیشتری خواهد داشت.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246099
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246099_1781740282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بر اساس اطلاعات رسیده به ایندیپندنت فارسی، پرستو احمدی، خواننده معترض ساکن ایران، به همراه ۸ نفر از نوازندگان و عوامل اجرایی پروژه «کنسرت کاروانسرا» از سوی دادگاه کیفری استان قم به ۷۴ ضربه شلاق، دو سال ممنوع‌الخروجی و دو سال محرومیت از فعالیت هنری محکوم شده‌اند.
+
+این احکام در پی رسیدگی به پرونده‌ای صادر شده است که پس از انتشار ویدیوی «کنسرت کاروانسرا» در آذر ۱۴۰۳ علیه دست‌اندرکاران این برنامه تشکیل شد. شعبه رسیدگی‌کننده دفاعیات متهمان را نپذیرفته و آنان را به اتهام «جریحه‌دار کردن عفت عمومی» از طریق تولید و انتشار محتوای به‌اصطلاح «خلاف اخلاق» در فضای مجازی مجرم شناخته است.
+
+ویدیوی این اجرای موسیقی که در کاروانسرای تاریخی دیرگچین ضبط و در یوتیوب منتشر شد، با حضور پرستو احمدی به‌عنوان خواننده گروه و بدون رعات حجاب اجباری، با استقبال گسترده ایرانیان روبه‌رو شده بود. پس از انتشار این برنامه، پرستو احمدی و همکارانش بازداشت شدند و محل برگزاری کنسرت نیز پلمب شد.
+
+پرستو احمدی پیش‌تر در توضیح این اجرا نوشته بود: «من، پرستو، دختری که می‌خواهم برای مردمی که دوستشان دارم بخوانم. این حقی است که نمی‌توانستم از آن چشم بپوشم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246098
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246098_1781740282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وب‌سایت آکسیوس بامداد پنجشنبه ۲۸ خردادماه به نقل از دو مقام آمریکایی گزارش داد آمریکا و ایران تفاهم‌نامه پایان جنگ و بازگشایی تنگه هرمز را زودتر از موعد پیش‌بینی‌شده و به‌صورت غیرحضوری امضا کرده‌اند و این توافق اکنون اجرایی شده است. به گفته یکی از این مقام‌ها، دونالد ترامپ شخصاً این سند را امضا کرده است.
+
+آکسیوس نوشت قرار بود این تفاهم‌نامه روز جمعه در سوئیس امضا شود، اما دو طرف برای تسریع اجرای توافق و بازگشایی زودتر تنگه هرمز، روند امضا را جلو انداختند. وزارت خارجه جمهوری اسلامی نیز اعلام کرد دو طرف توافق کرده‌اند سند را به‌صورت الکترونیکی و توسط روسای جمهوری امضا کنند. با این حال، نشست هیات‌های آمریکایی و ایرانی به ریاست جی‌دی ونس و محمدباقر قالیباف همچنان طبق برنامه روز جمعه در سوئیس برگزار خواهد شد و انتظار می‌رود آغاز مذاکرات درباره برنامه هسته‌ای ایران محور اصلی این دیدار باشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246097
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246097_1781740283.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران، در گفتگو با صداوسیما گفت متن توافق ایران و آمریکا بامداد پنج‌شنبه ۲۸ خرداد به امضای روسای جمهوری دو کشور رسیده است.
+بقایی با اشاره به برنامه‌ریزی‌های انجام‌شده برای امضای این توافق گفت: «همین الان که در حال صحبت هستیم، متن رسما به امضای روسای جمهوری دو کشور رسیده است.»
+او گفت: «وقتی متن به امضای بالاترین مقام‌های دو کشور برسد، قاعدتا نقض آن هزینه‌های بیشتری دارد و ما با توجه به تجربه‌هایی که داریم ترجیح دادیم که این اتفاق بیافتد. ضمن اینکه تشخیص دادیم برگزاری مراسم هم چندان جایی [در برنامه ما] ندارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مذاکرات جمعه ایران و آمریکا در سوئیس الان قطعی نیست
+
+بقایی، سخنگوی وزارت خارجه:
+جلسه جمعه تا چند ساعت قبل قطعی بود ولی وقتی قرار شد روسای جمهور دو طرف (ایران و آمریکا) تفاهمنامه را امضا کنند، قرار شد درباره جلسه جمعه فعلاً تامل شود.
+@withyashar
+</div>
+
+## WithYashar — post 15203
+
+
+
+
+## WithYashar — post 15202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://x.com/yasharrapfa
+</div>
+
+## WithYashar — post 15201
+
+
+
+
+## WithYashar — post 15200
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید: ترامپ تفاهم‌نامه با ایران را امضا کرد
+@withyashar
+</div>
+
+## mwarmonitor — post 11095
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11095_1781740286.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 هنر والای «ربط دادن گوز به شقیقه» دقیقاً از همین‌جا شکل می‌گیرد؛ جایی که ممدباقر طرقبه‌چی با استشمام بوی شیرین دلار، حتی اگر کل هیمنه و رهبران مقاومت هم روی هوا بروند، با وقاحت تمام ایستاده و برای حفظ صندلی‌اش معامله می‌کند. او در این مصاحبه خفت‌بار ، با یک پاس‌کاری فلسفی-انتحاری، پرونده «انتقام سخت» را رسماً بست و صورت‌حساب خون موشعلی را حواله داد به امام زمان تا خودش بیاید و حساب کند! منطقِ مملی این است که کشتن صد تا نتانیاهو هم به اندازه بند کفش رهبرشان ارزش ندارد و اصلاً اگر شمر را همان موقع می‌کشتند مگر انتقام امام حسین گرفته می‌شد!!! اینجاست که مجری فلک‌زده با چشم‌های از حدقه درآمده، دو سکته ناقص را رد می‌کند و غرق در این شاهکارِ ماست‌مالی می‌شود. بی‌غیرتی ممدباقر در ترانسفر کردنِ وظیفه جنگیدن به دوش مقدسات، اوج رذالت است که نشان می‌دهد این جماعت چطور خون می‌فروشند و به ریش عالم و آدم می‌خندند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11094
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11094_1781740288.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝در این قاب از ویدیو، شاهکار دیپلماسی ترامپ را می‌بینیم که با همان وقاحت همیشگی پشت تریبون اعلام می‌کند اگر کارها خوب پیش برود افتخارش برای اوست و اگر خراب شود، تقصیر جی‌دی ونس است! اما اوج کمدی سیاه این صحنه، قیافه مارکو روبیو در سمت راست است؛ مردی که انگار روح از بدنش خارج شده و با فکی منقبض و نگاهی خیره به افق، به مرز جنون رسیده است. چهره عصبانی و مستأصل او دقیقاً شبیه کسی است که متوجه شده در گروگان یک کله‌زرد روان‌پریش است، اما برای حفظ ظاهر مجبور است مثل یک مجسمه دکوری بایستد و سقوط آزاد کشورش را تماشا کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11093
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11093_1781740290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 این بازجوخبرنگار دوزاری که مثل محتوای تخم‌مرغ شانسی از هر سوراخی بیرون می‌پره، این‌بار با یک سناریوی بالیوودی جدید برگشته تا حماسه بمباران پایگاه آمریکا با لگن‌های پرنده F-5 را به خورد ملت بده. داستان از این قراره که وقتی شبکه ABC آمریکا یک خط خبر رفت، اتاق فرمان صداوسیما سریع عوامل فیلم «تاپ‌گان مناطق محروم» را به خط کرد؛ خلبان‌های بی‌نوایی که روح‌شون هم از این حماسه خبر نداشت و وسط مصاحبه جوری نگاه می‌کردند که انگار تازه فهمیده‌اند دیشب در خواب کویت را فتح کرده‌اند! رضوانی با آن قیافه حق‌به‌جانب جوری از این «عملیات کم‌نظیر» حرف می‌زند که انگار با جنگنده‌های نسل ششم به قلب پنتاگون زده‌اند، در حالی که تنها دستاورد واقعی این نوابغ هوانوردی، حمله اشتباهی به قطر و زدن دو فروند از هواپیماهای خودی بود؛ مأموریتی چنان طوفانی و آبروبر که هنوز که هنوزه از سرنوشت خلبان‌های غیور و همیشه در صحنه خبری در دست نیست!
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ترامپ:
+
+۹ مارس: «ما حالا کاملاً از خاورمیانه مستقل هستیم. ما به نفت آن‌ها نیازی نداریم.»
+
+۱ آوریل: «واقعاً روی ما تأثیری ندارد. ما نفت بسیار زیادی داریم. نفت و گاز فوق‌العاده زیادی داریم، خیلی بیشتر از نیازمان.»
+
+۱۷ ژوئن: اگر من با یادداشت تفاهم (MOU) موافقت نمی‌کردم، «حدوداً ظرف ۴ هفته ذخایرمان تمام می‌شد… واقعاً به پایان می‌رسید، و زمانی می‌آمد که دیگر نمی‌توانستید به آن دسترسی داشته باشید.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری: به گفته دو مقام آمریکایی به آکسیوس، ایالات متحده و ایران یادداشت تفاهم (MOU) پایان‌دهنده جنگ را به‌صورت الکترونیکی امضا کرده‌اند و این توافق اکنون لازم‌الاجرا شده است. @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343102
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343102_1781740293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"It's signed."
+
+President Trump told reporters he signed the Iran memorandum of understanding in Versailles as he departed the palace following a dinner with French President Emmanuel Macron.
+
+A White House official says a photo of the signed agreement was sent to Iran and the mediating countries, to formally put the deal into effect.
+</div>
+
+## FoxNewsTwitter — post 343098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump tours the Palace of Versailles alongside French President Emmanuel Macron and his wife, Brigitte Macron, just before a major development in the Iran negotiations.
+
+The dinner meeting inside the historic French landmark ended with Trump signing the Iran memorandum of understanding, according to the White House.
+
+The gathering at Versailles was intended to celebrate the historic ties between the U.S and France during America's 250th birthday celebration.
+</div>
+
+## FoxNewsTwitter — post 343097
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343097_1781740295.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The American flag is flying over a new political divide.
+
+Just 27% of Democrats say they'll display a U.S. flag this July 4, according to a new poll, compared with 64% among Republicans.
+
+The survey also found major differences in how Americans view the holiday itself. Nearly two-thirds of Republicans (65%) said July 4 is "a day where I celebrate the United States of America," while only 24% of Democrats agreed.
+
+What was once one of the country's most universal symbols is increasingly being viewed through a partisan lens as Americans prepare to celebrate Independence Day.
+</div>
+
+## FoxNewsTwitter — post 343096
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343096_1781740296.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump arrives in Paris ahead of meetings with French President Macron https://twitter.com/i/broadcasts/1XGyggyZZEgxM
+</div>
+
+## FoxNewsTwitter — post 343095
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343095_1781740297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A dinner at Versailles just became the setting for a major diplomatic breakthrough.
+
+President Trump personally signed the Iran memorandum of understanding Wednesday while meeting with French President Emmanuel Macron, a White House official confirmed.
+
+The agreement, which Iranian President Masoud Pezeshkian also signed, is now in effect to end the war and cancels the formal signing ceremony that had been scheduled in Geneva.
+</div>
+
+## pm_afshaa — post 94309
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94309_1781740298.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: یک مقام کاخ سفید تأیید کرد که ترامپ یادداشت تفاهم با جمهوری اسلامی رو امضا کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94308
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94308_1781740298.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس به نقل از مقام آمریکایی:
+آمریکا و ایران روز چهارشنبه به‌صورت از راه دور تفاهمنامه پایان جنگ رو امضا کردن و این توافق از حالا لازم‌الاجرا است.
+
+ترامپ شخصاً یک نسخه از این توافق رو طی شام با رئیس‌جمهور فرانسه در کاخ ورسای امضا کرد. عکس نسخهٔ امضا‌ شده هم برای ایرانی‌ها و کشورهای میانجی ارسال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94307
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94307_1781740299.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقایی، سخنگوی وزارت خارجه: متن تفاهمنامه ایران و آمریکا رسما نهایی شده چون دو طرف اون رو امضا کردن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقائی:تفاهم‌نامه به‌صورت الکترونیکی بین پزشکیان و ترامپ امضا شده. جمعه هم خبری از مراسم رسمی نیست و فقط هیئت‌های ایران و آمریکا به سرپرستی قالیباف و جی‌دی ونس تو سوئیس دور اول مذاکرات فنی 30 روزه برای اجرای تفاهم‌نامه رو شروع می‌کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94305
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94305_1781740300.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیش بینی 2 سال پیش شاهین نجفی در مورد قالیباف
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5773
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5773_1781740301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 جام‌جهانی ۲۰۲۶؛ بررسی قضاوت علیرضا فغانی از نگاه برادرش؛
+
+#جام_جهانی #دژفوتبالی
+@DEJradio
+</div>
+
+## kianmeli1 — post 88058
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88058_1781740304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت نتانیاهو
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت امور خارجه ایران اعلام کرد که لغو تحریم‌های نفتی ایران از امروز آغاز می‌شود.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88056
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88056_1781740305.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر مهم ترامپ
+
+ترامپ آزادسازی پول‌های ایران را تایید کرد
+
+«خب، موضوع آزاد کردن پول‌ها پاسخ دادنش ساده است.
+ما مقدار زیادی از پول آن‌ها را گرفته‌ایم، و ما — پول خودشان را از آن‌ها گرفته‌ایم.
+وقتی پول مال ما نیست، پولِ خودِ آن‌هاست، و ما در یک مقطع زمانی آن را مسدود کردیم.
+فکر می‌کنم ناچاریم آن را پس بدهیم، می‌دانید؟
+اگر آن را پس ندهیم، دیگر هیچ‌کس هرگز روی دلار سرمایه‌گذاری نخواهدکرد.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسماعیل بقایی:
+
+برای اینکه دشمن بدعهدی نکند علاوه بر متن انگلیسی متن فارسی هم امضا شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342945
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342945_1781740307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از موشک تا معیشت؛ تغییر ناگهانی روایت؛
+قالیباف: سنگر را از «بچه‌های لانچر» تحویل می‌گیریم!
+
+قالیباف می‌گوید: «باید سنگر را از لانچرها تحویل بگیریم و به سمت ساختن کشور برویم.»
+
+تا دیروز می‌گفتند اولویت کشور موشک است، نه معیشت. هر صدای منتقدی را با «مقاومت» و «امنیت» ساکت می‌کردند. حالا از اقتصاد، توسعه و برداشتن فشار از دوش مردم حرف می‌زنند.
+
+اگر اقتصاد امروز اولویت شده، پس چهار دهه گذشته صرف چه شد؟ چه کسانی کشور را به این نقطه رساندند؟ و آیا قرار است میلیاردها دلار سرمایه و منابع تازه، دوباره در اختیار همان ساختارهایی قرار بگیرد که کشور را به این وضعیت رسانده‌اند؟
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342944
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342944_1781740310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهستی از لندن: این بازی دو نیمه دارد؛ برای نیمه دوم، مردم ایران باید آماده باشند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342943
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342943_1781740312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چیدا از خرم‌آباد: ما لرها حامی ایرانیم و سال‌ها برای یک تکه نان در سرزمین خودمان جان داده‌ایم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342942
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342942_1781740315.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امید از تهران: آخر کار را ما تعیین می‌کنیم، نه ترامپ و نه هیچ‌کس دیگر؛ حق‌مان را می‌گیریم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342941
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342941_1781740317.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زهرا از رشت: باید به ترامپ فشار می‌آوردند که دست‌کم زندانی‌های ما را آزاد کند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## IranIntlTV — post 342940
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342940_1781740320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت داوطلب این مسئولیت نبوده و حتی «کراهت شدید» نسبت به آن داشته است زیرا دونالد ترامپ در کشته شدن قاسم سلیمانی نقش داشت.
+او افزود با وجود این، چون مسئولان بر حضور او تاکید داشتند این مسئولیت را از سر وظیفه پذیرفت.
+</div>
+
+## IranIntlTV — post 342939
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342939_1781740322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام ارشد دولت آمریکا در یک نشست توجیهی با خبرنگاران تاکید کردند که هیچ‌یک از امتیازهای اقتصادی پیش‌بینی‌شده در یادداشت تفاهم تهران و واشینگتن بدون اجرای تعهدات حکومت ایران عملی نخواهد شد و همه مراحل به صورت تدریجی، قابل راستی‌آزمایی و مشروط به رفتار تهران خواهد بود.
+این مقام‌های آمریکایی درباره بند نخست تفاهم‌نامه درباره پایان فوری و دائمی عملیات نظامی در همه جبهه‌ها از جمله لبنان، گفتند این بند هیچ تعهد تازه‌ای برای واشینگتن ایجاد نمی‌کند، بلکه چارچوبی طراحی شده است که هرگونه گشایش اقتصادی در آینده تنها در صورتی اتفاق بیفتد که حکومت ایران به تعهدات خود عمل کند.
+این مقامات درباره بند سوم در ارتباط با ضرب‌الاجل ۶۰ روزه برای توافق نهایی، تاکید کردند که تفاهم‌نامه، خود توافق نهایی نیست و هر یک از طرفین تا زمان دستیابی به توافق جامع می‌توانند از مذاکرات خارج شوند.
+
+https://iranintl.com/202606171881
+</div>
+
+## IranIntlTV — post 342938
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342938_1781740323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در بندهای ۷ و ۸ تفاهم‌نامه آمریکا و جمهوری اسلامی تاکید شده است که ایران متعهد شده به دنبال غنی‌سازی نرود. یک مقام ارشد آمریکایی این بند را «پیروزی بزرگ» آمریکا توصیف کرده و گفته ایران پذیرفته است ذخایر اورانیوم خود را نابود کند و لغو تحریم‌ها نیز مستقیماً به حل‌وفصل موضوع هسته‌ای گره خورده است.
+در یکی دیگر از بندهای این تفاهم‌نامه نیز به پایان درگیری‌ها در همه جبهه‌ها، از جمله لبنان، اشاره شده است.
+
+گفت‌وگو با آرام حسامی، استاد علوم سیاسی، و جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 342937
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342937_1781740326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «سازوکارهای مدیریت تنگه هرمز تا حدود زیادی با عمان بسته شده است و جمهوری اسلامی در ازای خدمات در تنگه هرمز هزینه دریافت خواهد کرد. تردد ایمن با حفظ حاکمیت جمهوری اسلامی بر تنگه هرمز خواهد بود.»
+https://iranintl.com/202606174561
+</div>
+
+## IranIntlTV — post 342936
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342936_1781740327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با وجود اینکه مقام‌های جمهوری اسلامی تفاهم با آمریکا را زمینه‌ساز گشایش اقتصادی عنوان می‌کنند، یک مقام ارشد دولت آمریکا گفته است این توافق، ایالات متحده را به هیچ تعهد مالی مستقیمی ملزم نمی‌کند.
+
+گفت‌وگو با آرش آرامش، حقوقدان و کارشناس امنیت ملی، و امید معماریان، تحلیل‌گر سیاسی در موسسه دان
+@iranintltv
+</div>
+
+## IranIntlTV — post 342935
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342935_1781740330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید به رویترز گفت: «ترامپ چهارشنبه یادداشت تفاهمی را که با هدف پایان دادن به جنگ با ایران تدوین شده است، امضا کرد.»
+خبرگزاری تسنیم، وابسته به سپاه، نیز به نقل از یک منبع نزدیک به تیم مذاکره‌کننده گزارش داد که متن فارسی این تفاهم‌نامه به عنوان یک سند رسمی به امضای دو طرف آمریکا و جمهوری اسلامی رسیده است.
+
+https://iranintl.com/202606174397
+</div>
+
+## IranIntlTV — post 342934
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342934_1781740330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس بند پنجم تفاهم‌نامه جمهوری اسلامی و آمریکا، ایران متعهد شده است عبور ایمن کشتی‌های تجاری را بدون دریافت هیچ هزینه‌ای و فقط برای مدت ۶۰ روز از خلیج فارس به دریای عمان و بالعکس فراهم کند.
+
+پس از این دوره، ایران و عمان با مشورت سایر کشورهای حاشیه خلیج فارس درباره مدیریت آینده و خدمات دریایی تنگه هرمز گفت‌وگو خواهند کرد.
+
+گفت‌وگو با رضا گوهرزاد، روزنامه‌نگار و تحلیل‌گر سیاسی، و شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 342933
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342933_1781740333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «موشک‌های ایران فقط برای شلیک شدن هستند نه برای مذاکره. موشک‌های ما اصلا دوست ندارند که کسی درباره‌شان حرف بزند درباره توانایی دفاعی ایران در هیچ روندی و با هیچ طرفی صحبت نخواهد شد.»
+https://iranintl.com/202606178175
+</div>
+
+## IranIntlTV — post 342932
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342932_1781740334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «از ابتدا گفته‌ایم که مواد غنی‌شده هسته‌ای به خارج از ایران منتقل نخواهد شد. رقیق‌سازی مواد غنی‌شده گزینه جدیدی نیست، الان هم به عنوان یک گزینه معرفی شده است تا راه را بر گزینه‌های دیگر ببندیم.»
+او افزود: «گزینه غیرقابل قبول برای ما، انتقال مواد غنی‌شده هسته‌ای به خارج از کشور است.»
+
+https://iranintl.com/202606175498
+</div>
+
+## IranIntlTV — post 342931
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342931_1781740335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت هر پیروزی در جنگ اگر در نهایت به یک سند حقوقی و سیاسی منتهی نشود و ثبت نشود، هیچ منفعتی نخواهد داشت.
+او افزود جمهوری اسلامی در جنگ ۴۰ روزه پیروز شده و دستاورد این پیروزی در مذاکره شکل می‌گیرد.
+به گفته قالیباف، این تفاهم‌نامه «کارنامه شکست آمریکا» است؛ تعبیری که او آن را نقل‌قولی از غربی‌ها دانست.
+</div>
+
+## IranIntlTV — post 342930
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342930_1781740337.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک وارنر، سناتور دموکرات، به مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گفت: «من هنوز توافق را ندیده‌ام و فکر نمی‌کنم این توافق شامل برنامه موشک‌های بالستیک ایران یا مسیر عملی و مشخصی برای حل مساله هسته‌ای باشد.»
+
+او افزود: «این جنگی انتخابی بود و آمریکا را قوی‌تر نکرد. این یک اشتباه بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342929
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342929" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ تفاهم با آمریکا و ۳۰۰ میلیارد دلار برای جمهوری اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 342928
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342928_1781740339.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال انگلیس در نخستین دیدار خود در گروه L جام جهانی ۲۰۲۶، کرواسی را در ورزشگاه شهر دالاس آمریکا با نتیجه ۴ بر ۲ شکست داد.
+
+🔹گل‌های انگلیس را هری کین در دقایق ۱۱ (پنالتی) و ۴۱، جود بلینگام در دقیقه ۴۷ و مارکوس رشفورد در دقیقه ۸۵ به ثمر رساندند.
+
+🔹گل‌های کرواسی نیز توسط مارتین باتورینا در دقیقه ۳۶ و پتر موسا در دقیقه ۵+۴۵ به ثمر رسید.
+
+🔹هری کین تاکنون در جام‌های جهانی پنج گل از روی نقطه پنالتی (بدون احتساب ضربات پنالتی پایان بازی) به ثمر رسانده است. او اکنون رکورددار گلزنی از روی نقطه پنالتی در تاریخ جام جهانی است.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342927
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342927_1781740340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «احتمالا اکنون متن تفاهم‌نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد. متن این تفاهم‌نامه الان رسما نهایی شده است، چرا که دو طرف آن را امضا کرده‌اند. این تفاهم‌نامه قرار شد که به صورت دیجیتال امضا شود.»
+او افزود: وقتی تفاهم‌نامه به امضای روسای جمهوری دو کشور برسد نقض آن هزینه بیشتری خواهد داشت.
+
+https://iranintl.com/202606176742
+</div>
+
+## FarsiVOA — post 221064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگوهای احتمالی اروپا با طالبان؛ اخراج مهاجران افغان از آلمان و چالش‌های حقوقی و سیاسی آن
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221063
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221063_1781740341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا اعلام کرد که تفاهم‌نامه با جمهوری اسلامی را در کاخ ورسای امضا کرده است. کاخ سفید پیشتر چهارشنبه عصر به وقت واشنگتن اعلام کرد که آقای ترامپ یادداشت تفاهم میان آمریکا و جمهوری اسلامی برای پایان دادن به درگیری‌‌های نظامی را به‌صورت الکترونیکی امضا کرد.
+
+پیشتر نیز یک خبرنگار بلومبرگ به نقل از منابع خود گفت که دونالد ترامپ در حالی که شام را با امانوئل مکرون، رئيس جمهوری فرانسه در کاخ ورسای می‌گذارند، این توافق را امضا کرد.
+
+سایت‌های خبری حکومتی در ایران نیز به نقل از سخنگوی وزارت امور خارجه رژیم می‌گویند که مسعود پزشکیان، رئيس‌جمهوری اسلامی، از طرف حکومت ایران این توافق را امضا کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161966.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221062
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نگاهی به مفاد تفاهمنامه بین دولت پرزیدنت ترامپ و جمهوری اسلامی ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺خبرنگاران بلومبرگ و آکسیوس: دونالد ترامپ تفاهم‌نامه با جمهوری اسلامی را الکترونیکی امضا کرد
+
+▪️خبرنگاران خبرگزاری بلومبرگ و آکسیوس چهارشنبه عصر به وقت واشنگتن گزارش دادند که یادداشت تفاهم میان آمریکا و جمهوری اسلامی برای پایان دادن به درگیری‌‌های نظامی، به‌صورت الکترونیکی ساعاتی قبل امضا شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161966.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تردید در برگزاری مراسم رسمی امضای تفاهمنامه در سوئیس
+
+🔻پس از آن که کاخ سفید و وزارت خارجه ایران از امضای تفاهمنامه میان مسعود پزشکیان و دونالد ترامپ خبر دادند، به نظر می‌رسد برگزاری مراسم تشریفات رسمی برای امضای این سند که اعلام شده بود روز جمعه در سوئیس برگزار شود، لغو شده یا دست کم در زمان اعلام شده برگزار نخواهد شد.
+
+ساعتی قبل اسماعیل بقایی، سخنگوی وزارت خارجه ایران ضمن توضیحاتی درباره متن منتشر شده و امضای روسای جمهور ایران و آمریکا، تلویحا گفت که تهران تمایل خاصی برای مراسم سوئیس ندارد.
+
+خبرگزاری دولتی ایرنا درباره امضای آقایان پزشکیان و ترامپ و به نقل از آقای بقایی نوشت: «وقتی متن به امضای بالاترین مقام‌های دو کشور برسد، قاعدتا نقض آن هزینه‌های بیشتری دارد و ما با توجه به تجربه‌هایی که داریم ترجیح دادیم که این اتفاق بیافتد. ضمن اینکه تشخیص دادیم برگزاری مراسم هم چندان جایی [در برنامه ما] ندارد.»
+
+https://bbc.in/4vdn6Wl
+@BBCPersian
+</div>
+
+## BBCPersian — post 284196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کاخ سفید متن یادداشت تفاهم ایران و آمریکا را منتشر کرد. این سند که به طور الکترونیکی امضا شده است، قرار است روز جمعه در مراسمی در سوئیس به امضای مقامات ایرانی و آمریکایی برسد. متن منتشر شده ۱۴ بند دارد و مقامات آمریکایی توضیحاتی در کنار برخی موارد نوشتند.
+
+آلبوم را ورق بزنید و مفاد این تفاهمنامه را بخوانید و توضیخات بیشتر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید:
+
+https://bbc.in/4vdkMP7
+📷Getty Images/ Anadolu via Getty Images/ Sygma via Getty Images/ Bloomberg via Getty Images
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کاخ سفید متن یادداشت تفاهم ایران و آمریکا را منتشر کرد. این سند که به طور الکترونیکی امضا شده است، قرار است روز جمعه در مراسمی در سوئیس به امضای مقامات ایرانی و آمریکایی برسد. متن منتشر شده ۱۴ بند دارد و مقامات آمریکایی توضیحاتی در کنار برخی موارد نوشتند.
+
+توضیحات تفاهمنامه را در لینک زیر بخوانید:
+
+https://bbc.in/4xCgJxh
+@BBCPersian
+</div>
+
+## BBCPersian — post 284194
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284194_1781740341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس جمهور آمریکا که چهارشنبه شب در کاخ الیزه میهمان ضیافت شام با امانوئل مکرون بود نسخه نهایی و منتشر شده تفاهمنامه با ایران را امضاء کرده است و از طرف ایران هم همتای او، مسعود پزشکیان این سند را امضاء کرده است.
+
+یک مقام کاخ سفید در همین رابطه عصر چهارشنبه به خبرنگاران گفت: «تفاهم نامه روز یکشنبه به صورت دیجیتال توسط جی دی ونس، معاون رئیس جمهور آمریکا، و محمدباقر قالیباف، رئیس مجلس شورای اسلامی، امضا شد و دونالد ترامپ، رئیس جمهور آمریکا، نیز به عنوان شاهد در آن حضور داشت. اکنون این تفاهم نامه به امضای دونالد ترامپ و مسعود پزشکیان، رئیس جمهور ایران، نیز رسیده است.»
+
+📷AFP via Getty Images/ ٍEPA
+https://bbc.in/4xCfJcv
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻قالیباف: به میانجی گفتیم موضوع لبنان و پول‌های بلوکه شده از محورهای مذاکرات است
+
+🔻محمدباقر قالیباف، رئیس مجلس ایران و مذاکره‌کننده ارشد ایران در مذاکرات ایران با آمریکا در یک مصاحبه مفصل با صدا و سیما جزئیاتی از مذاکرات ایران و آمریکا در اسلام‌آباد پاکستان و روندی که به تفاهمنامه منجر شد را شرح داد.
+
+او درباره لحاظ کردن لبنان به محور مذاکرات گفت: «وقتی اظهارات ونس را هنگام سوار شدن به هواپیما دیدم که درباره لبنان صحبت کرده بود، پیش از پرواز و در فرودگاه توئیت زدم که تا وضعیت لبنان روشن نشود، مذاکره را آغاز نخواهیم کرد و اگر وارد مذاکره شویم، پیش از هر موضوعی باید درباره لبنان صحبت شود.»
+
+او همچنین می‌گوید که داوطلب حضور در تیم مذاکره کننده نبوده و حتی برای اینکار «کراهت هم داشته است.»
+
+آقای قالیباف درباره علت این مساله شامگاه چهارشنبه در یک مصاحبه با صدا و سیما گفت: «یکی از دلایل من برای عدم پذیرش این مسئولیت این بود که ترامپ طراح، آمر و ناظر ترور حاج قاسم است. سردار سلیمانی برای همه جهان اسلام عزیز بود اما حتما برای شخص من متفاوت بود. شما فکر می‌کنید این که بخواهم با چنین فردی، متنی را جمع کنم، کار راحتی است؟»
+
+او همچنین گفت: «بدبینی و بی‌اعتمادی من به آمریکا از همه بیشتر است.»
+
+متن کامل خبر در لینک زیر:
+https://bbc.in/4vhrXFR
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284192
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284192_1781740342.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسماعیل بقایی، سخنگوی وزارت خارجه ایران در گفت‌وگو با خبرنگاران درباره تفاهمنامه امضاء شده میان ایران و آمریکا توضیحات مفصلی داده و چهارشنبه شب گفته است: «الان که با شما صحبت می‌کنم احتمالاً متن تفاهم نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد.»
+
+به گفته سخنگوی وزارت خارجه ایران: «به این نتیجه رسیدیم متن یادداشت تفاهم به امضا روسای جمهور ایران و آمریکا برسد و برگزاری مراسم روز جمعه هنوز در دستور کار است اما باید ببینیم ظرف ساعات آینده به چه نتیجه‌ای می‌رسیم. به هر حال باید فاز بعدی مذاکرات آغاز شود. این نشست در سوئیس هنوز در دستور کار است که برگزار شود. باید ببینیم که در ساعات آینده طرفین از طریق میانجی‌ها به نتیجه‌ای می‌رسند.»
+
+آقای بقایی و همچنین مقام‌های در کاخ‌سفید تایید کرده‌اند که همزمان با امضای روسای‌جمهور در زیر تفاهمنامه، این سند لازم الاجرا شده است.
+
+متن کامل خبر در لینک زیر:
+
+📷LightRocket via Getty Images
+https://bbc.in/4epTP3r
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه! 
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی 
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان 
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان 
+💸 هرچی بزرگ‌تر…
+</div>
+
+## Dirty_Kids — post 392451
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392451_1781740343.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه!
+
+
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی
+
+
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان
+
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان
+
+
+💸 هرچی بزرگ‌تر بازی کنی، جایزت بزرگ‌تره!
+
+🥅همین حالا پیش بینیتو ثبت کن
+💖
+https://fido874vt.click
+https://fido874vt.click
+
+👆
+👆
+👆
+👆
+👆
+(ورود با وی-پی-ان غیر اروپایی)
+❌
+A27
+
+📲کانال تلگرام 
+👇
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 392450
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392450_1781740344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه فوتبال نمیبینی شاید وقتش رسیده پیگیری کنی...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392446
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392446_1781740344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنده یاد مانوکیان خدا بخشیان ...
+
+یک السیس ایرانی وارد بازی میشه کودتا میکنه و بعد
+به فروپاشی نظام کمک میکنه و بعد قدرت انقالی رو
+به یک شخص دیگ واگذار میکنه ... )
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لاریجانی بی خود ترور نشد
+با وجود لاریجانی قالیباف نمیتونست اینجور وسط معرکه بیاد،در واقع لاریجانی به نظر گروه دوم از حاکمان بود که ترامپ گفت چون باما راه نیومدن کشته شدن و حالا با گروه سوم یعنی قالیباف سروکار داریم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسانی که فرزندان ایران کشتند مولایشان حسین بود، کصمادر هر کسی که در این روزها برای حسین عزاداری می‌کند
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بانو Comatozze، رنک اول پورن هاب به صورت اختصاصی از ایرانیا تشکر کرده!
+
+اون گفته اکثر مخاطبانش ایرانین و هر روز کلی پیام محبت آمیز ازشون دریافت میکنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392439
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392439_1781740345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید | آکسیوس:
+ایران و آمریکا تفاهمنامه رو از راه دور امضا کردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392438
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392438_1781740346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان ببخشید وسط فوتبال مزاحم شدم،
+
+ممدباقر (شغال طرقبه) خونخواهی موشعلی رو حواله داد به آزادی قدس و گفت ۱۰۰ نتانیاهو بند کفش موشعلی ما هم نمی‌شه،
+
+این در حالیه که موشعلی هزارپدر نعلین می‌پوشید و نمی‌دونست بند کفش اصلا چی چی هست.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392437
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392437_1781740348.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقام رهبرتونم رفت پيش انتقام قاسم و هنیه و سنوار و نصراله 😁
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 01:17
 ---
 
