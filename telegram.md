@@ -7,6 +7,848 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 08:35
+---
+
+## VahidOOnLine — post 245966
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245966_1781672757.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۲۷ خرداد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245965
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245965_1781672759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنی دانون، سفیر اسرائیل در سازمان ملل، با بازنشر گزارشی از شبکه ۱۴ اسرائیل درباره کشتار دی‌ماه، در ایکس نوشت: «قربانیان سرکوب در ایران و خانواده‌های آن‌ها شایسته حقیقت، شفافیت و پاسخگویی هستند. جامعه بین‌المللی نباید در برابر این وضعیت بی‌تفاوت بماند.»
+او گفت: «تاریخ حکومت ایران با رنج مردم خود نوشته شده است؛ اتاق‌های شکنجه، گورهای دسته‌جمعی، ناپدیدسازی اجباری و خانواده‌هایی که بدون پاسخ رها شده‌اند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سعید آجرلو، عضو تیم رسانه‌ای هیئت مذاکره‌کننده جمهوری اسلامی، با اشاره به منتشر نشدن متن یادداشت تفاهم با آمریکا گفت طرف آمریکایی از هدف و نیت مذاکره‌کنندگان ایرانی در به‌کار بردن برخی واژه‌ها و عبارات در متن آگاه نیست و به همین دلیل نباید این موارد علنی شود.
+او با اشاره به انتقادها از برخی واژه‌های به‌کاررفته در متن گفت: «آمریکا مراد و قصد ما را از آوردن این کلمات نمی‌داند و نیتمان را نباید افشا کنیم.»
+آجرلو همچنین گفت پس از روز جمعه امکان صحبت شفاف‌تر درباره متن تفاهم‌نامه وجود خواهد داشت و مدعی شد مقایسه نسخه‌های مختلف متن نشان می‌دهد آخرین نسخه تفاهم‌نامه نسبت به متن‌های اولیه، برای جمهوری اسلامی شرایط بهتری دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال نروژ در نخستین دیدار خود در جام جهانی ۲۰۲۶، موفق شد با نتیجه ۴ بر ۱ تیم ملی عراق را در ورزشگاه شهر بوستون آمریکا شکست دهد. این مسابقه از آن جهت اهمیت ویژه‌ای داشت که نروژ پس از ۲۸ سال و عراق پس از ۴ دهه انتظار بار دیگر در این تورنمنت بزرگ حضور یافته بودند.
+به گزارش رویترز، ارلینگ هالند، ستاره ۲۵ ساله نروژ و آقای گل فصل گذشته لیگ برتر انگلیس که به او لقب «ترمیناتور» داده‌اند، قفل دروازه‌ها را در دقیقه ۲۸ باز کرد. اگرچه ایمن حسین، مهاجم ۳۰ ساله عراق در دقیقه ۳۹ بازی را به تساوی کشاند، اما هالند تنها سه دقیقه بعد گل دوم خود و نروژ را به ثمر رساند. در نیمه دوم نیز لئو اوستیگارد در دقیقه ۷۶ و کریستین ثورستود در وقت‌های تلف‌شده، پیروزی قاطع نروژ را کامل کردند. در دیدارهای بعدی این گروه که روز دوشنبه ۱ تیر برگزار می‌شود، عراق به مصاف فرانسه می‌رود و نروژ برابر سنگال صف‌آرایی خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245962
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245962_1781672759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان‌بی‌سی نیوز به نقل از یک مقام آمریکایی گزارش داد از زمان امضای یادداشت تفاهم جمهوری اسلامی و آمریکا، سپاه هر شب چندین پهپاد را به سمت کشتی‌های تجاری در تنگه هرمز پرتاب کرده، اما نیروهای آمریکا آنها را رهگیری کرده‌اند.
+این مقام گفت ارتش آمریکا همچنان برای حمایت از عبور ایمن کشتی‌ها از تنگه هرمز، با شرکت‌های کشتیرانی تجاری هماهنگی می‌کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245961
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245961_1781672760.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علیرضا فغانی، داور بین‌المللی فوتبال، با قضاوت دیدار فرانسه و سنگال در جام جهانی ۲۰۲۶، به یکی از نخستین داوران تاریخ فوتبال مردان تبدیل شد که در چهار دوره جام جهانی حضور داشته‌اند.
+این داور باسابقه که در جام‌های جهانی ۲۰۱۴، ۲۰۱۸ و ۲۰۲۲ نیز حضور داشت، در سال ۲۰۱۴ به عنوان داور چهارم و در دو دوره بعدی به عنوان داور وسط در این رقابت‌ها فعالیت کرد. فغانی این بار پس از مهاجرت به استرالیا و خروج از فهرست داوران بین‌المللی ایران، به عنوان نماینده فدراسیون فوتبال استرالیا دیدار فرانسه و سنگال را قضاوت کرد.
+این رکورد تاریخی در حالی ثبت شد که قوه قضاییه جمهوری اسلامی چند ماه پیش از توقیف اموال علیرضا فغانی به دلیل مخالفت با سیاست‌های حکومت خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245960
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245960_1781672761.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری بلومبرگ در گزارشی اختصاصی، متن پیش‌نویس یک یادداشت تفاهم ۱۴ ماده‌ای میان ایالات متحده و ایران را منتشر کرد. بر اساس این گزارش، این تفاهم‌نامه مسیر را برای یک دوره ۶۰ روزه گفتگو با هدف پایان دادن به جنگ و اعمال محدودیت‌های جدید بر برنامه هسته‌ای ایران هموار می‌کند.
+در بند چهاردهم این پیش‌نویس آمده است که ایران و آمریکا سازوکاری برای نظارت بر اجرای توافق نهایی و تعهدات آینده ایجاد خواهند کرد و توافق نهایی نیز از طریق یک قطعنامه الزام‌آور شورای امنیت سازمان ملل تایید خواهد شد.
+بر اساس این سند، تهران و واشنگتن همچنین متعهد می‌شوند ظرف ۶۰ روز برای دستیابی به توافق نهایی مذاکره کنند و در این مدت وضعیت کنونی برنامه هسته‌ای ایران و تحریم‌های آمریکا حفظ شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245959
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245959_1781672762.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش ان‌بی‌سی، حکومت ایران پس از اعلام یادداشت تفاهم با آمریکا، همچنان تعداد «زیادی» پهپاد به سمت شناورهای تجاری در تنگه هرمز پرتاب کرده است.
+شبکه ان‌بی‌سی به نقل از یک مقام آمریکایی گزارش داده که سپاه پاسداران پهپادهایی پرتاب کرده که آمریکا توانسته آنها را پیش از آنکه تهدیدی برای شناورهای تجاری، کشتی‌های نظامی و خدمه حاضر در منطقه ایجاد کنند، رهگیری کند.
+بر اساس این گزارش، سپاه پاسداران از زمان امضای «الکترونیکی» یادداشت تفاهم در روز یکشنبه، هر شب اقدام به پرتاب پهپاد کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن قاصد، مستندساز و فعال محیط زیست، با انتشار ویدیویی از ورود دسته بزرگی از فلامینگوها به دریاچه ارومیه نوشت: «این تصاویر همراه با گریه ثبت شد، با گریه تدوین شد و با گریه هم منتشر می‌شود؛ نه از غم، بلکه گریه‌هایی از جنس شوق، امید و آرزو. به خانه خوش آمدید ای غریب‌هایی که هیچ‌وقت از یادمان نرفتید. دریاچه وان ترکیه هرچند پرآب و مناسب زیستن برای شما بود، اما هرگز وطن نبود. شما برگشتید تا بگویید هنوز مادری زنده است به نام دریاچه ارومیه.»
+افزایش سطح آب دریاچه ارومیه در سال جاری شرایط مناسب‌تری را برای بازگشت پرندگان مهاجر فراهم کرده است. پیش از این نیز گزارش‌هایی از لانه‌گذاری کاکایی‌ها در جزایر حفاظت‌شده این دریاچه منتشر شده بود.
+تصاویر ثبت‌شده توسط محسن قاصد یکی از پرشمارترین حضورهای فلامینگوها در سال‌های اخیر را نشان می‌دهد؛ صحنه‌ای که برای بسیاری از دوستداران محیط زیست یادآور روزهای پررونق نگین فیروزه‌ای آذربایجان است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245957
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245957_1781672762.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بلومبرگ سه‌شنبه ۲۶ خرداد متن پیش‌نویس ۱۴ ماده‌ای تفاهم‌نامه میان ایران و آمریکا را منتشر کرد؛ سندی که بر اساس آن، دو کشور قرار است ۲۹ خرداد (۱۹ ژوئن) در سوئیس آن را به امضا برسانند.
+بر اساس این پیش‌نویس، تهران، واشنگتن و متحدان دو طرف با امضای تفاهم‌نامه «پایان فوری و دائمی جنگ در همه جبهه‌ها، از جمله لبنان» را اعلام می‌کنند و متعهد می‌شوند از هرگونه اقدام خصمانه، تهدید یا استفاده از زور علیه یکدیگر خودداری کنند.
+در این سند همچنین آمده است که ایران و آمریکا ظرف ۶۰ روز برای دستیابی به توافق نهایی مذاکره خواهند کرد. رفع محاصره دریایی ایران، ازسرگیری صادرات نفت، آزادسازی دارایی‌های مسدودشده ایران، لغو تدریجی تحریم‌ها و تاکید جمهوری اسلامی بر عدم تولید سلاح هسته‌ای از دیگر مفاد این پیش‌نویس است.
+بر اساس متن منتشرشده، توافق نهایی نیز با قطعنامه الزام‌آور شورای امنیت سازمان ملل تایید خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245956
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245956_1781672763.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیانی اینفانتینو، رییس فیفا، در صفحه اینستاگرام خود ویدیویی منتشر کرده است که لحظاتی صمیمی و خوش را در کنار مهدی مهدوی‌کیا، ستاره پیشین تیم ملی فوتبال ایران، نشان می‌دهد.
+او در توضیح این ویدیو، به حضور مهدوی‌کیا به‌عنوان نماینده ایران در صحنه جهانی و همچنین گل خاطره‌انگیز او در جام جهانی ۱۹۹۸ اشاره کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در اقدامی بی‌سابقه، مایک هاکبی، سفیر ایالات متحده در اسرائیل، به اظهارات دونالد ترامپ مبنی بر اینکه «اگر آمریکا نبود اسرائیل وجود نداشت» واکنش نشان داد و بر پیوند بنیادین و متقابل میان دو کشور تاکید کرد.
+سفیر ایالات متحده در اسرائیل، مایک هاکبی، سه‌شنبه ۲۶ خرداد در مراسم افتتاحیه کنفرانس بین‌المللی «میراث اسرائیلی در یهودا و سامره» که در هرودیون و با رهبری وزارت میراث و وزیر آمیحای الیاهو برگزار شد، سخنرانی کرد. او در این مراسم بر اهمیت اسرائیل و میراث یهودی برای ایالات متحده تأکید کرد.
+هاکبی خطاب به وزیر اسرائیلی اعلام کرد که وظیفه او یادآوری اهمیت اسرائیل برای ایالات متحده است و گفت: «این بدون شک میراث شماست، اما وزیر محترم، این میراث ایالات متحده نیز هست.» سفیر آمریکا در اسرائیل گفت: «اگر یهودیان به آمریکا نیامده بودند و بدون اسرائیل و پایه‌های یهودی، آمریکا اصلا وجود نمی‌داشت؛ ما کل موجودیت خود را مدیون اتفاقاتی هستیم که در این سرزمین رخ داده است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343052
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343052_1781672765.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"If you believe that Jesus is the son of God, rose from the dead on the third day, there are a lot of progressives who will say you're a crazy person."
+
+VP JD Vance took aim at what he called "progressive atheistic culture," arguing that many on the left dismiss traditional religious beliefs while embracing ideas he considers far less believable.
+
+"Actually, you believe something that's far crazier and clearly a violation of nature." @Gutfeldfox
+</div>
+
+## FoxNewsTwitter — post 343051
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343051_1781672767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"What really does bother me is that they don't show gratitude for the United States of America."
+
+VP JD Vance blasted Democrats serving in public office during an appearance on @Gutfeldfox, arguing that too many spend their time criticizing the country rather than appreciating it.
+
+Vance said he was raised to love America and be grateful for the opportunities it provides, calling patriotism a core value that shaped his upbringing.
+
+He contrasted that outlook with what he sees from many on the left, saying a lack of appreciation for the country has become increasingly common in American politics.
+</div>
+
+## FoxNewsTwitter — post 343050
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343050_1781672769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Honestly Greg, I expected them to be absolutely vicious, and they were only a little bit vicious."
+
+VP JD Vance is looking back on his recent appearance on The View and says it went better than he expected.
+
+While appearing on @Gutfeldfox, Vance joked that "it wasn't as bad as I thought it was gonna be" despite sparring with the show's co-hosts over immigration, race, and his past "childless cat ladies" comments.
+
+He even revealed what happened once the cameras stopped rolling: "Joy Behar even said during the break, not joking, she said, 'You know what, you're pretty good for a Republican.'"
+</div>
+
+## FoxNewsTwitter — post 343049
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343049_1781672771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Honestly Greg, I expected them to be absolutely vicious, and they were only a little bit vicious."
+
+VP JD Vance is looking back on his recent appearance on The View and says it went better than he expected.
+
+While appearing on Gutfeldfox, Vance joked that "it wasn't as bad as I thought it was gonna be" despite sparring with the show's co-hosts over immigration, race, and his past "childless cat ladies" comments.
+
+He even revealed what happened once the cameras stopped rolling: "Joy Behar even said during the break, not joking, she said, 'You know what, you're pretty good for a Republican.'"
+</div>
+
+## FoxNewsTwitter — post 343048
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343048_1781672773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Donald Trump did exactly what he came to do."
+
+VP JD Vance touted the administration's Iran strategy during an appearance on @Gutfeldfox, arguing that the U.S. achieved its core objectives and now holds the leverage moving forward.
+
+"We accomplished what we set out to accomplish and now we have, as the president says, all the cards."
+
+Vance pointed to the destruction of Iran's nuclear infrastructure and the ongoing negotiations with Tehran, saying any future economic benefits for Iran will depend entirely on whether it follows through on its commitments.
+</div>
+
+## VahidOnline — post 76437
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76437_1781672776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش ان‌بی‌سی، حکومت ایران پس از اعلام یادداشت تفاهم با آمریکا، همچنان تعداد «زیادی» پهپاد به سمت شناورهای تجاری در تنگه هرمز پرتاب کرده است.
+شبکه ان‌بی‌سی به نقل از یک مقام آمریکایی گزارش داده که سپاه پاسداران پهپادهایی پرتاب کرده که آمریکا توانسته آنها را پیش از آنکه تهدیدی برای شناورهای تجاری، کشتی‌های نظامی و خدمه حاضر در منطقه ایجاد کنند، رهگیری کند.
+بر اساس این گزارش، سپاه پاسداران از زمان امضای «الکترونیکی» یادداشت تفاهم در روز یکشنبه، هر شب اقدام به پرتاب پهپاد کرده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 342799
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342799_1781672776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۲۷ خرداد
+</div>
+
+## IranIntlTV — post 342798
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342798_1781672778.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنی دانون، سفیر اسرائیل در سازمان ملل، با بازنشر گزارشی از شبکه ۱۴ اسرائیل درباره کشتار دی‌ماه، در ایکس نوشت: «قربانیان سرکوب در ایران و خانواده‌های آن‌ها شایسته حقیقت، شفافیت و پاسخگویی هستند. جامعه بین‌المللی نباید در برابر این وضعیت بی‌تفاوت بماند.»
+او گفت: «تاریخ حکومت ایران با رنج مردم خود نوشته شده است؛ اتاق‌های شکنجه، گورهای دسته‌جمعی، ناپدیدسازی اجباری و خانواده‌هایی که بدون پاسخ رها شده‌اند.»
+
+https://iranintl.com/202606170389
+</div>
+
+## IranIntlTV — post 342797
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342797_1781672779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال آرژانتین، قهرمان دوره گذشته جام جهانی در اولین دیدار خود در جام جهانی ۲۰۲۶ با نتیجه ۳-۰ الجزایر را شکست داد.
+
+🔹در این بازی لیونل مسی هر سه گل آلبی سلسته را به ثمر رساند و تعداد گل‌هایش در ادوار جام جهانی را به عدد ۱۶ رساند و به رکورد میروسلاو کلوزه، بهترین گلزن تاریخ جام جهانی رسید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342796
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342796_1781672780.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارلینگ هالند در نخستین حضورش در جام جهانی، در دقایق ۲۹ و ۴۳ با زدن دو گل در نیمه نخست، نقش مهمی در پیروزی ۴ بر ۱ نروژ مقابل عراق در نخستین دیدار گروه I برای هر دو تیم داشت.
+در این مسابقه که سه‌شنبه در فاکسبورو، ایالت ماساچوست برگزار شد، ایمن حسین در دقیقه ۳۹ برای عراق گل زد. لئو اوستیگارد از تیم نروژ که به‌عنوان بازیکن تعویضی وارد زمین شده بود، در دقیقه ۷۶ نتیجه را ۳ بر ۱ کرد. گل چهارم نروژ نیز در ششمین دقیقه وقت‌های تلف‌شده نیمه دوم با گل به خودی ایمن حسین رقم خورد.
+
+https://iranintl.com/202606178155
+</div>
+
+## IranIntlTV — post 342795
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342795_1781672780.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان‌بی‌سی نیوز به نقل از یک مقام آمریکایی گزارش داد از زمان امضای یادداشت تفاهم جمهوری اسلامی و آمریکا، سپاه هر شب چندین پهپاد را به سمت کشتی‌های تجاری در تنگه هرمز پرتاب کرده، اما نیروهای آمریکا آنها را رهگیری کرده‌اند.
+این مقام گفت ارتش آمریکا همچنان برای حمایت از عبور ایمن کشتی‌ها از تنگه هرمز، با شرکت‌های کشتیرانی تجاری هماهنگی می‌کند.
+
+https://iranintl.com/202606172267
+</div>
+
+## IranIntlTV — post 342794
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342794_1781672781.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیانی اینفانتینو، رییس فیفا، در صفحه اینستاگرام خود ویدیویی منتشر کرده است که لحظاتی صمیمی و خوش را در کنار مهدی مهدوی‌کیا، ستاره پیشین تیم ملی فوتبال ایران، نشان می‌دهد.
+او در توضیح این ویدیو، به حضور مهدوی‌کیا به‌عنوان نماینده ایران در صحنه جهانی و همچنین گل خاطره‌انگیز او در جام جهانی ۱۹۹۸ اشاره کرده است.
+</div>
+
+## FarsiVOA — post 220986
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220986_1781672783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد قطر همزمان با آمادگی برای افزایش تولید و صادرات گاز طبیعی مایع پس از بازگشایی احتمالی تنگه هرمز، شماری از کشتی‌های خود را به خاورمیانه بازمی‌گرداند.
+
+بر اساس داده‌های ردیابی کشتی‌ها، دست‌کم چهار کشتی خالی حامل گاز طبیعی مایع متعلق به قطر پس از مدتی توقف یا حرکت در مسیرهای دیگر، به سوی منطقه بازگشته‌اند و یک کشتی اجاره‌شده دیگر نیز در راه است.
+
+همه این کشتی‌ها مجتمع راس لفان، بزرگ‌ترین مرکز صادرات گاز طبیعی مایع جهان، را به‌عنوان مقصد بعدی ثبت کرده‌اند.
+
+این اقدام پس از گزارشی دیگر از بلومبرگ صورت می‌گیرد که بر اساس آن، قطر قصد دارد پس از بازگشت عبور ایمن از هرمز، ظرف یک ماه تولید را به حدود ۵۰ درصد ظرفیت و تا دو ماه به نزدیک ۸۰ درصد برساند.
+
+بازگشت صادرات قطر می‌تواند بخشی از فشار کمبود جهانی عرضه را کاهش دهد، هرچند قیمت‌ها در اروپا و آسیا همچنان بالاتر از سطح پیش از جنگ مانده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یادداشت رئيس‌جمهوری آمریکا تولید مهمات جنگی را سرعت می‌بخشد
+
+▪️بر اساس یک یادداشت ریاست‌جمهوری آمریکا که روز سه‌شنبه منتشر شد، رئیس‌جمهوری ایالات متحده، دونالد ترامپ، برای رفع محدودیت‌های موجود در تولید مهمات، به «قانون تولید دفاعی» استناد کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161816.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اوکراین و توافق واشنگتن با جمهوری اسلامی در کانون توجه نشست سران گروه هفت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220983
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220983_1781672783.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نمایشگاه سئول فود ۲۰۲۶ با حضور بیش از ۱۸۰۰ شرکت از ۴۹ کشور برگزار شد. آمریکا به‌عنوان مهمان ویژه، همزمان با ۲۵۰ سالگی استقلال خود، محصولات غذایی و کشاورزی‌اش را به نمایش گذاشت؛ رویدادی برای نمایش تنوع، نوآوری و همکاری‌های بین‌المللی.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220982
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220982_1781672785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️قیمت نفت خام روز سه‌شنبه بیش از ۵ درصد کاهش یافت؛ به این ترتیب کاهش قیمت‌ نفت در این هفته ادامه یافت. کاهش قیمت نفت با ادامه خوش‌بینی‌ها در مورد توافق اولیه آمریکا و جمهوری اسلامی صورت می‌گیرد. این توافق اولیه مسیر مذاکرات دشوارتر برای رسیدن به یک توافق هسته‌ای را فراهم می‌کند. رویترز گزارش داد که قیمت نفت خام برنت ۴ دلار و ۲۱ سنت (۵.۱ درصد) کاهش یافت و به قیمت ۷۸ دلار و ۹۶ سنت رسید. دونالد ترامپ، رئیس‌جمهوری آمریکا پیشتر وعده داده بود که با رسیدن به یک توافق، قیمت‌ها به سرعت پایین می‌آید.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هشدار کارزار «سه‌شنبه‌های نه به اعدام» به افزایش تعداد اعدام‌ها در ایران توسط جمهوری‌ اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺مخالفت سناتور ریک اسکات با آزادسازی منابع رژیم ایران: اگر پولی از آنها داریم باید به خاطر «خشم حماسی» و به سرعقل درآوردنشان بگیریم
+
+▪️ریک اسکات با آزادسازی دارایی‌های مسدود شده مخالف است و می‌گوید این پول باید برای پرداخت هزینه عملیات خشم حماسی استفاده شود
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161815.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تمدید مأموریت یوناما؛ افغانستان میان بحران بشردوستانه و چالش‌های منطقه‌ای
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220978
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220978_1781672785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکاف در بدنه جمهوری اسلامی بر سر توافق با آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220977
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220977_1781672786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نشست گروه هفت؛ مهار انحصار پکن و راهبرد ترامپ در ثبات بازارهای مالی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220976
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سناتور گراهام می‌گوید نسبت به مذاکرات پیش‌رو با جمهوری اسلامی بدبین است اما ارزش امتحان کردن را دارد
+
+▪️سناتور جمهوری‌خواه آمریکا، لیندزی گراهام، گفت نسبت به مذاکرات آینده آمریکا با جمهوری اسلامی تا حد زیادی بدبین است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161814.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ادامه اعدام‌های سیاسی در ایران با اتهام‌های مبهم «محاربه» و «افساد فی‌الارض»؛ گفت‌وگو با شیوا محبوبی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220974
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220974_1781672788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شب فوتبالی پاریس؛ تماشای نبرد فرانسه و سنگال از کافه‌های شانزلیزه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220973
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220973_1781672789.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بستن کافه‌ها و مصادره اموال مخالفان حکومت وجاهت قانونی دارد؟ گفت‌وگو با سینا یوسفی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220972
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220972_1781672790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت جنگ روز سه‌شنبه اعلام کرد که «ستاد فرماندهی اقیانوس هند - آرام آمریکا» به‌طور رسمی نام خود را به «ستاد فرماندهی اقیانوس آرام آمریکا» باز گرداند.
+
+این ستاد فرماندهی در اول ژانویه ۱۹۴۷ با دستور رئیس جمهوری آمریکا، هری ترومن تأسیس شد و قدیمی‌ترین و بزرگترین ستاد فرماندهی‌ رزمی متحد ایالات متحده است.
+
+مقامات گفتند که بازگشت به نام «ستاد فرماندهی اقیانوس آرام آمریکا» «ریشه‌های عمیق تاریخی این فرماندهی را گرامی می‌دارد و حس غرور و روحیه جمعی را در میان کسانی که در اقیانوس آرام خدمت می‌کنند، تقویت» می‌کند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بازتاب دیپلماسی ترامپ و چالش‌های اقتصادی «گروه هفت» در رسانه‌های جهان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220970
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220970_1781672791.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️توافق در آستانه انتشار؛ واکنش‌ها در کنگره آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220969
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220969_1781672792.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ادعادی «وحدت» جمهوری اسلامی در سایه اعدام معترضان چقدر حقیقت دارد؟ گفت‌وگو با مهرداد درویش‌پور
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دکترین تام باراک برای عراق: توسعه، ثبات و پایان نفوذ جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220967
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220967_1781672793.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جمع‌آوری پرچم شیروخورشید در ورزشگاه؛ اجرای قانون فیفا یا محدودیت؟ گفت‌وگو با محمد اولیایی فرد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17314
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17314_1781672795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برزیل 100 موشک دوش پرتاب استینگر آمریکایی را خریداری کرد.
+
+آمریکا با فروش احتمالی 100 فروند موشک دوش‌پرتاب پدافندی FIM-92K استینگر به برزیل به ارزش تقریبی 330 میلیون دلار موافقت کرد.
+
+این قرارداد علاوه بر موشک‌ها، شامل سامانه‌های پرتاب، تجهیزات پشتیبانی، آموزش، خدمات فنی و پشتیبانی لجستیکی نیز خواهد بود.
+
+این موشک‌های دوش پرتاب قرار است جایگزین موشک های دوش پرتاب ایگلا ساخت شوروی ارتش برزیل شوند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17313
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17313_1781672795.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر 🌄
+TU-160 Blackjack
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158409
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158409_1781672797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سنای ایالات متحده برای نهمین بار به طرح دموکرات‌ها برای محدودکردن اختیارات دونالد ترامپ در زمینۀ جنگ رأی منفی داد.
+
+🔸سناتورهای دموکرات از زمان آغاز جنگ اسرائیل و آمریکا با ایران در نهم اسفندماه ۱۴۰۴ با ارائۀ ۹ طرح مختلف تلاش کرده‌اند که جلوی ادامۀ مشارکت ایالات متحده در جنگ با ایران را گرفته و آن‌را به موافقت کنگره منوط کنند.
+
+🔸در رأی‌گیری سه‌شنبه، طرحی که از سوی رافائل وارناک، سناتور جورجیا معرفی شده بود، با تنها یک‌رای اختلاف؛ ۴۸ به ۴۷ شکست خورد. در این رأی‌گیری ۵ سناتور شامل دو جمهوری‌خواه از جمله میچ مک‌کانِل، دو دموکرات و همینطور برنی سندرز، سناتور باسابقۀ مستقل شرکت نکردند.
+
+🔸رأی‌گیری تازه در حالی انجام شد که قانون‌گذاران آمریکایی منتظر هستند که دونالد ترامپ رئیس‌جمهور ایالات متحده جزئیات طرح توافق با ایران را با آنها در میان بگذارد.
+
+🔸به تازگی مجلس نمایندگان هم به لایحۀ مشابهی، رأی منفی داد.
+
+🔸حزب جمهوریخواه با اختلافی اندک، اکثریت هم دو مجلس کنگره را در اختیار دارد.
+@RadioFarda
+</div>
+
+## RadioFarda — post 158408
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158408_1781672797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸برخی منابع امنیتی از وقوع یک حملۀ پهپادی به یک اردوگاه گروه‌های کرد مخالف جمهوری اسلامی در شرق اربیل در اقلیم کردستان عراق خبر می‌دهند.
+
+🔸هنوز جزئیات بیشتری از این موضوع منتشر نشده است، اما طی هفته‌ها و ماه‌های گذشته، نیروهای مسلح جمهوری اسلامی به‌‌ویژه سپاه پاسداران بارها با پهپاد و موشک‌های بالستیک، مواضع شبه‌نظامیان کرد مخالف جمهوری اسلامی مستقر در کردستان عراق را هدف قرار داده‌اند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158407
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158407" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۲۷ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22774
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22774_1781672798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس:
+
+اگر ترامپ رهبر معظم ایران هم میشد، بازم دموکرات‌ها میگفتن که ترامپ جلوی ایران شکست خورده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22773
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22773_1781672799.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+
+✅اسپانسر لیگ انگلستان
+
+💰اولین سایت جهانی با امکان شارژ و برداشت با کارت بانکی
+
+◻️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
+📢
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## IranianMinds — post 22772
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22772_1781672800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای جام جهانی پیش بینی کنی؟!
+
+🔹پس نیاز داری به یه سایت بین المللی و معتبر
+🔹
+
+
+⛔دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+⭐دارای لایسنس و مجوز anjuan
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت ea26:
+👇
+
+✅https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## BBCPersian — post 284086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+ران بیشاپ می‌دانست که دروغ می‌گوید.
+
+او ۱۴ ساله بود و در برابر قاضی به‌عنوان شاهد اصلی در یک محاکمه قتل ایستاده بود. این پرونده مربوط به سه نوجوان متهم به قتل بهترین دوست او، دویت داکت، در نوامبر ۱۹۸۳ بود.
+
+آقای بیشاپ علیه آلفرد چستنات، اندرو استوارت و رنسوم واتکینز شهادت می‌داد. با شهادت سه شاهد دیگر، پرونده دادستانی مستحکم به‌ نظر می‌رسید. آقای بیشاپ می‌ترسید که اگر با آن‌ها مخالفت کند، چه اتفاقی خواهد افتاد.
+
+او به بی‌بی‌سی گفت: «اگر حقیقت را می‌گفتم، با همه‌شان مخالفت کرده بودم. سه شاهد گفته بودند که آن سه نفر مقصرند. و من فکر می‌کردم هیئت منصفه فکر می‌کند من دروغ می‌گویم.»
+
+دروغ‌هایی که آن روز در دادگاه بالتیمور گفته شد، به محکومیت سه نوجوان سیاه‌پوست به حبس ابد منجر شد.
+
+https://bbc.in/4eOhxYs
+📷 GettyImages/ Ron Bishop
+@BBCPersian
+</div>
+
+## BBCPersian — post 284085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 قیمت نفت اندکی افزایش یافت
+
+خبرگزاری رویترز گزارش کرده که قیمت نفت در معاملات اولیه روز چهارشنبه افزایش یافته است.
+
+به نوشته رویترز «سرمایه‌گذاران در حال ارزیابی این موضوع هستند که آیا جنگ علیه ایران واقعا پایان خواهد یافت و تنگه هرمز بازگشایی خواهد شد یا خیر.»
+
+قیمت نفت خام برنت با ۴۷ سنت افزایش به ۷۹/۴۳ دلار در هر بشکه رسید، در حالی که قیمت نفت وست تگزاس اینترمدیت آمریکا با ۴۸ سنت افزایش به ۷۶/۵۳ دلار در هر بشکه رسید.
+
+https://bbc.in/4ovVFoh
+@BBCPersian
+</div>
+
+## BBCPersian — post 284084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جام جهانی؛ ویزای جدید برای مهدی ترابی صادر شد
+
+پس از آن که گزارش شد مهدی ترابی، هافبک تیم ملی ایران، بعد از مسابقه برابر نیوزیلند مطلع شده که ویزای او برای ورود به خاک آمریکا یک بار اعتبار داشته و با بازگشت به کمپ تیم در تیخوآنا مکزیک، باطل خواهد شد، ساعتی قبل فدراسیون فوتبال ایران از صدور مجدد ویزا برای ترابی خبر داد.
+
+بنابر این گزارش، این بار ویزای ورود متعدد برای آقای ترابی صادر شده و او در مسابقات بعدی تیم ملی ایران مشکلی برای ورود و خروج از خاک آمریکا نخواهد داشت.
+
+ایران که روز گذشته در نخستین مسابقه خود طی یک مسابقه پر فراز و نشیب و متاثر از حواشی سیاسی، برابر نیوزیلند ۲-۲ مساوی کرد، در مسابقه دوم باید دوباره از تیخوآنا به لس‌آنجلس برود اما برای مسابقه آخر برابر مصر پرواز این تیم از مرز مکزیک به سیاتل در شمال کرانه غربی آمریکا، طولانی‌تر خواهد بود و اگر مانند مسابقه دیروز این تیم ناچار به ترک خاک آمریکا بلافاصله بعد از پایان دیدار با مصر باشد، سفر بازگشت انها از سیاتل به تیخوآنا خسته کننده‌تر از دو مسابقه اول خواهد بود.
+
+https://bbc.in/4vXHNFS
+@BBCPersian
+</div>
+
+## BBCPersian — post 284083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌ تیم‌های فوتبال آرژانتین و الجزایر از گروه جی در شهر کانزاس به مصاف هم رفتند که با برتری قدرتمندانه آرژانتین همراه بود. لیونل مسی، کاپیتان تیم فوتبال آژانتین با بازی در این مسابقه به رکورد حضور در پنج دوره از جام جهانی رسید و با زدن هر سه گل آرژانتین…
+</div>
+
+## BBCPersian — post 284082
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284082_1781672801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+تیم‌های فوتبال آرژانتین و الجزایر از گروه جی در شهر کانزاس به مصاف هم رفتند که با برتری قدرتمندانه آرژانتین همراه بود.
+
+لیونل مسی، کاپیتان تیم فوتبال آژانتین با بازی در این مسابقه به رکورد حضور در پنج دوره از جام جهانی رسید و با زدن هر سه گل آرژانتین به رکورد ۱۶ گل زده در کل دوره‌های حضورش در این رقابت‌ها رسید و همراه با میروسلاو کلوزه آلمانی بر جایگاه نخست نشست.
+
+در ابتدای این بازی ابتدا الجزایر بود که موفق به باز کردن دروازه آرژانتین در دقیقه ۹ شد اما کمک‌داور ویدیویی این گل را مردود اعلام کرد تا آرژانتین به مسابقه بازگردد و مسی در دقیقه ۱‍۷ اولین گل بازی را به ثمر رساند و نیمه اول با همین نتیجه پایان یافت.
+
+در نیمه دوم آرژانتین با چند تعویض سعی در کنترل بیشتر بازی گرفت و در دقیقه ۶۰ مسی مجددا موفق شد روی دفع ناقص توپ توسط دروازه‌بان الجزایر گلزنی کند.
+
+در دقیقه ۷۶ هم مجددا این فوق ستاره آرژانتینی گل دیدنی دیگری زد تا با هت‌تریک (هتریک) چهار دقیقه بعد تعویض شده و زمین را ترک کند.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 284081
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284081_1781672802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+وزارت دادگستری آمریکا روز سه‌شنبه اعلام کرد اف‌بی‌آی یک طرح برای حمله به رویداد یو‌اف‌سی که روز یکشنبه در محوطه مقابل کاخ‌سفید برگزار شد را خنثی کرده و پنج نفر را در ارتباط با این پرونده بازداشت کرده است.
+
+دادستان‌ها می‌گویند بخشی از این طرح شامل حمله به ساختمان‌های اطراف با پهپادهای حامل مواد منفجره و تیراندازی به «اشخاص مهم» بوده است.
+
+یکی از مظنونان هفته گذشته در ایالت اوهایو بازداشت شد. بازرسان پس از دسترسی به پیام‌های رمزگذاری شده او، به دیگر افراد دخیل در این طرح رسیدند. دادستان‌ها در اسناد قضایی گفته‌اند متهمان دیدگاه‌های «افراطی مذهبی و ضد دولتی» ابراز کرده بودند.
+
+بر اساس اسناد دادگاه، طراحان حمله قصد داشتند با استفاده از پهپادها موجب وحشت و فرار جمعیت شوند و سپس افراد را به سمت تیمی از تک تیراندازها هدایت کنند. همچنین گروهی دیگر قرار بود در مرحله دوم به دروازه‌های کاخ سفید یورش ببرند.
+
+حدود چهار هزار و ۳۰۰ نفر در این مراسم که فقط با دعوت ویژه امکان رفتن به آن وجود داشت و در محوطه جنوبی کاخ سفید برگزار شد حضور داشتند.
+
+https://bbc.in/4vUg9te
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 284080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌ خبرگزاری رویترز در خبری اختصاصی گزارش کرده که توافق با ایران شامل صندوقی ۳۰۰ میلیارد دلاری است؛ صندوقی که بیش از نیمی از منابع آن پیشاپیش تامین شده است. یک منبع آگاه به خبرگزاری رویترز گفته است که توافق چارچوبی میان آمریکا و ایران شامل ایجاد یک صندوق…
+</div>
+
+## BBCPersian — post 284079
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284079_1781672802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+خبرگزاری رویترز در خبری اختصاصی گزارش کرده که توافق با ایران شامل صندوقی ۳۰۰ میلیارد دلاری است؛ صندوقی که بیش از نیمی از منابع آن پیشاپیش تامین شده است.
+
+یک منبع آگاه به خبرگزاری رویترز گفته است که توافق چارچوبی میان آمریکا و ایران شامل ایجاد یک صندوق خصوصی ۳۰۰ میلیارد دلاری برای جذب سرمایه گذاری در ایران است و بیش از نیمی از این مبلغ از قبل تعهد شده است.
+
+به گفته این منبع، این صندوق با هدف ایجاد انگیزه اقتصادی برای دو طرف به منظور دستیابی به یک توافق نهایی طراحی شده و قرار است «صندوق بازسازی و توسعه» نام داشته باشد.
+
+این منبع در گفت‌وگو با رویترز تاکید کرده است که صندوق یادشده یک برنامه غرامت یا بازسازی دولتی نیست و هیچ بودجه یا کمک مالی دولتی در آن وجود نخواهد داشت. منابع مالی آن قرار است از سوی شرکت هایی در آمریکا، کشورهای عربی خلیج فارس، آسیا، آمریکای جنوبی و آفریقا تامین شود.
+
+سرمایه‌گذاری‌های پیش بینی شده حوزه هایی مانند انرژی، حمل و نقل، لجستیک و تولید را در بر می‌گیرد.
+
+https://bbc.in/4a2RtpX
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 284078
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284078_1781672803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در ادامه نخستین مسابقات تیم‌ها در مرحله گروهی جام جهانی، نروژ عصر سه‌شنبه به وقت آمریکا توانست با درخشش ارلینگ هالند، فوق ستاره خود، عراق را شکست دهد.
+
+گل اول را نروژ زد اما عراق عقب ننشست و ایمن حسین ده دقیقه بعد از گل هالند را جواب داد یعنی در دقیقه ۳۹.
+
+۴ دقیقه بعد باز هالند خودنمایی کرد و نروژ را برنده راهی رختکن کرد.
+
+در نیمه دوم و و حدود دقیقه ۷۵ و در حالی که مدافعان عراق حواس‌شان به هالند بود لئو اوستیگارد گل سوم را با ضربه سر وارد دروازه عراق کرد. چهارمین گل نروژ هم در دقایق تلف شده به ثمر رسید تا نروژ بالاتر از فرانسه صدرنشین گروه شود.
+
+عراق اگر چه نخستین بازنده اردوی آسیایی‌ها در جام امسال شد اما بازی شجاعانه و درگیرانه این تیم زنگ خطری است برای دیگر دو تیم گروه آی است.
+
+ساعتی پیش از این مسابقه هم فرانسه با نتیجه‌ای مشابه و در پی درخشش کلیان امباپه و دبل او موفق شد سه بر یک سنگال را شکست دهد و آغازی امیدوارکننده داشته باشد اما با توجه به برد ۴-۱ نروژ فعلا دوم گروه خواهد بود.
+
+📷Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 03:29
 ---
 
