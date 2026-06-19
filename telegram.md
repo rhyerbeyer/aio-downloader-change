@@ -7,6 +7,912 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 01:17
+---
+
+## VahidOOnLine — post 246444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «ان‌بی‌سی نیوز»، دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه رسما از هواپیمای جدید و مجلل «ایر فورس وان»، هدیه دولت قطر به آمریکا رونمایی کرد؛ یک «بوئینگ ۷۴۷» به ارزش تقریبی ۴۰۰ میلیون دلار. این هواپیمای لوکس با رنگ‌آمیزی جدید قرمز، سفید و سرمه‌ای تیره، قرار است در روز ۴ ژوئیه (۲۵ خردادماه) رهبری یک پرواز نمایشی بی‌سابقه بر فراز واشنگتن را به مناسبت دویست‌و‌پنجاهمین سالگرد استقلال آمریکا بر عهده داشته باشد. ترامپ با توصیف این هواپیما به عنوان «یک کاخ سفید پرنده با سطحی بی‌سابقه از لوکس بودن»، اعلام کرد که سفر بازگشت او از نشست جی۷ در فرانسه، آخرین استفاده او از ناوگان قدیمی خواهد بود.
+نیروی هوایی آمریکا در بیانیه‌ای تایید کرد که این هواپیما آماده آغاز پروازهای آزمایشی اولیه است. با وجود اینکه هواپیمای مذکور اکنون برای انجام وظایف رسمی در اختیار رئیس‌جمهوری قرار گرفته، کارشناسان هوانوردی برآورد می‌کنند که هزینه‌های ارتقای امنیتی و تجهیز آن برای دولت آمریکا ممکن است از مرز ۱ میلیارد دلار فراتر برود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246443
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246443_1781905648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ در مصاحبه با «اکسیوس» گفت که خامنه‌ای جوان (مجتبی) با خامنه‌ای پدر متفاوت است و افزود که در ایران نوعی «تغییر رژیم» رخ داده، چرا که افراد متفاوتی روی کار آمده‌اند. رئیس‌جمهوری آمریکا با اشاره به گروه جدید حاکم در ایران گفت: «ما با افرادی روبه‌رو هستیم که نسبت به دو گروه قبلی، بسیار کمتر تندرو هستند.» او در ادامه این گفتگو با دفاع از عملکرد دولتش، اعلام کرد که برخلاف باراک اوباما، او به توان پدافندی و نیروی هوایی ایران آسیب جدی وارد کرده و علاوه بر قاسم سلیمانی، رهبران ارشد دیگری را نیز هدف قرار داده است. ترامپ افزود: «من آیت‌الله را کشتم و متاسفانه به آن یکی آیت‌الله آسیب جدی زدم. من او را ندیدم و با او صحبت نکردم، اما مردم از او صحبت می‌کردند. با این حال او شجاعت خاصی دارد چون به‌شدت مجروح شده بود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گزیده‌ای از مهم‌ترین اخبار ایران و جهان در هفته‌ای که گذشت را در «ایران و جهان در یک دقیقه» ببینید
+
+- دونالد ترامپ و مسعود پزشکیان تفاهم‌نامه‌ پایان جنگ آمریکا و ایران را روز پنج‌شنبه ۲۸ خرداد امضا کردند. در پی این رویداد، تنگه هرمز بازگشایی و محاصره دریایی ایران برچیده شد. مجتبی خامنه‌ای رهبر جمهوری اسلامی در پیامی اعلام کرد که به دلیل اصرار پزشکیان با این تفاهم‌نامه موافقت کرده است.
+-مذاکرات ۶۰ روزه برای رسیدن به توافق جامع میان دو کشور رسما آغاز شده است.
+-در پی اظهارات تحقیر آمیز ترامپ درباره جورجیا ملونی، نخست وزیر ایتالیا، سفر وزیرخارجه این کشور به آمریکا لغو شد. ترامپ گفته بود که ملونی در اجلاس گروه ۷، التماس می‌کرد که با او عکس بگیرد. ملونی در پاسخی ویدیویی این روایت را رد کرد و به ترامپ گفت که من و ایتالیا هرگز التماس نمی‌کنیم.
+-قیمت دلار در ایران از ۱۸۰ هزار تومان به ۱۵۵ هزار تومان سقوط کرد. قیمت نفت برنت به حدود ۷۷ دلار کاهش یافت.
+-تیم ملی ایران در در جام‌جهانی ۲۰۲۶ مقابل نیوزیلند به تساوی ۲ بر ۲ رسید. دومین مسابقه ایران مقابل بلژیک در روز یکشنبه ۳۱ خرداد در لس‌آنجلس خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246441
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246441_1781905649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در میان صفحات دست‌نویس تازه کشف‌شده‌ای از ولفگانگ آمادئوس موتزارت که در کتابخانه ملی فرانسه نگهداری می‌شود، تنها نت‌های موسیقی نیستند که توجه پژوهشگران را جلب کرده‌اند. جلد این دفتر ارزشمند با کاغذ ابروباد، یا کاغذ ابری، تزئین شده است؛ هنری که ریشه‌های آن به ایران و آسیای مرکزی بازمی‌گردد و قرن‌ها پیش از آنکه به اروپا راه پیدا کند، در کتاب‌آرایی ایرانی رواج داشت.
+برخی منابع رواج این فن را به خواجه شهاب‌الدین عبدالله مروارید، متخلص به «بیانی»، از رجال فرهنگی دوره تیموری (قرن نهم هجری قمری) نسبت می‌دهند. هرچند پژوهشگران معاصر پیدایش کاغذ ابری را حاصل سنتی گسترده‌تر در حوزه فرهنگی ایران و آسیای مرکزی می‌دانند، اما در اینکه این هنر در ایران صفوی به‌خوبی شناخته شده و در کتاب‌آرایی و خوشنویسی کاربرد داشته، تردیدی وجود ندارد.
+کاغذ ابروباد با شناور کردن رنگ‌ها بر سطح مایع و انتقال نقش‌های موج‌دار و ابری به کاغذ ساخته می‌شود و به دلیل آنکه هیچ دو نمونه‌ای کاملا مشابه نیستند، هر برگ اثری یگانه به شمار می‌رود. این هنر از ایران و آسیای مرکزی به عثمانی راه یافت و در آنجا به تکامل رسید و سپس از قرن هفدهم به اروپا رسید.
+ابری به تدریج به یکی از محبوب‌ترین پوشش‌ها برای جلد کتاب‌، آستر بدرقه (صفحه ای که کتاب را به جلد متصل می‌کند)و نسخه‌های نفیس تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246440
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246440_1781905649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در بوشهر در گفت‌وگو با خبرنگاران رسانه‌های ایران گفت: «جنگ پایان نیافته است و به تعهدات آمریکا اعتمادی ندارم.»
+
+او افزود: «آن‌ها دو بار در میانه مذاکرات به ما حمله کردند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246439
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246439_1781905650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ با اشاره به تحولات بازار انرژی و ترافیک بی‌سابقه نفتکش‌ها در تنگه هرمز، اعلام کرد که اوضاع بسیار خوب پیش می‌رود. رئیس جمهوری آمریکا روز جمعه در مراسم رونمایی از هواپیمای «بوئینگ ۷۴۷» اهدایی قطر، با تمرکز بر این تحولات گفت: «کشتی‌ها به شکلی از تنگه هرمز سرازیر شده‌اند که در واقع هیچ‌کس تا به حال نظیرش را ندیده است. تعدادشان خیلی زیاد بود، حدود ۷۰۰ کشتی، و نفت در همه جا هست.» ترامپ در ادامه با پیش‌بینی تغییرات قیمت در بازار جهانی افزود: «شما شاهد خواهید بود که قیمت نفت آن‌قدر پایین می‌آید که امیدوارم شرکت‌ها از این بابت خوشحال باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246438
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246438_1781905652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246437
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246437_1781905652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246436
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246436_1781905653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246435
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246435_1781905653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه در جریان رونمایی از هواپیمای «بوئینگ ۷۴۷» اهدایی قطر که به ناوگان «ایر فورس وان» ملحق شده است، اعلام کرد که در سال ۲۰۲۶ برنامه‌های سفر متعددی از جمله به کشورهای ترکیه و چین دارد. ترامپ با اشاره به اینکه شی جین‌پینگ، رئیس‌جمهوری چین، در ماه سپتامبر به واشنگتن سفر خواهد کرد، افزود که او نیز شخصا برای شرکت در یک نشست بزرگ راهی چین خواهد شد؛ سفری که در کنار بازدید او از ترکیه، بخشی از برنامه‌های دیپلماتیک فشرده کاخ سفید در سال جاری میلادی به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246434
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246434_1781905654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مراسم دیدار با نیروی هوایی این کشور، درباره روابط آمریکا و اسرائیل گفت: «روابط ما با اسرائیل بسیار قدرتمند است و بی‌بی نتانیاهو یک جنگجو است و باید به عنوان چنین فردی شناخته شود. باید به او اعتبار بدهند چون واقعا این کار را انجام داد. ما واقعا بسیار خوب در کنار اسرائیل جنگیدیم.»
+
+او پیش‌تر به دلیل حملات اسرائیل به جنوب لبنان، انتقاداتی متوجه نتانیاهو کرده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15367
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.instagram.com/reel/DZyFKZXCHfl/?igsh=anMxYmI2ZnUzdHpy
+
+لایو سیو شد
+</div>
+
+## WithYashar — post 15366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میرم لایو اینستاگرام 💥🚨۵ دقیقه دیگه نتیف های اینستاگرام رو روشن کنید و اگه ندارید فالو کنید instagram.com/yashar
+</div>
+
+## WithYashar — post 15365
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میرم لایو اینستاگرام 💥🚨۵ دقیقه دیگه نتیف های اینستاگرام رو روشن کنید و اگه ندارید فالو کنید
+instagram.com/yashar
+</div>
+
+## WithYashar — post 15364
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15364_1781905654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «ما رابطه خوبی با اسرائیل داریم بی بی نتانیاهو یک نخست‌وزیر جنگجو است.
+باید به همین عنوان از او قدردانی شود. باید به او اعتبار بدهند.»
+@withyashar
+</div>
+
+## WithYashar — post 15363
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره حمله دوباره به ایران:
+به یاد داشته باشید، اگر این کار را انجام دهیم، ناگهان نفت به سرعت از تنگه خارج نخواهد شد.
+افرادی که مالک کشتی‌های میلیارد دلاری هستند، دوست ندارند موشک‌ها بالای سرشان پرواز کنند
+@withyashar
+</div>
+
+## WithYashar — post 15362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قفلی جدید ترامپ برای هزارمین بار : ایران ۶۰ روز فرصت داره توافق کنه.
+@withyashar
+</div>
+
+## mwarmonitor — post 11240
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11240_1781905656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هشدار هواشناسی: موج بی‌سابقه و رکوردشکن گرما در راه اروپا
+
+هشدار به آژانس‌های هواشناسی | ۲۳ ژوئن ۲۰۲۶
+
+🔸بررسی آخرین نقشه‌های پیش‌بینی مدل اروپایی ECMWF نشان می‌دهد که قاره اروپا در آستانه یکی از شدیدترین و بی‌سابقه‌ترین موج‌های گرمای خود قرار گرفته است.
+
+طبق این داده‌ها، یک توده هوای به‌شدت داغ و متراکم (آنومالی مثبت دمایی) کشورهای غرب و مرکز اروپا از جمله فرانسه، اسپانیا، آلمان، بریتانیا و ایتالیا را به‌طور کامل در بر خواهد گرفت.
+
+شاخص‌های هواشناسی در تراز ۸۵۰ هکتوپاسکال حاکی از جهش بی‌سابقه دما تا بیش از ۱۰ الی ۱۵ درجه سانتی‌گراد فراتر از میانگین بلندمدت (۱۹۹۱-۲۰۲۰) است که در سطح زمین می‌تواند رکوردهای دمایی جدیدی را ثبت کند.
+
+هم‌زمان، بخش‌هایی از قطب شمال و خاورمیانه نیز با افزایش ملموس دما روبرو هستند. کارشناسان نسبت به پیامدهای این ابرموج گرما بر سلامت عمومی، افزایش مصرف انرژی و تشدید خطر آتش‌سوزی جنگل‌ها در روزهای آینده هشدار جدی داده‌اند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو قصد دارد هفته آینده به خاورمیانه سفر کند؛ این سفر شامل کویت، امارات متحده عربی و بحرین خواهد بود — اکسیوس
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Team USA is through to the knockout stage.
+
+The United States secured its place in the next round of the World Cup with a 2-0 victory over Australia in Seattle on Friday, improving to 2-0 through its first two matches of the tournament.
+
+The Americans have now clinched advancement with a game still left to play in the group stage.
+
+It's the first time since the inaugural World Cup in 1930 that the United States has won back-to-back World Cup games.
+</div>
+
+## FoxNewsTwitter — post 343180
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343180_1781905657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This will be a flyover on July 4th I think I can say the likes of which we've never seen before."
+
+President Trump says America's 250th anniversary celebration on July 4th will feature a massive military flyover over the U.S. Capitol and White House, led by the newly refurbished Air Force One.
+
+Trump said the event will include F-22s, F-35s and other military aircraft, adding that military pilots are "all fighting to do it."
+
+"We're gonna have a lot of planes flying over the Capitol and over the White House," Trump said.
+</div>
+
+## FoxNewsTwitter — post 343179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. men's soccer team advances to next round of the World Cup.
+</div>
+
+## pm_afshaa — post 94426
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94426_1781905658.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی وایرال‌شده از یک کاربر خارجی که میگه پزشکیان یکی از احمق‌ترین سیاستمدارایی‌ هست که دیده؛ تمام عباراتی که آمریکا در این تفاهم‌نامه به کار برده، صرفاً بازی با کلمات بوده و وعده‌های مطرح‌شده عملا چیزی جز دنبال نخودسیاه فرستادن طرف مقابل نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94425
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94425_1781905660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگه ایران در نهایت توافق نکنه، اتفاقاتی میفته که اونا رو خوشحال نمیکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94424
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94424_1781905661.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ:
+روابط ما با اسرائیل بسیار قدرتمنده؛ بی‌بی نتانیاهو یک جنگجوست و باید به عنوان چنین فردی شناخته بشه و باید به اون اعتبار داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94423
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94423_1781905661.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢فراخوان تجمع مسالمت‌آمیز یازدهمی‌ها و دوازدهمی‌ها برای فردا :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94422
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94422_1781905661.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل شهرک النبطیه در جنوب لبنان رو با بمب‌های فسفری هدف قرار داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343297
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343297_1781905662.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «ایران ۶۰ روز فرصت دارد به یک آتش‌بس پایدار برسد. اگر به توافق نرسند، اقداماتی انجام خواهیم داد که قطعاً از آن خوششان نخواهد آمد.»
+
+او افزود: «حتی در صورت امضای توافق، بازگشت کامل نفتکش‌ها به تنگه هرمز زمان‌بر خواهد بود، زیرا شرکت‌های کشتیرانی تا رفع خطرهای امنیتی برای عبور از این مسیر تردید خواهند داشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343296
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343296_1781905663.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فدراسیون فوتبال ایران در پی محدودیت‌های اعمال‌شده برای سفر تیم ملی به آمریکا در جام جهانی ۲۰۲۶، رسما به فیفا شکایت کرد.
+
+بر اساس این محدودیت‌ها، تیم ملی ایران تنها یک روز پیش از مسابقه اجازه ورود به آمریکا را دارد و باید بلافاصله پس از بازی خاک این کشور را ترک کند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343295
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343295_1781905664.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال آمریکا در دومین دیدار خود در جام جهانی ۲۰۲۶ که در استادیوم سیاتل برگزار شد، استرالیا را با نتیجه ۲ بر صفر شکست داد و با ۶ امتیاز به مرحله یک شانزدهم نهایی مسابقات صعود کرد.
+
+🔹کمرون برجس (گل به خودی) در دقیقه ۱۱ و الکس فریمن در دقیقه ۴۳ گل‌های بازی را به ثمر رساندند.
+
+🔹نکته اینکه نخستین گل آمریکا در این جام که به پاراگوئه زده شد هم، گل به خودی بود.
+
+🔹آمریکا در بازی نخست خود در گروه D جام جهانی، پاراگوئه را با نتیجه ۴ بر یک شکست داده بود.
+
+🔹ترکیه و پاراگوئه بامداد شنبه، دیگر بازی این گروه را برگزار می‌کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343294
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343294_1781905665.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه مراسم خاکسپاری مرجان ساتراپی، فیلمساز و هنرمند ایرانی، در گورستان پرلاشز پاریس، سرور کسمایی، نویسنده و مترجم، به ساجده شریفی، خبرنگار ایران‌اینترنشنال، گفت: «مرجان ساتراپی، مانند عباس کیارستمی، توانست با آثارش توجه جهان را به ایران جلب کند.»
+
+او افزود: «ساتراپی با تمرکز بر زندگی و با زبانی ساده و انسانی، به قلب مخاطبان در سراسر جهان راه یافت و تصویری متفاوت از روایت جمهوری اسلامی از ایران ارائه کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343293
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343293_1781905666.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در بوشهر در گفت‌وگو با خبرنگاران رسانه‌های ایران گفت: «جنگ پایان نیافته است و به تعهدات آمریکا اعتمادی ندارم.»
+
+او افزود: «آن‌ها دو بار در میانه مذاکرات به ما حمله کردند.»
+https://iranintl.com/202606194068
+</div>
+
+## IranIntlTV — post 343292
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343292_1781905667.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان‌بی‌سی نیوز گزارش داده ترامپ از اسرائیل خواسته با آتش‌بس با حزب‌الله موافقت کند. هم‌زمان، یک مقام آمریکایی از اجرای این آتش‌بس از عصر جمعه خبر داد. در حالی که منابعی از نقش قطر، آمریکا و جمهوری اسلامی در میانجی‌گری خبر می‌دهند، اسرائیل می‌گوید تنها به توافق جداگانه خود با لبنان پایبند است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343291
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343291" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: تعلیق نشست ایران و آمریکا
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343290
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343290_1781905669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها دو روز پس از امضای تفاهم‌نامه میان آمریکا و ایران، نشست برنامه‌ریزی‌شده دو طرف در سوئیس لغو شد. هم‌زمان، پاکستان از برگزاری نشست میانجی‌های پرونده تهران و واشینگتن در قاهره خبر داد. سخنگوی وزارت خارجه جمهوری اسلامی گفت با امضای دیجیتالی، این نشست فوریت خود را از دست داد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343287
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343287_1781905670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «متعهد نبودن آمریکا به بند نخست تفاهم‌نامه نشان می‌دهد اراده‌ای برای جلب اعتماد ما ندارد.»
+
+او افزود: «ادامه وضعیت ما با آمریکا هزینه سنگینی خواهد داشت و نخستین آن، پاسخی هوشمندانه و بازدارنده به نقض تعهدات تفاهم‌نامه خواهد بود.»
+https://iranintl.com/202606195207
+</div>
+
+## IranIntlTV — post 343286
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343286_1781905670.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مئیر جاودانفر، تحلیل‌گر امور اسرائیل، گفت: «همکاری نزدیک با واشینگتن ضروری است، اما وابسته کردن کامل راهبرد امنیتی اسرائیل در قبال جمهوری اسلامی به تصمیمات شخص دونالد ترامپ، ریسک بزرگی است.»
+
+او افزود: «آثار این ریسک امروز در پرونده لبنان بیش از هر زمان دیگری دیده می‌شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343285
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343285_1781905672.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهد علوی، عضو تحریریه ایران‌اینترنشنال، درباره بیانیه کارشناسان حقوق بشر سازمان ملل در انتقاد از نادیده گرفتن حقوق بشر در تفاهم‌نامه جمهوری اسلامی و آمریکا گفت: «طرفی که متهم به نقض حقوق بشر، اعدام‌های سیاسی و سرکوب گسترده شهروندان است، اکنون به‌عنوان یکی از امضاکنندگان این تفاهم سیاسی شناخته می‌شود.»
+
+او افزود: «حتی اگر موضوع حقوق بشر به‌صورت لفظی در متن توافق گنجانده می‌شد، بدون سازوکارهای اجرایی و نظارتی مستقل، تاثیر چندانی نداشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343284
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343284_1781905673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منشه امیر، کارشناس خاورمیانه، گفت: «مواضع دونالد ترامپ نارضایتی قابل توجهی را در اسرائیل ایجاد کرده است. آنچه برای بسیاری در اسرائیل نگران‌کننده است این است که ترامپ پیش‌تر قطع ارتباط جمهوری اسلامی با نیروهای نیابتی‌اش را از اهداف اصلی آمریکا عنوان کرده بود.»
+
+او افزود: «با این حال، در هفته‌های اخیر دست‌کم دو بار عملا رابطه جمهوری اسلامی و حزب‌الله را به رسمیت شناخته و برای پذیرش آتش‌بس، اسرائیل را تحت فشار قرار داده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343283
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343283_1781905675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میعاد ملکی، مقام پیشین وزارت خزانه‌داری آمریکا، درباره تعلیق نشست ایران و آمریکا گفت: «هیچ‌کدام از دو طرف انگیزه فوری برای حرکت به سمت توافق نهایی ندارند.»
+
+او افزود: «تهران و واشینگتن در شرایط کنونی از وضعیت موقت موجود منافعی به دست آورده‌اند و احتمالا ترجیح می‌دهند مدتی از این فضای تنفس استفاده کنند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343282
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343282_1781905677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مراسم دیدار با نیروی هوایی این کشور، درباره روابط آمریکا و اسرائیل گفت: «روابط ما با اسرائیل بسیار قدرتمند است و بی‌بی نتانیاهو یک جنگجو است و باید به عنوان چنین فردی شناخته شود. باید به او اعتبار بدهند چون واقعا این کار را انجام داد. ما واقعا بسیار خوب در کنار اسرائیل جنگیدیم.»
+
+او پیش‌تر به دلیل حملات اسرائیل به جنوب لبنان، انتقاداتی متوجه نتانیاهو کرده بود.
+https://iranintl.com/202606192689
+</div>
+
+## Shin_Persian — post 7139
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7139_1781905677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Canadian OSINT ✓ @Canadian_OSINT
+Fri, 19 Jun 2026 20:36:17 UTC
+
+2 more tankers spotted.. another from the UK RCH254 (20-46083) pretty sure this tail number was operating in the region last week as well..
+
+16-46021 did not land at PSAB
+
+57-1479 is departing Tel Aviv.
+
+Boeing KC-46A Pegasus 2x
+
+RCH238 - 16-46021
+RCH254 - 20-46083
+
+Boeing KC-135R Stratotanker 1x
+
+NA - 57-1479
+
+ترجمه خودکار فارسی
+
+۲ تانکر سوخت‌رسان دیگر رویت شدند.. یکی دیگر از بریتانیا RCH254 (20-46083) کاملاً مطمئنم که این شماره دم هفته گذشته نیز در منطقه در حال عملیات بود..
+
+۱۶-۴۶۰۲۱ در پایگاه هوایی شاهزاده سلطان (PSAB) فرود نیامد.
+
+۵۷-۱۴۷۹ در حال ترک تل‌آویو است.
+
+بوئینگ KC-46A Pegasus ۲ فروند
+
+RCH238 - 16-46021
+RCH254 - 20-46083
+
+بوئینگ KC-135R Stratotanker ۱ فروند
+
+NA - 57-1479
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Canadian OSINT ✓ @Canadian_OSINT
+Fri, 19 Jun 2026 20:13:06 UTC
+
+10 tankers and an E-3B are operating over the ME right now. 16-46021 is landing at PSAB after a trip from Prestwick. Almost positive that tail number was in the ME before though..?
+
+58-0059 is pictured in the 2nd photo over the UAE but not highlighted.
+
+Boeing KC-46A Pegasus 1x
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+در حال حاضر ۱۰ تانکر سوخت‌رسان و یک فروند E-3B در منطقه خاورمیانه در حال عملیات هستند. هواپیمای ۱۶-۴۶۰۲۱ پس از پروازی از پرستویک (Prestwick) در حال فرود در پایگاه هوایی شاهزاده سلطان (PSAB) است. تقریباً مطمئنم که این شماره دم قبلاً هم در خاورمیانه بوده است..؟
+
+هواپیمای ۵۸-۰۰۵۹ در عکس دوم بر فراز امارات متحده عربی دیده می‌شود اما هایلایت نشده است.
+
+Boeing KC-46A Pegasus 1x
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سازمان حقوق بشر ایران از اجرای حکم اعدام دست‌کم ۱۰ زندانی در زندان قزل‌حصار کرج طی روزهای ۲۳ و ۲۵ خرداد ۱۴۰۵ خبر داده است؛ احکامی که به گفته این گزارش، شامل پرونده‌های قتل و مواد مخدر و در برخی موارد بدون اطلاع قبلی خانواده‌ها اجرا شده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ از بارگشایی تنگه هرمز ابراز خرسندی کرد و مخالفین تفاهمنامه را احمق خواند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پنتاگون حضور نظامی آمریکا در اروپا را در یک دوره شش ماه بررسی می‌کند
+
+▪️پیت هگست، وزیر جنگ آمریکا، روز پنجشنبه ۲۸ خرداد، در جریان جلسه وزرای دفاع ناتو در مقر این سازمان در بروکسل اعلام کرد که بررسی حضور نیروهای نظامی آمریکایی در اروپا را آغاز کرده است و به شدت از متحدان آمریکا در ناتو انتقاد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-europe-us-hegseth-war-pentagon-nato-defense/8162717.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئيس‌جمهوری آمریکا، در مصاحبه‌ای با آکسیوس گفت پاکستانی‌ها «ایرانی‌ها (مقامات رژیم) را می‌شناختند و به ما در رسیدن به توافق کمک کردند.»
+
+آقای ترامپ در این مصاحبه گفت که پاکستانی‌ها از او خواهش کردند که از ادامه وارد کردن ضربات بیشتر به جمهوری اسلامی خودداری کند. آقای ترامپ گفت ما قوی‌ترین ارتش جهان را داریم و هیچ کشور دیگری نمی‌توانست مانند آمریکا محاصره دریایی علیه جمهوری اسلامی را اجرا کند.
+
+آقای ترامپ همچنین گفت به نظر او تفاهم‌نامه امضا شده با جمهوری اسلامی مانند «تسلیم‌شدن کامل» جمهوری اسلامی است. رئیس‌جمهوری آمریکا به نابودی نیروی دریایی جمهوری اسلامی، نیروی هوایی، و پدافند هوایی و همچنین کشتن علی خامنه‌ای اشاره کرد که از او به عنوان «آیت‌الله» یاد کرد.
+بیشتر بخوانید:
+https://ir.voanews.com/a/trump-calls-iran-shift-regime-change/8162716.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221236
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221236_1781905678.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: حدود ۷۰۰ نفتکش در حال عبور از تنگه هرمز هستند
+
+▪️دونالد ترامپ، روز جمعه ۲۹ خرداد، با اشاره به امضای تفاهم‌نامه با جمهوری اسلامی گفت پس از امضای این سند، حدود ۷۰۰ نفتکش از تنگه هرمز عبور کرده‌اند یا در حال عبور از این منطقه هستند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8162740.html
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مراسم خاکسپاری مرجان ساتراپی، نویسنده، هنرمند و فیلمساز ایرانی، روز ۲۹ خرداد در پاریس برگزار شد.
+
+🔸ساتراپی، خالق رمان گرافیکی مشهور «پرسپولیس»، در میان ادای احترام هنرمندان و دوستدارانش در گورستان پرلاشز به خاک سپرده شد.
+
+🔸«پرسپولیس» بعدها به یک فیلم پویانمایی موفق تبدیل شد که جایزه جشنواره کن را به دست آورد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22978
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22978_1781905678.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مداح، پزشکیانو تهدید کرد. @IranianMinds
+</div>
+
+## IranianMinds — post 22977
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22977_1781905679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان لایک کامنت ساب فراموش نشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22976
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22976_1781905679.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مداح، پزشکیانو تهدید کرد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻واکنش‌ها به پیام منتسب به مجتبی خامنه‌ای به برخی هیئت‌های عزاداری نزدیک به جریان‌های تندرو نیز کشیده شده است.
+
+پیشتر در این پیام رهبر جمهوری اسلامی ایران آمده بود که نظرش درباره توافق با آمریکا «چیز دیگری بوده ولی پس از آن‌که مسعود پزشکیان مسئولیت آن را پذیرفت، اجازه امضای آن را داده است.»
+
+در این ویدئو محمدعلی بخشی، یک مداح در شهرری تهران می‌گوید: «آقای رئیس‌جمهور اگر شروط رهبری محقق نشه، ما می‌دانیم و تیغ و حلقوم شما. پدرت رو درمیاریم!»
+
+آقای پزشکیان در باره پیام منتسب به خامنه‌ای گفت که او به عنوان رئیس جمهور و رئیس شورای امنیت ملی به همراه سایر اعضای آن شورا «خود را متعهد به توجه حداکثری نسبت به دغدغه‌های معظم‌له و حراست از حقوق ملت ایران و جبهه مقاومت» می‌دانند.
+
+محمدباقر قالیباف، رئیس مجلس و همچنین رئیس هیئت ایران در مذاکرات با آمریکا، هم در واکنش به این پیام در شبکه اجتماعی ایکس نوشت که از سوی رهبر موظف به پیگیری تحقق شروط و بندهای تفاهم‌ شده و «گوش به فرمان» اوست.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284431
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284431_1781905680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻پس از لغو نشست هیئت‌ ایران و آمریکا در سوئیس، که قرار بود امروز (جمعه ۲۹ خرداد/۱۹ ژوئن) صورت بگیرد؛ اسماعیل بقایی، سخنگوی وزارت خارجه ایران، گفته است که «برای برگزاری یک نشست طی روزهای آینده» برنامه‌ریزی می‌شود.
+
+اسماعیل بقایی به خبرنگاران گفت:«با توجه به اینکه امضای متن یادداشت تفاهم، در بامداد ۲۸ خرداد دیجیتالی انجام شد، برگزاری نشست در سوئیس فوریت ندارد. اما در حال برنامه‌ریزی برای برگزاری یک نشست در روزهای آینده هستیم.»
+
+آقای بقایی گفته است: «طبق متن یادداشت تفاهم، آغاز مذاکرات توافق نهایی منوط به شروع اجرای مفاد بندهای ۱، ۴، ۵، ۱۰ و ۱۱ یادداشت تفاهم و تداوم اجرای آن‌ها است.»
+
+این بندها به ترتیب شامل پایان درگیری در «همه جبهه‌ها»، پایان محاصره دریایی آمریکا، بازگشایی بدون عوارض تنگه هرمز، حفظ وضع موجود در برنامه هسته‌ای ایران و موضوع دارایی‌های مسدودشده ایران است.
+
+کاخ سفید علت تعویق را «مسائل تدارکاتی» عنوان کرده و در پی آن، سفر جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، به سوئیس نیز لغو شد.
+
+متن کامل خبر در لینک:
+
+https://bbc.in/4ejLTlA
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392611
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392611_1781905682.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایشون "رالف لینکلن" ، نسل یازدهم "آبراهام لینکلن" هست. چه شباهتی!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392610
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392610_1781905683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدم وقتی اینا رو می‌بینه و می‌شنوه خجالت می‌کشه به فوتبال ایران بگه «فوتبال حرفه‌ای»، واقعاً احساس مسخره‌ایه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392609
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392609_1781905685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارشات منتشر شده؛ قراره مجتبی خامنه‌ای بصورت هولوگرامی نماز میت پدرشو بخونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392608
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392608_1781905685.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تجمع تو نیویورک چرا همه چیش انقد عجیبه، یه نفر اون وسط جوراب یه دخترو درآورده و پاهاشو تا حلقش می‌کنه دهنش :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392607
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392607_1781905686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392606
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392606_1781905687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچی این شاهکار نمیشه :)))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129263
+
+<div align="center">
+  <a href="telegram/content/alonews_129263_1781905688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون درگیری‌های سنگین بین نیروهای اسرائیل و حزب‌الله تو لُبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129262
+
+<div align="center">
+  <a href="telegram/content/alonews_129262_1781905690.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مداح دوزاری، پزشکیان را تهدید کرد
+
+
+🔴پ.ن: مداح‌های بیسواد و کودن چندسالی هست که تو تمام مسائل اعم از سیاسی، اقتصادی و اجتماعی نظر میدهند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129261
+
+<div align="center">
+  <a href="telegram/content/alonews_129261_1781905691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برنی مورنو، سناتور آمریکایی: لغو تحریم نفت ایران به نفع آمریکاست چون چین پول بیشتری می‌پردازد
+
+
+🔴 «ما اکنون به آنها اجازه می‌دهیم که نفت خود را بفروشند. این چه فایده‌ای دارد؟ این به نفع آمریکایی‌ها خواهد بود. این باعث کاهش قیمت نفت می‌شود.
+
+
+🔴 و چین را مجبور به پرداخت هزینه بیشتر برای نفت می‌کند! و همچنین متوجه می‌شود چه کسانی نفت چین را می‌خرند. بنابراین ما را در موقعیت عالی، یک مذاکره عالی قرار می‌دهد و در نهایت، من به رئیس‌جمهور ترامپ اعتماد دارم که تصمیمات درست را می‌گیرد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129260
+
+<div align="center">
+  <a href="telegram/content/alonews_129260_1781905693.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما رابطهٔ بسیار خوبی با اسرائیل داریم؛ نتانیاهو یک جنگجو است
+
+
+🔴 اسرائیلی‌ها باید از نتانیاهو قدردانی کنند، چون او واقعا کارش را انجام داد. ما واقعا در کنار اسرائیل به سختی مبارزه کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129258
+
+<div align="center">
+  <a href="telegram/content/alonews_129258_1781905693.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره اوکراین: خیلی چیزها توسط بایدن به اوکراین داده شد. آنها باید هزینه‌اش را بپردازند، اما این در برنامه‌هایشان نبود.
+
+
+🔴هیچ‌کس از آنها نخواست که پرداخت کنند. من گفتم، چرا پرداخت نکردید؟ آنها گفتند، هیچ‌کس از ما نخواست، آقا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129257
+
+<div align="center">
+  <a href="telegram/content/alonews_129257_1781905693.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره حمله دوباره به ایران:
+به یاد داشته باشید، اگر این کار را انجام دهیم، ناگهان نفت به سرعت از تنگه خارج نخواهد شد.
+
+
+🔴افرادی که مالک کشتی‌های میلیارد دلاری هستند، دوست ندارند موشک‌ها بالای سرشان پرواز کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129256
+
+<div align="center">
+  <a href="telegram/content/alonews_129256_1781905693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: پیت هگستث یک فرد ذاتاً بااستعداد است. او نمی‌داند چگونه ببازد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 23:48
 ---
 
