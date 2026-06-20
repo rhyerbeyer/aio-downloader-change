@@ -7,6 +7,596 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/31 02:45
+---
+
+## VahidOOnLine — post 246593
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246593_1781997301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) روز شنبه، با انتشار تصویری اعلام کرد که یک جنگنده پنهان‌کار F-35 نیروی هوایی آمریکا بر فراز خاورمیانه توسط یک تانکر سوخت‌رسان «کی‌سی-۱۳۵ استراتوتانکر» (KC-135 Stratotanker) سوخت‌گیری کرده است. سنتکام تاکید کرد که نیروهای آمریکایی به گشت‌زنی‌های مداوم خود در آسمان منطقه ادامه می‌دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246592
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246592_1781997301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، وضعیت جسمانی آمنه بیرقداری، زندانی سیاسی ۶۱ ساله، که پیش‌تر به‌طور ناگهانی به بند مجرمان خطرناک زندان وکیل‌آباد مشهد منتقل شده بود، به شدت وخیم شده است.
+بر پایه این اطلاعات، او در روزهای اخیر قربانی زورگیری در داخل زندان شده و در پی بروز فلج عصبی موقت، در بهداری این بند بستری شده است.
+بر اساس این اطلاعات، آمنه بیرقداری کرهرودی، معلم بازنشسته‌ای که در جریان سرکوب اعتراضات دی‌ماه با اتهام «لیدری اعتراضات» در فریمان، شامگاه ۱۷ دی ۱۴۰۴ در منزلش در این شهر بازداشت شد، از ۲۸ خرداد، برخلاف اصل تفکیک جرائم، به بند دو زندان زنان وکیل‌آباد مشهد، محل نگهداری مجرمان خطرناک، منتقل شده است.
+منبع مطلعی که درباره وضعیت او با ایران‌اینترنشنال صحبت کرد، گفت «بند ۲ محل نگهداری زندانیان جرائم خشن و سابقه‌دار است که از جمله به خاطر قتل، توزیع مواد مخدر، زورگیری و سرقت بازداشت و محکوم شده‌اند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246591
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246591_1781997302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، روز شنبه واشینگتن را به مقصد سوئیس ترک کرد تا روز یکشنبه در مذاکرات با جمهوری اسلامی شرکت کند. او به خبرنگاران گفت امیدوار است در «موضوع هسته‌ای» و «مسئله آتش‌بس لبنان» پیشرفت حاصل شود.
+ونس پیش از سوار شدن به هواپیمای خود به مقصد ژنو گفت: «با وجود تیترهای خبری، اوضاع در لبنان در واقع بهتر شده و تا حدی آرام‌تر شده است.»
+او افزود این مسئله باید به‌طور مداوم مدیریت شود تا «اسرائیل و لبنان هر دو امن و باثبات باشند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246590
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246590_1781997303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رجا نیوز، رسانه‌ نزدیک به جریان‌های محافظه‌کار، گزارش داد رهبر جدید جمهوری اسلامی در واکنش به مذاکرات اسلام‌آباد، نسبت به مطرح شدن پرونده هسته‌ای در گفت‌وگوها و رعایت نشدن شروطی که پیش‌تر تعیین شده بود، اعتراض کرده و این مذاکرات را «خلاف شرع» دانسته است.
+بر اساس این گزارش، اعضای شورای عالی امنیت ملی در نامه‌ای به رهبر جمهوری اسلامی از ضرورت طرح موضوع هسته‌ای در مذاکرات دفاع کرده و نسبت به ادامه درگیری‌ها و احتمال حمله به زیرساخت‌های کشور ابراز نگرانی کرده‌اند.
+رجا نیوز نوشت رهبر جمهوری اسلامی در پاسخ به این نامه تاکید کرده است مذاکرات «نه در دنیا و نه در آخرت منفعتی نخواهد داشت» و مانع حمله به زیرساخت‌های ایران نیز نخواهد شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246589
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246589_1781997304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، از بازگشایی فرودگاه‌های بوشهر و عسلویه خبر داد و به نقل از  مدیرکل فرودگاه‌های این استان نوشت: «پروازها در این دو فرودگاه از هفته جاری از سر گرفته خواهد شد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، پیش از عزیمت به سوئیس در گفتگو با خبرنگاران اعلام کرد: «مشتاقانه منتظر آغاز گفتگوها در سطح فنی با حضور نمایندگان ایران، پاکستان و قطر هستم؛ بر اساس اطلاعات ما، هیئت ایرانی تازه به زمین نشسته است.» ونس با اشاره به ویژگی‌های محل برگزاری نشست افزود: «سوئیس جای بسیار زیبایی است، هرچند من فقط برای یک یا دو روز آنجا خواهم بود.» او در رابطه با اهداف این سفر تاکید کرد: «امیدوارم که بتوانیم در موضوع هسته‌ای و همچنین در زمینه برقراری آتش‌بس در لبنان به پیشرفت دست یابیم.» معاون ترامپ همچنین با ارزیابی مثبت از روند تحولات منطقه گفت: «برخلاف آنچه در سرخط اخبار دیده می‌شود، اوضاع در لبنان در واقع رو به بهبود است و فضا کمی آرام‌تر شده. این موضوعی است که ما باید به طور مداوم آن را مدیریت کنیم تا از امنیت کامل اسرائیل و لبنان مطمئن شویم.»
+پیش از پرواز ونس، استیو ویتکاف، فرستاده ویژه آمریکا، و جرد کوشنر، داماد دونالد ترامپ، برای بررسی ابعاد فنی گفتگوها وارد خاک سوئیس شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمود نبویان، نایب‌رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، در گفتگویی با صداوسیما با اشاره به مواضع مجتبی خامنه‌ای، رهبر جمهوری اسلامی، گفت او در ۱۵ فروردین، ۲۹ فروردین و ۴ اردیبهشت سه بار تاکید کرده است که در موضوع هسته‌ای یا باید «به پیروزی رسید» و حق غنی‌سازی ایران به طور کامل به رسمیت شناخته شود، یا این موضوع برای همیشه از دستور کار مذاکرات خارج شود.
+نبویان همچنین گفت خامنه‌ای بر «انحصار مدیریت تنگه هرمز به دست ایران» تاکید داشته و حتی مدیریت مشترک این آبراه با عمان را نیز نپذیرفته است. او گفت برخی از این موارد در تفاهم‌نامه نهایی لحاظ نشده‌اند.
+این مصاحبه در جریان پخش زنده از شبکه خبر قطع شد. ساعاتی بعد، روابط عمومی معاونت سیاسی صداوسیما با انتشار اطلاعیه‌ای اعلام کرد اشاره «ناقص و مخدوش» نبویان به برخی اسناد و مکاتبات دارای طبقه‌بندی، مصداق تخلف قانونی و مستوجب پیگرد قضایی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15467
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15467_1781997304.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانالی که ترور هنیه و نصرالله رو دقیق پیشبینی کرده بود، دلار ۱۶۰ تومنی رو هم دو ماه پیش اعلام کرده بود از تاریخ و نحوه حمله ایران به اسرائیل پرده برداشت!!! 
+🚨نمیدونم به کجا وصله ولی از همه چی خبر داره بیا خودت ببین
+👇
+👇      🔴LINK - CHANNEL🔴
+</div>
+
+## WithYashar — post 15466
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15466_1781997304.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانالی که ترور هنیه و نصرالله رو دقیق پیشبینی کرده بود، دلار ۱۶۰ تومنی رو هم دو ماه پیش اعلام کرده بود از تاریخ و نحوه حمله ایران به اسرائیل پرده برداشت!!!
+
+
+🚨نمیدونم به کجا وصله ولی از همه چی خبر داره بیا خودت ببین
+👇
+👇
+
+     🔴LINK - CHANNEL🔴
+</div>
+
+## WithYashar — post 15465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین پاک، خبرنگار مستقر در لبنان: از ساعاتی قبل عملیات نظامی از سوی اسرائیل متوقف شده است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343216
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343216_1781997305.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Getting things set up in the right way.”
+
+Vice President JD Vance says success in Switzerland starts with establishing the structure of the negotiations as U.S. and Iranian officials begin the next phase of talks.
+
+Vance adds the focus will be on making progress on Iran’s nuclear program and the Lebanon ceasefire, while technical teams remain on the ground to work through the details.
+</div>
+
+## pm_afshaa — post 94484
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94484_1781997307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چند ساعت پیش عباس خوش قدم رسید زوریخِ سوئیس، الانم این شهر طوفان شدیدی شده و کلی درخت افتاده روی مردم و مصدوم زیاد داشته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94483
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94483_1781997308.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت های ایران خودرو با 50 درصد افزایش هم قیمت بازار آزاد شد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343471
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343471_1781997308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرهاد دریا، خواننده سرشناس افغانستانی، در حاشیه تجمع اعتراضی در واشینگتن در حمایت از زنان افغانستان و علیه آپارتاید جنسیتی، به اردوان روزبه، خبرنگار ایران‌اینترنشنال، گفت: «قدرت در همبستگی است. امروز بیش از هر زمان دیگری به اتحاد، همدلی و حمایت متقابل نیاز داریم تا صدای مردم افغانستان به گوش جهان برسد.»
+
+او درباره سکوت دولت‌ها و نهادهای بین‌المللی در برابر نقض حقوق بشر در افغانستان افزود: «جامعه جهانی به معامله‌ای که می‌خواست دست پیدا کرد و دیگر آنچه در افغانستان می‌گذرد، برای آنها اهمیتی ندارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343470
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343470_1781997310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، وضعیت جسمانی آمنه بیرقداری، زندانی سیاسی ۶۱ ساله، که پیش‌تر به‌طور ناگهانی به بند مجرمان خطرناک زندان وکیل‌آباد مشهد منتقل شده بود، به شدت وخیم شده است.
+بر پایه این اطلاعات، او در روزهای اخیر قربانی زورگیری در داخل زندان شده و در پی بروز فلج عصبی موقت، در بهداری این بند بستری شده است.
+بر اساس این اطلاعات، آمنه بیرقداری کرهرودی، معلم بازنشسته‌ای که در جریان سرکوب اعتراضات دی‌ماه با اتهام «لیدری اعتراضات» در فریمان، شامگاه ۱۷ دی ۱۴۰۴ در منزلش در این شهر بازداشت شد، از ۲۸ خرداد، برخلاف اصل تفکیک جرائم، به بند دو زندان زنان وکیل‌آباد مشهد، محل نگهداری مجرمان خطرناک، منتقل شده است.
+منبع مطلعی که درباره وضعیت او با ایران‌اینترنشنال صحبت کرد، گفت «بند ۲ محل نگهداری زندانیان جرائم خشن و سابقه‌دار است که از جمله به خاطر قتل، توزیع مواد مخدر، زورگیری و سرقت بازداشت و محکوم شده‌اند.»
+https://iranintl.com/202606206385
+</div>
+
+## IranIntlTV — post 343469
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343469_1781997311.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهوری آمریکا، روز شنبه واشینگتن را به مقصد سوئیس ترک کرد تا روز یکشنبه در مذاکرات با جمهوری اسلامی شرکت کند. او به خبرنگاران گفت امیدوار است در «موضوع هسته‌ای» و «مسئله آتش‌بس لبنان» پیشرفت حاصل شود.
+ونس پیش از سوار شدن به هواپیمای خود به مقصد ژنو گفت: «با وجود تیترهای خبری، اوضاع در لبنان در واقع بهتر شده و تا حدی آرام‌تر شده است.»
+او افزود این مسئله باید به‌طور مداوم مدیریت شود تا «اسرائیل و لبنان هر دو امن و باثبات باشند.»
+</div>
+
+## IranIntlTV — post 343468
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343468_1781997312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رجا نیوز، رسانه‌ نزدیک به جریان‌های محافظه‌کار، گزارش داد رهبر جدید جمهوری اسلامی در واکنش به مذاکرات اسلام‌آباد، نسبت به مطرح شدن پرونده هسته‌ای در گفت‌وگوها و رعایت نشدن شروطی که پیش‌تر تعیین شده بود، اعتراض کرده و این مذاکرات را «خلاف شرع» دانسته است.
+بر اساس این گزارش، اعضای شورای عالی امنیت ملی در نامه‌ای به رهبر جمهوری اسلامی از ضرورت طرح موضوع هسته‌ای در مذاکرات دفاع کرده و نسبت به ادامه درگیری‌ها و احتمال حمله به زیرساخت‌های کشور ابراز نگرانی کرده‌اند.
+رجا نیوز نوشت رهبر جمهوری اسلامی در پاسخ به این نامه تاکید کرده است مذاکرات «نه در دنیا و نه در آخرت منفعتی نخواهد داشت» و مانع حمله به زیرساخت‌های ایران نیز نخواهد شد.
+
+https://iranintl.com/202606202446
+</div>
+
+## IranIntlTV — post 343467
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343467_1781997312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد علوی، استاد دانشگاه و اقتصاددان، درباره ادامه اختلال در خدمات بانکی در ایران گفت: «چنین اختلالی فقط یک مشکل فنی نیست، بلکه مستقیما بر معیشت مردم اثر می‌گذارد.»
+
+او افزود: « در این شرایط، دسترسی به کالاهای ضروری، خدمات درمانی و پرداخت‌های روزانه مختل می‌شود و در شرایط رکود و تورم، فشار بیشتری بر زندگی شهروندان وارد خواهد کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343466
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343466_1781997314.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با حضور جی‌دی ونس و محمدباقر قالیباف برای آغاز مذاکرات تهران و واشینگتن در سوئیس، دونالد ترامپ گفت هیچ‌گونه عوارضی در تنگه هرمز وجود نخواهد داشت مگر به نفع آمریکا.
+
+در مقابل، نیروی دریایی سپاه پاسداران اعلام کرد تنگه هرمز بار دیگر بسته شده و شناورها نباید به این تنگه نزدیک شوند.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343465
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343465_1781997315.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی پیش از جنگ اخیر مدعی بود توانایی ساخت بمب اتم را دارد، اما در صورت توافق هسته‌ای این ادعا عملا بی‌اعتبار می‌شود. با آسیب دیدن تاسیسات هسته‌ای، محدود شدن فعالیت‌ها و افزایش بازرسی‌ها، بخش مهمی از اهرم هسته‌ای جمهوری اسلامی از بین خواهد رفت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343464
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343464" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: دو رویی مجتبی؛ رجز در تهران، نرمش در سوئیس
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343463
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343463_1781997317.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال آلمان در دومین بازی خود در مرحله گروهی جام جهانی برابر ساحل عاج دو بر یک پیروز شد.
+
+🔹شاگردان ناگلزمان که نیمه اول را با گل فرانک کسیه بازنده به رختکن رفته بودند، در نیمه دوم با دبل دنیز اونداف بازگشتی هیجان‌انگیز ثبت کردند و با شش امتیاز صعود خود به دور حذفی را قطعی کردند.
+
+🔹اونداف گل پیروزی‌بخش تیمش را در دقیقه چهارم وقت‌های تلف‌شده به ثمر رساند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343462
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343462_1781997317.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی اهمیت تفاهم‌نامه باآمریکا را کم‌اهمیت جلوه می‌دهد و مسئولیتش را به گردن پزشکیان می‌اندازد، چون نگران موضوع مهم‌تری در پیش رو است. طی حدود ۶۰ روز آینده، نتیجه مذاکرات با آمریکا مشخص می‌شود؛ یا توافقی حاصل می‌شود که به معنای پذیرش شکست پرهزینه‌ترین پروژه جمهوری اسلامی است، یا توافقی در کار نخواهد بود و خطر جنگ افزایش می‌یابد.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 221370
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221370_1781997318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تجمع هوادارن سازمان مجاهدین خلق در پاریس به درگیری با پلیس کشیده شد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221369
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221369_1781997319.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حال و هوای لس‌آنجلس پیش از بازی دوم ایران، گزارش آرمیتا آزاد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221368
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از دشمنی تا «رابطه ویژه»؛ داستان روابط بریتانیا و آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221367
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221367_1781997321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تیم فوتبال ایران یا جمهوری اسلامی؛ پاسخ رضا تقی زاده، تحلیلگر روابط بین الملل
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: کسانی که بناهای ملی ما را تخریب می‌کنند سال‌‌ها زندان در انتظارشان است
+
+▪️دونالد ترامپ، رئيس جمهوری آمریکا اعلام کرد که «نیروهای پلیس پارک‌های آمریکا چندین نفر را به دلیل تخریب حوض بازتاب ملی کشورمان بازداشت کرده‌اند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163011.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جام جهانی ۲۰۲۶؛ آلمان دو − ساحل عاج یک
+
+تیم ملی آلمان در دومین دیدار خود در گروه E جام جهانی ۲۰۲۶، با نتیجه ۲ بر ۱ ساحل عاج را شکست داد و به دومین پیروزی پیاپی خود رسید. ساحل عاج در نیمه نخست با گل فرانک کاسیه در دقیقه ۳۰ پیش افتاد. آلمان که پیش‌تر دو گل مردودشده در نیمه اول داشت، در نیمه دوم با گل دنیس اونداف در دقیقه ۶۸ بازی را مساوی کرد.
+اونداف در واپسین لحظات بازی بار دیگر دروازه ساحل عاج را باز کرد تا پیروزی آلمان را رقم بزند. پیروزی مقابل ساحل عاج، آلمان را با ۶ امتیاز به صدر جدول گروه و به این ترتیب به مرحله یک‌شانزدهم نهایی رساند. ساحل عاج با ۳ امتیاز در جایگاه دوم قرار دارد و اکوادور و کوراسائو پیش از برگزاری دیدار دوم خود هنوز موفق به کسب امتیاز نشده‌اند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17710
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17710_1781997322.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+F-22 Raptor
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23037
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23037_1781997323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خواهیم دید چه خواهد شد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284531
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نگاهی به مهمترین تحولات مرتبط با ایران در روز شنبه
+
+▪️ارتش آمریکا روز شنبه ادعای سپاه پاسداران درباره بستن تنگه هرمز را رد کرد و گفت این آبراه حیاتی همچنان باز است و نیروهای آمریکایی در حال نظارت بر اوضاع هستند تا از ادامه این روند اطمینان حاصل کنند.
+
+▪️پیشتر قرارگاه خاتم‌الانبیا در اطلاعیه‌ای اعلام کرده بود که تنگۀ هرمز به روی شناورها «بسته خواهد شد.» نیروی دریایی سپاه پاسداران در اطلاعیه‌ای اعلام کرد که «شناورها به تنگه هرمز نزدیک نشوند.»
+
+▪️جی‌دی ونس، معاون اول رئیس‌جمهور آمریکا، گفت که جرد کوشنر و استیو ویتکاف در حال بررسی برخی از عناصر فنی مذاکرات برنامه‌ریزی شده با ایران، در سوئیس هستند. او گفت: «برداشت من از صحبت با جرد و استیو این است که اوضاع خوب پیش می‌رود.»
+
+▪️وزیر کشتیرانی هند، روز شنبه اعلام کرد که سه نفت‌کش با پرچم این کشور، با بیش از ۸۶۰ هزار تن نفت و ۹۴ خدمه، به سلامت از تنگه هرمز عبور کرده و در مسیر هند هستند.
+
+▪️وزارت خارجه سوئیس روز شنبه اعلام کرد که این کشور همچنان به ارائه «محیطی امن و قابل اعتماد» در بورگن‌اشتوک برای تسهیل مذاکرات در مورد اجرای یادداشت تفاهم بین ایالات متحده و ایران ادامه می‌دهد.
+
+https://bbc.in/43NMqpW
+@BBCPersian
+</div>
+
+## BBCPersian — post 284530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پوشش زنده مذاکرات ایران و آمریکا
+
+برای دریافت تازه‌ترین خبرها و گزارش‌های تصویری گفت‌وگوهای فنی ایران و آمریکا در روز یکشنبه ۳۱ خرداد ۱۴۰۵ برابر با ۲۱ ژوئن ۲۰۲۶ با پوشش زنده بی‌بی‌سی فارسی همراه شوید.
+
+https://bbc.in/43NMqpW
+@BBCPersian
+</div>
+
+## BBCPersian — post 284529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پایان پوشش زنده تحولات ایران و آمریکا در روز شنبه
+
+در اینجا پوشش زنده تحولات ایران و آمریکا در روز شنبه ۳۰ خرداد/۲۰ ژوئن بی‌بی‌سی فارسی به پایان می‌رسد. از این که تا این لحظه همراه ما بودید صمیمانه سپاسگزاریم.
+
+https://bbc.in/4uSiKmu
+@BBCPersian
+</div>
+
+## BBCPersian — post 284528
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284528_1781997323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شهباز شریف، نخست‌وزیر و فیلد مارشال عاصم منیر، فرمانده کل ارتش و نیروهای مسلح پاکستان در گفت‌وگوهای فنی فردا یکشنبه ۳۱ خرداد/۲۱ ژوئن در بورگن‌اشتوک سوئیس، شرکت خواهند کرد.
+
+دفتر نخست‌وزیری پاکستان روز شنبه این خبر را اعلام کرد. وزارت خارجه پاکستان پیش‌تر گفته بود که نمایندگان آمریکا و ایران نیز همراه با میانجی‌هایی از پاکستان و قطر در این نشست حضور خواهند داشت.
+
+رسانه‌های ایران پیشتر گزارش دادند که هیئت مذاکره‌کننده ایرانی به ریاست محمد باقر قالیباف به همراه عباس عراقچی، وزیر امور خارجه ایران عازم سوئیس شده‌اند.
+
+📸 Getty
+
+https://bbc.in/4uSiKmu
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه! 
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی 
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان 
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان میدونستی با انتخاب…
+</div>
+
+## Dirty_Kids — post 392712
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392712_1781997324.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه!
+
+
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی
+
+
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان
+
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان
+
+میدونستی با انتخاب برد ژاپن مقابل تونس با ده میلیون شونزده میلیون تومن برنده میشی؟!
+💖
+
+
+💸 هرچی بزرگ‌تر بازی کنی، جایزت بزرگ‌تره!
+
+🥅همین حالا پیش بینیتو ثبت کن
+💖
+https://fido874vt.click
+https://fido874vt.click
+
+👆
+👆
+👆
+👆
+👆
+(ورود با وی-پی-ان غیر اروپایی)
+❌
+A30
+
+📲کانال تلگرام 
+👇
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 392711
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392711_1781997325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392710
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392710_1781997325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوشته پشت موتور یک خانم: لطفا نزدیک نشید میترسم، تازه یاد گرفتم :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392709
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392709_1781997326.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه سمی بود من دیدم 🤣🤣🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392708
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392708_1781997327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکت:
+پیمان قاسم خانی تنها کسی هست که دلش برای اکسش تنگ نمیشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392707
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392707_1781997327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏+کاش می‌دانستم سرنوشت دوشیزه سارا تونی چه شد...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392705
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392705_1781997327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چند ساعت پیش عباس خوش قدم برای مذاکرات رفت سوئیس🇨🇭
+
+حالا حدس بزنین چیشد؟ تو شهر زوریخِ سوئیس، چنان طوفانی شد که تو تاریخ سابقه نداشته.
+کلی درخت کنده شد و افتاد رو مردم بدبخت و خیلیا مصدوم و کشته شدن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129475
+
+<div align="center">
+  <a href="telegram/content/alonews_129475_1781997328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چند ساعت پیش عباس خوش قدم (سید عباس عراقچی) رسید زوریخِ سوئیس، الانم این شهر طوفان شدیدی شده و کلی درخت افتاده روی مردم و مصدوم زیاد داشته.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129474
+
+<div align="center">
+  <a href="telegram/content/alonews_129474_1781997329.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری تیلیوزیون: باید فرودگاه مهرآباد رو ببندیم تا هی نرن مذاکره کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/31 01:20
 ---
 
