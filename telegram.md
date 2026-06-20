@@ -7,6 +7,1358 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 22:18
+---
+
+## VahidOOnLine — post 246562
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246562_1781981326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که یک گروهبان ۲۱ ساله اسرائیلی، شامگاه جمعه در جنوب لبنان در یک حمله پهپادی کشته شده است.
+
+بر اساس بیانیه ارتش اسرائیل، در این حمله ۱۳ سرباز دیگر زخمی شدند و از میان زخمی‌ها، حال دو نفر وخیم، یک نفر متوسط و ۱۰ نفر دیگر سطحی گزارش شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246561
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246561_1781981327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیروی دریایی سپاه پاسداران پیام رادیویی به تمامی کشتی‌ها مخابره کرد که در پی شرایط اخیر در لبنان و آنچه «نقض تعهدات آمریکا درباره آتش‌بس» عنوان شده، تنگه هرمز بسته است.
+در این پیام تأکید شده: «تنگه هرمز بسته است» و از تمامی شناورها خواسته شده از نزدیک شدن به این محدوده خودداری کنند.
+
+جمهوری اسلامی مدعی شده با توجه به نقض آتش‌بس از سوی آمریکا تنگه هرمز را بسته است این درحالی است که سنتکام با انتشار پیامی از باز بودن تنگه هرمز خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246560
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246560_1781981328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گزارش «تایمز اسرائیل»، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تاکید کرده است که نیروهای نظامی این رژیم «تا هر زمان که برای دفاع از مرزهای شمالی لازم باشد»، در جنوب لبنان باقی خواهند ماند.
+
+یک مقام ارشد در دفتر نخست‌وزیری اسرائیل روز شنبه ۳۰ خرداد با اعلام این موضع به رسانه‌ها افزود که نتانیاهو به ارتش دستور داده است تا «به هرگونه حمله از سوی حزب‌الله با قدرت پاسخ دهد و برای از بین بردن هرگونه تهدید علیه نیروهای اسرائیل فورا اقدام کند.»
+
+تاکید نخست‌وزیر اسرائیل بر باقی‌ماندن نیروهای این کشور در خاک لبنان در حالی انجام می‌شود که فرستادگان جمهوری اسلامی و آمریکا قرار است روز یکشنبه در سوئیس مذاکرات خود را آغاز کنند. جمهوری اسلامی، تداوم عملیات اسرائیل در لبنان و حضور این نیروها را ناقض مفاد تفاهم‌نامه امضاشده میان تهران و واشنگتن می‌داند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246559
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246559_1781981328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی سخنان محمود نبویان، عضو کمیسیون امنیت ملی مجلس در یک برنامه تلویزیونی، معاونت سیاسی صداوسیما اعلام کرد سخنان او و اشاره‌اش به برخی اسناد دارای طبقه‌بندی و مکاتبات مسئولان عالی کشور، مصداق تخلف قانونی و مستوجب پیگرد قضایی است.
+
+سازمان صداوسیما اعلام کرد که پیگیری‌های لازم را در این خصوص در دستور کار قرار می‌دهد.
+
+معاونت سیاسی صدا و سیما همچنین اعلام کرد در همین رابطه یک مدیرکل این سازمان استعفا کرده و «برخوردهای انضباطی لازم» در این خصوص به عمل خواهد آمد.
+
+محمود نبویان در این برنامه تلویزیونی گفته بود مجتبی خامنه‌ای ۱۱ شرط درباره مذاکرات مشخص کرده بود که گرفتن غرامت از آمریکا، حق غنی‌سازی، رفع تحریم‌ها، آزادی اموال مسدودشده و اعمال حاکمیت در تنگه هرمز از جمله آن‌ها بوده است. او همچنین گفته که مجتبی خامنه‌ای خواسته بود اخذ عوارض از تنگه هرمز از همین حالا آغاز شود.
+
+نبویان با خواندن متونی که نامه‌های به‌کلی سری مجتبی خامنه‌ای خوانده شده، اضافه کرد پس از مذاکرات اسلام‌آباد، مجتبی خامنه‌ای برای تیم مذاکره‌کننده نوشته است: «آنچه در مذاکرات پاکستان رقم خورده با آنچه قرار بود بشود و شرط مشروعیت مذاکرات بوده، تفاوت کلی دارد و مذاکرات باید متوقف شود.»
+
+نبویان تاکید کرد که مجتبی خامنه‌ای گفته بود در مورد موضوع هسته‌ای مذاکره نکنید؛ یا باید به پیروزی برسید، یا اینکه مساله هسته‌ای برای همیشه از دستورکار مذاکرات خارج شود.
+متن کامل را در سایت ایران‌اینترنشنال بخوانید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد جاویدنام محمدرضا زارعی بخشایش، از معترضان کشته‌شده در انقلاب ملی، قبل از حضور در اعتراضات تصویری از خود ضبط کرده و گفته بود شاهزاده رضا پهلوی را بهترین شخص برای بازگشت شکوه ایران می‌دانم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246557
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246557_1781981329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌بی‌اس اعلام کرد رافائل گروسی، مدیر کل آژانس بین‌المللی انرژی اتمی، در مذاکرات میان جمهوری اسلامی و آمریکا در سوئیس، شرکت خواهد کرد.
+
+همچنین الجزیره به نقل از یک منبع دولتی پاکستان گزارش داد که شهباز شریف، نخست‌وزیر پاکستان، و عاصم منیر، فرمانده ارتش این کشور یکشنبه به سوئیس سفر خواهند کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246556
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246556_1781981329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ هم‌زمان با آماده‌سازی‌ها برای آغاز گفتگوهای فنی میان مذاکره‌کنندگان تهران و واشنگتن، سی‌بی‌اس به نقل از یک منبع آگاه اعلام کرد که رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، به‌منظور هدایت بخشی از مذاکرات فنی مربوط به برنامه هسته‌ای ایران وارد سوئیس شده است.
+
+بر اساس یادداشت تفاهم ۱۴ ماده‌ای اسلام‌آباد، آژانس بین‌المللی انرژی اتمی وظیفه راستی‌آزمایی بازرسی‌ها و نظارت بر فرآیند رقیق‌سازی اورانیوم غنی‌شده ایران را بر عهده خواهد داشت. حضور گروسی در بورگن‌اشتوک نشان‌دهنده آغاز گام‌های عملی برای اجرای این بند کلیدی از تفاهم‌نامه است.
+
+هم‌زمان گزارش‌ها حاکی از آن است که شهباز شریف، نخست‌وزیر پاکستان، به همراه فیلد مارشال عاصم منیر، فرمانده ارتش این کشور، روز یکشنبه به این مذاکرات در سوئیس خواهند پیوست تا در کنار میانجی‌گران قطری و نمایندگان ایران و آمریکا، روند حل‌وفصل ابعاد فنی و استراتژیک توافق پایان جنگ را تسریع کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246555
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246555_1781981330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد جواد علیکردی، وکیل دادگستری و برادر خسرو علیکردی، از سوی شعبه اول دادگاه انقلاب مشهد به ۱۸ سال حبس، محرومیت دائم از وکالت، دو سال تبعید به سراوان و دو سال ممنوعیت خروج از کشور محکوم شده است.
+
+بر اساس این گزارش، جواد علیکردی به اتهام «اجتماع و تبانی برای اقدام علیه امنیت ملی» و «فعالیت تبلیغی برخلاف امنیت ملی» محکوم شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15442
+
+
+
+
+## WithYashar — post 15441
+
+
+
+
+## WithYashar — post 15440
+
+
+
+
+## WithYashar — post 15439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به الجزیره گفت که ارتش اسرائیل به سنتکام اطلاع داده است که به واحدهای خود دستور داده است که به آتش‌بس در لبنان پایبند باشند
+@withyashar
+</div>
+
+## WithYashar — post 15438
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15438_1781981330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدار وزیر کشور پاکستان با پزشکیان
+@withyashar
+</div>
+
+## WithYashar — post 15437
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15437_1781981331.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر قمیشی : به عمویم سیاوش قمیشی گفتم ترامپ برادرت را کشت
+
+سیروس قمیشی برادر سیاوش قمیشی (خواننده و آهنگساز مشهور ایرانی) بود و پدر «امیر قمیشی» (از تهیه‌کنندگان و برنامه‌سازان تلویزیون رژیم) به شمار می‌رفت. وی در جریان بمباران بیمارستان گاندی تهران کشته شد و طبق گزارش‌های خبری، تنها یک روز تا زمان ترخیص و پایان درمان وی باقی مانده بود
+@withyashar
+</div>
+
+## WithYashar — post 15436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبویان، نماینده مجلس: آمریکا بعد از شهادت آقا از طریق یکی از کشورهای اروپایی، پیام داد که بیایید مثل ونزوئلا تسلیم شوید! وی‌در ادامه با دلایل بسیار گفت ماجرای مذاکرات رسما کودتای آقایان علیه رهبری بود! و صدا و سیما هم حرفاشو قطع کرد ! @withyashar 🚨
+</div>
+
+## WithYashar — post 15435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar ماجرای ببر از زبان امیر تتلو حالا شد جریان عاصم منیره پاکستان
+</div>
+
+## WithYashar — post 15434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از یک منبع آگاه: نخست‌وزیر پاکستان و مارشال عاصم منیر فردا در مذاکرات سوئیس شرکت خواهند کرد.
+@withyashar
+</div>
+
+## mwarmonitor — post 11287
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11287_1781981333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️🚨فعالیت‌ها بر فراز تنگه هرمز با ورود شمار بیشتری از هواپیماهای سوخت‌رسان KC-135 «استراتوتانکر» نیروی هوایی آمریکا و همچنین یک فروند هواپیمای هشدار زودهنگام و کنترل هوابرد E-3 «سِنتری» که در مسیر اعزام به منطقه خلیج فارس است، در حال افزایش است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل اعلام کرد که عملیات خود را در «منطقه امنیتی» اعلام‌شده‌اش در جنوب لبنان ادامه می‌دهد؛ از جمله در یک سامانه بزرگ تونلی حزب‌الله که ده‌ها نیروی این گروه در آن پناه گرفته‌اند، اما در سایر مناطق کشور «آتش خود را متوقف کرده است».
+
+🔸ارتش اسرائیل می‌گوید پس از موجی از حملات هوایی علیه حزب‌الله در شب گذشته و صبح امروز ــ در پاسخ به حملات علیه نیروهایش ــ از سوی رهبری سیاسی دستور آتش‌بس دریافت کرده است.
+
+🔸با این حال، ارتش تأکید می‌کند که همچنان به تخریب زیرساخت‌های حزب‌الله در داخل منطقه امنیتی خود ــ از جمله در ارتفاعات علی‌طاهر ــ ادامه خواهد داد و همچنین «تهدیدات فوری» خارج از این منطقه را هدف قرار می‌دهد.
+
+🔸به ارزیابی ارتش، حزب‌الله یک تأسیسات زیرزمینی بزرگ و «راهبردی» در زیر ارتفاعات علی‌طاهر، در نزدیکی نبطیه، در اختیار دارد. به گفته ارتش، این پایگاه زیرزمینی «مرکز عصبی» یگان منطقه‌ای بدرِ حزب‌الله است.
+
+🔸بر اساس اعلام ارتش، ده‌ها نیروی حزب‌الله همچنان در این مجموعه زیرزمینی پناه گرفته‌اند و طی روزهای اخیر درگیری‌ها هم در سطح زمین و هم در زیر زمین جریان داشته است.
+
+🔸ارتفاعات علی‌طاهر در ابتدا جزو منطقه امنیتی ارتش در جنوب لبنان نبود. اما روز پنج‌شنبه، ارتش اسرائیل نقشه به‌روزشده «منطقه دفاع پیشرو» را منتشر کرد که اکنون علی‌طاهر و همچنین منطقه مجدل‌زون را نیز دربر می‌گیرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یدیعوت آحرونوت به نقل از منابع نظامی:
+ارتش اسرائیل ده‌ها نفر از نیروهای حزب‌الله را در منطقه «علی‌الطاهر» محاصره کرده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 343212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+STOLEN LAND: Obama Presidential Center features permanent display condemning 'settler colonialism' — while sitting on public parkland transferred to the Obama Foundation for $10 under a 99-year deal.
+
+Illinois GOP Chair Bob Grogan say the real theft was from Chicago taxpayers, not Indigenous tribes.
+http://foxnews.com/politics/obama-center-embeds-indigenous-land-message-controversial-site
+</div>
+
+## FoxNewsTwitter — post 343211
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343211_1781981333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"You will be quiet now... you and your shameful report."
+
+Israel’s U.N. Ambassador Danny Danon erupted during a public hearing after U.N. official Vanessa Frazier interrupted him and defended her report blacklisting Israel over alleged violations against children in conflict.
+
+Danon accused U.N. officials of bias, telling them: “You caved to the secretary-general’s obsession with targeting Israel.”
+
+When Frazier objected and demanded Danon stop the “personal attacks,” saying she had “verified evidence,” Danon fired back: “We are a member state, and you work for the U.N., and you will be quiet now.”
+
+The clash came as both Israel and Hamas were named in U.N. reports tied to alleged abuses during the conflict.
+</div>
+
+## FoxNewsTwitter — post 343210
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343210_1781981335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: U.S. officials are dismissing claims by Iran's Revolutionary Guard that it has closed the Strait of Hormuz over ongoing tensions between Israel and Lebanon.
+
+A senior official tells FOX News that Iran can't close the Strait because "they don't control it," and points to a high volume of ships now transiting the critical waterway.
+</div>
+
+## FoxNewsTwitter — post 343208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Ranch lovers, consider yourselves warned.
+
+After the TSA reminded travelers that oversized bottles of ranch belong in checked bags, the internet immediately got to work offering solutions — from powdered ranch packets to DIY travel hacks.
+
+Now Kraft is joining the conversation.
+
+The company is teasing what it calls "Kraft TSA Compliant Ranch," a travel-friendly version designed to help visitors bring the taste of America home.
+</div>
+
+## FoxNewsTwitter — post 343207
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343207_1781981337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Our taxpayers work way too hard to lose this kind of money to fraudsters... this is absolutely unacceptable."
+
+Sen. Joni Ernst discusses "fraud-fluencers" who allegedly stole COVID-era relief funds in major fraud scam. | @SatAmericaFNC
+</div>
+
+## pm_afshaa — post 94470
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94470_1781981337.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نبویان امروز تو شبکه خبر رسما اعلام کرد که کودتای قالیباف علیه مجتبی خامنه‌ای بوده و صداوسیما بلافاصله حرفاش رو قطع کرد و بعد از چند ساعت چنین بیانیه‌ای داد: به استحضار مخاطبان محترم شبکه خبر می‌رساند اظهارات یک نماینده مجلس دعوت شده به برنامه امروز زنده…
+</div>
+
+## pm_afshaa — post 94468
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94468_1781981338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نبویان امروز تو شبکه خبر رسما اعلام کرد که کودتای قالیباف علیه مجتبی خامنه‌ای بوده و صداوسیما بلافاصله حرفاش رو قطع کرد و بعد از چند ساعت چنین بیانیه‌ای داد:
+
+
+به استحضار مخاطبان محترم شبکه خبر می‌رساند اظهارات یک نماینده مجلس دعوت شده به برنامه امروز زنده این شبکه و اشاره ناقص و مخدوش وی به برخی اسناد دارای طبقه بندی و مکاتبات مسوولان عالی کشور، مصداق تخلف قانونی و مستوجب پیگرد قضایی است و سازمان صدا و سیما پیگیری‌های لازم را در این خصوص در دستور کار قرار می‌دهد
+
+شبکه خبر ضمن ابراز تاسف بابت بی توجهی میهمان مذکور به قواعد اخلاقی و الزامات آنتن زنده، به اطلاع می‌رساند مدیریت این شبکه ضمن پذیرش استعفای مدیر کل مربوطه، برخوردهای انضباطی لازم را به دلیل بی توجهی به الزامات برنامه‌های زنده و سهل‌انگاری در مدیریت حرفه ای به عمل خواهد آورد.
+
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94467
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94467_1781981339.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: اظهارات نبویان در شبکه خبر تخلف بوده و پیگرد قضایی خواهد شد.
+
+نبویان نماینده مجلس، امروز تمام مکالمات مجتبی خامنه‌ای با تیم مذاکره‌کننده رو فاش کرد که وسطاش برنامه رو قطع کردن.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94466
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94466_1781981340.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: سنتکام اعلام کرد ایران کنترل تنگه هرمز رو در اختیار نداره و تردد کشتی‌ها همچنان بدون مشکل ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5853
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5853_1781981341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+شنبه ۳۰ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DEJradio — post 5852
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5852_1781981343.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 "قالیباف بی‌غیرت یادش رفته قاسم سلیمانی و خامنه‌ای و سلامی رو کی کشت، رفته سوئیس سند تسلیم امضا کنه، تقصیر هم‌ میندازن گردن مترسکی مثل عراقچی و پزشکیان
+
+پیام دریافتی
+
+#توافق #قالیباف #کتلت
+@DEJradio
+</div>
+
+## VahidOnline — post 76554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما: افشای مکاتبات مجتبی خامنه‌ای از سوی نبویان در شبکه خبر پیگیرد قضایی دارد
+
+صداوسیمای جمهوری اسلامی ایران اظهارات محمود نبویان، نایب‌رئیس کمیسیون امنیت ملی مجلس، در شبکه خبر پیرامون مذاکرات پیش رو بین ایران و آمریکا را «مصداق تخلف قانونی و مستوجب پیگرد قضایی» عنوان و اعلام کرد «مدیرکل مربوطهٔ این شبکه استعفا کرده است».
+
+محمود نبویان، که به جناح تندرو موسوم به «پایداری» تعلق دارد، روز شنبه ۳۰ خرداد با خواندن بخش‌هایی از متن‌هایی که گفت مکاتبات مجتبی خامنه‌ای با هیئت مذاکره‌کننده است، مدعی شد رهبر جمهوری اسلامی در مراحل مختلف با روند مذاکرات و بندهای متن‌های گوناگون مرتبط با مذاکرات مخالف بوده است.
+
+این گفت‌وگو پیش از آن‌که نبویان به متن نهایی تفاهم‌نامه برسد، قطع شد و موجی از واکنش‌ها را در میان دیگر چهره‌ها و فعالان رسانه‌ای جمهوری اسلامی در پی داشت.
+
+صداوسیما در بیانیهٔ خود اعلام کرد نبویان در اظهاراتش «اشارهٔ ناقص و مخدوش به برخی اسناد دارای طبقه‌بندی» داشته و سعید آجورلو، عضو تیم رسانه‌ای هیئت مذاکره‌کننده و از چهره‌های نزدیک محمدباقر قالیباف، نیز او را به «تحریف عمدی متون» با هدف «فرار از پاسخگویی درباره ادعاهای نادرست قبلی» متهم کرد.
+
+محمود نبویان، ۲۳ خرداد ماه، در آستانهٔ امضای تفاهم‌نامهٔ ایران و آمریکا، در یک برنامهٔ زنده در یک خبرگزاری نزدیک به سپاه، متنی را که مدعی بود تفاهم‌نامهٔ ایران و آمریکا است، روخوانی و از برخی بندهای آن به‌شدت انتقاد کرده بود.
+
+نبویان یکی از اعضای گروهی بود که پس از اعلام آتش‌بس جنگ ۴۰ روزه، همراه هیئت مذاکره‌کنندهٔ با آمریکا به اسلام‌آباد رفته بود.
+
+مجتبی خامنه‌ای، که پس از اعلام رهبری هنوز هیچ صدا و تصویری از او منتشر نشده، پس از امضای تفاهم‌نامه توسط رؤسای جمهور ایران و آمریکا در پیامی مکتوب اعلام کرد «نظر دیگری» داشته اما «با تعهدی» که پزشکیان به او داده، مسئولیت آن را بر عهده مسعود پزشکیان، رئیس شورای عالی امنیت ملی، و دیگر اعضای این شورا گذاشته است.
+@VahidHeadline
+
+حمید رسایی با انتشار ویدیوی بالا نوشت:
+نبویان در آنتن زنده شبکه خبر، در حال تشریح جزئیات نامه‌های رد و بدل‌شده میان رهبر معظم انقلاب و شورای عالی امنیت ملی بود که پخش برنامه به بهانه میان‌برنامه به صورت کامل متوقف شد!
+ما که از یادداشت‌های آن امام شهید در این باره اطلاع پیدا نکردیم ولی گوشه‌ای از یادداشت‌های امام حاضر توسط آقای نبویان در حال پخش از سیما بود مانع آن شدند!
+
+صدا و سیما:
+🔹روابط عمومی معاونت سیاسی صداوسیما: به استحضار مخاطبان محترم شبکه خبر می‌رساند اظهارات یک نماینده مجلس دعوت‌شده به برنامه امروز زنده این شبکه و اشاره ناقص و مخدوش وی به برخی اسناد دارای طبقه‌بندی و مکاتبات مسئولان عالی کشور، مصداق تخلف قانونی و مستوجب پیگرد قضایی است و سازمان صداوسیما پیگیری‌های لازم را در این خصوص در دستور کار قرار می‌دهد.
+
+🔹شبکه خبر ضمن ابراز تاسف بابت بی‌توجهی مهمان مذکور به قواعد اخلاقی و الزامات آنتن زنده، به اطلاع می‌رساند مدیریت این شبکه ضمن پذیرش استعفای مدیرکل مربوطه، برخوردهای انضباطی لازم را به دلیل بی‌توجهی به الزامات برنامه‌های زنده و سهل‌انگاری در مدیریت حرفه‌ای به عمل خواهد آورد.
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 343430
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343430_1781981343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسپورزا گزارش داد که جرمی دوکو، ستاره تیم ملی فوتبال بلژیک، بار دیگر با عفونت دستگاه تنفسی مواجه شده و بنابراین به طور قطعی در دیدار فردا برابر ایران حضور نخواهد داشت.
+
+🔹وینسنت مانارت، مدیر ورزشی فدراسیون فوتبال بلژیک در این باره گفت: «به او استراحت می‌دهیم و تلاش می‌کنیم برای بازی سوم آماده‌اش کنیم.»
+
+🔹بر اساس این گزارش دوکو در هفته‌های اخیر نیز با مشکلات تنفسی دست‌وپنجه نرم می‌کرد. او در حالی از بلژیک راهی اردوی تیم شده بود که سرماخوردگی شدیدی داشت، اما به نظر می‌رسید روند بهبودی را طی می‌کند. نمایش خوب او در نیمه دوم بازی برابر مصر نیز این موضوع را نشان می‌داد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343429
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343429" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: قالیباف و ونس در راه سوئیس، سپاه گفت تنگه هرمز بسته است، سنتکام رد کرد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343428
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343428_1781981344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که یک گروهبان ۲۱ ساله اسرائیلی، شامگاه جمعه در جنوب لبنان در یک حمله پهپادی کشته شده است.
+
+بر اساس بیانیه ارتش اسرائیل، در این حمله ۱۳ سرباز دیگر زخمی شدند و از میان زخمی‌ها، حال دو نفر وخیم، یک نفر متوسط و ۱۰ نفر دیگر سطحی گزارش شده است.
+https://iranintl.com/202606207917
+</div>
+
+## IranIntlTV — post 343427
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343427_1781981345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی سخنان محمود نبویان، عضو کمیسیون امنیت ملی مجلس در یک برنامه تلویزیونی، معاونت سیاسی صداوسیما اعلام کرد سخنان او و اشاره‌اش به برخی اسناد دارای طبقه‌بندی و مکاتبات مسئولان عالی کشور، مصداق تخلف قانونی و مستوجب پیگرد قضایی است.
+
+سازمان صداوسیما اعلام کرد که پیگیری‌های لازم را در این خصوص در دستور کار قرار می‌دهد.
+
+معاونت سیاسی صدا و سیما همچنین اعلام کرد در همین رابطه یک مدیرکل این سازمان استعفا کرده و «برخوردهای انضباطی لازم» در این خصوص به عمل خواهد آمد.
+
+محمود نبویان در این برنامه تلویزیونی گفته بود مجتبی خامنه‌ای ۱۱ شرط درباره مذاکرات مشخص کرده بود که گرفتن غرامت از آمریکا، حق غنی‌سازی، رفع تحریم‌ها، آزادی اموال مسدودشده و اعمال حاکمیت در تنگه هرمز از جمله آن‌ها بوده است. او همچنین گفته که مجتبی خامنه‌ای خواسته بود اخذ عوارض از تنگه هرمز از همین حالا آغاز شود.
+
+نبویان با خواندن متونی که نامه‌های به‌کلی سری مجتبی خامنه‌ای خوانده شده، اضافه کرد پس از مذاکرات اسلام‌آباد، مجتبی خامنه‌ای برای تیم مذاکره‌کننده نوشته است: «آنچه در مذاکرات پاکستان رقم خورده با آنچه قرار بود بشود و شرط مشروعیت مذاکرات بوده، تفاوت کلی دارد و مذاکرات باید متوقف شود.»
+
+نبویان تاکید کرد که مجتبی خامنه‌ای گفته بود در مورد موضوع هسته‌ای مذاکره نکنید؛ یا باید به پیروزی برسید، یا اینکه مساله هسته‌ای برای همیشه از دستورکار مذاکرات خارج شود.
+متن کامل را در سایت ایران‌اینترنشنال بخوانید.
+https://www.iranintl.com/202606206592
+</div>
+
+## IranIntlTV — post 343426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد جاویدنام محمدرضا زارعی بخشایش، از معترضان کشته‌شده در انقلاب ملی، قبل از حضور در اعتراضات تصویری از خود ضبط کرده و گفته بود شاهزاده رضا پهلوی را بهترین شخص برای بازگشت شکوه ایران می‌دانم.
+</div>
+
+## IranIntlTV — post 343425
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343425_1781981345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت حواشی و موضع‌گیری‌های اخیر درباره تفاهم ایران و آمریکا، از جمله تهدیدهای مطرح‌شده علیه مسعود پزشکیان و ادعای دوباره بستن تنگه هرمز، بیش از آنکه نشانه تصمیم‌های قطعی باشد، بیانگر ابهام و اختلاف در ساختار قدرت جمهوری اسلامی است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343424
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343424_1781981347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌بی‌اس اعلام کرد رافائل گروسی، مدیر کل آژانس بین‌المللی انرژی اتمی، در مذاکرات میان جمهوری اسلامی و آمریکا در سوئیس، شرکت خواهد کرد.
+
+همچنین الجزیره به نقل از یک منبع دولتی پاکستان گزارش داد که شهباز شریف، نخست‌وزیر پاکستان، و عاصم منیر، فرمانده ارتش این کشور یکشنبه به سوئیس سفر خواهند کرد.
+https://iranintl.com/202606201609
+</div>
+
+## IranIntlTV — post 343423
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343423_1781981347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌الله رحیم‌پور، تحلیلگر سیاسی، به ایران‌اینترنشنال گفت گره خوردن پرونده جنوب لبنان با تفاهم اخیر میان آمریکا و جمهوری اسلامی، از همان ابتدا این روند را با چالش روبه‌رو کرده است. به گفته او، جمهوری اسلامی تلاش می‌کند با افزایش فشار سیاسی بر آمریکا، واشینگتن را به استفاده از اهرم‌های خود علیه اسرائیل وادار کند و هم‌زمان از تمایل دولت آمریکا برای پیشبرد تفاهم، به‌عنوان فرصتی برای افزایش مطالبات خود بهره ببرد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343422
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343422_1781981349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیلا مروتی، تحلیل‌گر سیاسی، درباره افزایش تنش‌ها میان اسرائیل و حزب‌الله و تاثیر آن بر تفاهم‌نامه اسلام‌آباد گفت: «با وجود حملات و تنش‌هایی که امروز هم شاهد بودیم، هم نمایندگان جمهوری اسلامی و هم هیات آمریکایی به سوئیس رفتند.»
+
+او افزود: «این نشان می‌دهد که هر دو طرف، هم آمریکا و هم جمهوری اسلامی، مصمم هستند مسیر گفت‌وگوها ادامه پیدا کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343421
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343421_1781981350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد جواد علیکردی، وکیل دادگستری و برادر خسرو علیکردی، از سوی شعبه اول دادگاه انقلاب مشهد به ۱۸ سال حبس، محرومیت دائم از وکالت، دو سال تبعید به سراوان و دو سال ممنوعیت خروج از کشور محکوم شده است.
+
+بر اساس این گزارش، جواد علیکردی به اتهام «اجتماع و تبانی برای اقدام علیه امنیت ملی» و «فعالیت تبلیغی برخلاف امنیت ملی» محکوم شده است.
+https://iranintl.com/202606206216
+</div>
+
+## FarsiVOA — post 221353
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221353_1781981351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش «حال وش»، ۲۶ خرداد ۱۴۰۵، بخشی از سقف یکی از اتاق‌های بیمارستان «امام علی»، مرکز درمانی اصلی شهر چابهار، فروریخت. به رغم اینکه در زمان حادثه چند بیمار در اتاق بستری بودند آسیبی به افراد وارد نشد. فرسودگی ساختمان این بیمارستان پیش از این نیز نگرانی شهروندان را برانگیخته بود.
+</div>
+
+## FarsiVOA — post 221352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حکم سنگین دستگاه قضائی رژیم علیه جواد علی‌کردی؛ ۱۸ سال حبس و محرومیت دائم از وکالت
+
+▪️دادگاه انقلاب مشهد، جواد علیکردی، (برادر خسرو علیکردی، وکیل جان‌باخته) را به ۱۸ سال حبس، انفصال دائم از حرفه وکالت، دو سال منع خروج از کشور، و دو سال تبعید به شهر سراوان استان سیستان‌و‌بلوچستان محکوم کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-alikordi-javad-mashhad-prison-arrest-protest-lawyer/8162987.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با علی دادپی، اقتصاددان، از امید به گشایش اقتصادی در ایران همزمان با آغاز مذاکرات سوئیس گفتیم. به گفته علی دادپی، در شرایطی که اقتصاد ایران در محاصره نهادهای نظامی است و بانک‌ها به سوئیفت دسترسی ندارند، سخن گفتن از هرگونه گشایش اقتصادی بی‌معنا است.
+</div>
+
+## FarsiVOA — post 221350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار سپیده قلیان درباره شرایط فاطمه سپهری و فرزانه قره‌ حسنلو در زندان مشهد
+
+▪️سپیده قلیان، فعال سیاسی که به تازگی از زندان مشهد رهایی یافته، روز شنبه ۳۰ خرداد با انتشار متنی در حساب کاربری خود در ایکس نسبت به وضعیت فاطمه سپهری و فرزانه قره‌حسنلو، دو زندانی سیاسی محبوس در این زندان، هشدار داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/sepehri-gharahhasanlou-mashhad-gholian-prison/8162978.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افزایش بازداشت منتقدان و مخالفان جمهوری اسلامی در ایران به اتهام ادعایی «همکاری با دشمن» - گفت‌وگو با معین خزائلی
+</div>
+
+## FarsiVOA — post 221348
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش خبرگزاری رویترز درباره سود بردن سپاه پاسداران از کاهش یا لغو احتمالی تحریم‌ها - گفت‌وگو با شاهین مدرس
+</div>
+
+## FarsiVOA — post 221347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش «معاریو» از ابعاد پنهان زندگی حسن نصرالله: در پنت‌هاوس زندگی می‌کرد
+
+▪️یک روزنامه اسرائیلی با انتشار گزارشی تازه درباره حسن نصرالله، رهبر کشته‌شده حزب‌الله، جنبه‌های پنهان و ناگفته‌ای از زندگی او را منتشر کرده و روایت‌های جاری و تبلیغات این حزب درباره او را زیر سوال برده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/luxury-life-hezbollah-lebanon-poverty/8162956.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت اطلاعات ۱۷ تن را در ایلام به اتهام ادعایی «نفوذی بودن» بازداشت کرد
+</div>
+
+## FarsiVOA — post 221345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غنایی‌ها تورنتو را زردپوش کردند - برشی از «کامبک»، ویژه‌برنامه جام جهانی ۲۰۲۶، از صدای آمریکا
+</div>
+
+## FarsiVOA — post 221344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آغاز مذاکرات سوئیس در روزهای آینده زیر سایه تنش‌های منطقه‌ای؛ سرنوشت توافق در هاله‌ای از ابهام
+</div>
+
+## DW_Farsi — post 126249
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126249_1781981352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶مقامات بهداشتی نوار غزه: پنج فلسطینی در حملات اسرائیل کشته شدند
+
+منابع پزشکی در نوار غزه می‌گویند، در حملات و تیراندازی نیروهای اسرائیلی در روز شنبه ۲۰ ژوئن (۳۰ خرداد) "دست‌کم پنج فلسطینی، از جمله یک کودک"، کشته شده‌اند.
+
+به گفته این منابع، حمله هوایی اسرائیل به یک ساختمان مسکونی در محله صبرا در شهر غزه چهار نفر، شامل دو زن و یک کودک، را کشت و چندین نفر دیگر را زخمی کرد. به گفته امدادگران، این حمله یک واحد مسکونی را به طور کامل تخریب کرده است.
+
+در حادثه‌ای جداگانه نیز یک زن در شهر بیت‌لاهیا در شمال نوار غزه بر اثر تیراندازی نیروهای اسرائیلی جان باخت.
+
+ارتش اسرائیل تاکنون درباره این دو رویداد اظهار نظری نکرده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126248
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126248_1781981353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶شبکه ۱۲ اسرائیل: نتانیاهو دستور توقف حملات به لبنان را صادر کرد
+
+شبکه ۱۲ اسرائیل گزارش داده است که دولت اسرائیل به ارتش این کشور دستور داده حملات خود در لبنان را متوقف کند، اما نیروهای اسرائیلی همچنان در مناطقی از جنوب لبنان که در ماه‌های اخیر در کنترل گرفته‌اند باقی خواهند ماند.
+
+بر اساس این گزارش، این تصمیم با دستور بنیامین نتانیاهو، نخست‌وزیر اسرائیل، و اسرائیل کاتس، وزیر دفاع این کشور و پس از هماهنگی با آمریکا اتخاذ شده است.
+
+همزمان دفتر نخست‌وزیر اسرائیل به نقل از یک "مقام ارشد" اعلام کرد که ارتش اسرائیل برای دفاع از مرزهای شمالی این کشور "تا هر زمان که لازم باشد" در جنوب لبنان حضور خواهد داشت.
+
+این مقام همچنین هشدار داد که در صورت حملات جدید حزب‌الله، اسرائیل به آنچه "تهدیدها" خوانده شده پاسخ خواهد داد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126247
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126247_1781981353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶آمریکا: تنگه هرمز باز است و ۵۵ کشتی از آن عبور کردند
+
+فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد که نیروهای این کشور همچنان در تنگه هرمز حضور دارند و بر اجرای توافق با ایران نظارت می‌کنند.
+
+سنتکام همچنین اعلام کرد که در طول امروز شنبه ۳۰ خرداد، ۵۵ کشتی تجاری از این آبراه عبور کردند و بیش از ۱۷ میلیون بشکه نفت از طریق تنگه هرمز جابه‌جا شده است.
+
+این بیانیه پس از آن منتشر شد که روابط عمومی نیروی دریایی سپاه پاسداران جمهوری اسلامی اعلام کرد که تنگه هرمز تا "اطلاع ثانوی" بر روی تمامی شناورها بسته شده است.
+
+در بیانیه، این اقدام در واکنش به آنچه "نقض تعهدات آمریکا در برقراری آتش‌بس" عنوان شده، صورت گرفته است.
+
+نیروی دریایی سپاه همچنین به شناورها هشدار داد از نزدیک شدن به تنگه هرمز خودداری کنند. در این بیانیه آمده است که در صورت ورود شناورها به محدوده تنگه، امنیت آن‌ها ممکن است به خطر بیفتد.
+
+قرارگاه مرکزی خاتم‌الانبیا نیز همزمان با این بیانیه از بسته شدن تنگه هرمز خبر داده بود.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لایو امشب ساعت 23 آغاز میشه
+</div>
+
+## Persian_Trend_Official — post 17703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: محسن نقوی، وزیر کشور پاکستان عصر شنبه با مسعود پزشکیان، رئیس جمهور ایران در تهران دیدار و گفت‌وگو کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع دولتی پاکستان اعلام کرد که شهباز شریف نخست‌وزیر و عاصم منیر، فرمانده ارتش این کشور فردا به منظور شرکت در گفتگوهای ایران و آمریکا عازم سوئیس خواهند شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17700
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17700_1781981354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل تصاویری از دو سرباز کشته شده خود در اثر برخورد موشک ضد زره حزب‌الله منتشر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطع شدن آنتن زنده در مصاحبه نبویان با شبکه خبر؛ نبویان ادعا دارد نامه محرمانه مجتبی خامنه‌ای به تیم مذاکره‌کننده را فاش میکند! 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17698
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17698_1781981354.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام رادیویی ادعایی نیروی دریایی سپاه پاسداران در نزدیکی تنگه هرمز
+
+نیروی دریایی سپاه: به دلیل اقدامات اسرائیل در لبنان و نقض تعهدات از سوی ایالات متحده، تنگه هرمز به روی ناوبری دریایی بسته شده است.
+
+به تمامی شناورها دستور داده می‌شود برای حفظ ایمنی خود از این منطقه دور بمانند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17697
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17697_1781981355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطع شدن آنتن زنده در مصاحبه نبویان با شبکه خبر؛ نبویان ادعا دارد نامه محرمانه مجتبی خامنه‌ای به تیم مذاکره‌کننده را فاش میکند! 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17696
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17696_1781981356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطع شدن آنتن زنده در مصاحبه نبویان با شبکه خبر؛ نبویان ادعا دارد نامه محرمانه مجتبی خامنه‌ای به تیم مذاکره‌کننده را فاش میکند! 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17695
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17695_1781981356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطع شدن آنتن زنده در مصاحبه نبویان با شبکه خبر؛ نبویان ادعا دارد نامه محرمانه مجتبی خامنه‌ای به تیم مذاکره‌کننده را فاش میکند!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158555
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸صداوسیمای جمهوری اسلامی ایران اظهارات محمود نبویان، نایب‌رئیس کمیسیون امنیت ملی مجلس، در شبکه خبر پیرامون مذاکرات پیش رو بین ایران و آمریکا را «مصداق تخلف قانونی و مستوجب پیگرد قضایی» عنوان و اعلام کرد «مدیرکل مربوطهٔ این شبکه استعفا کرده است». 🔸محمود نبویان،…
+</div>
+
+## RadioFarda — post 158554
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158554_1781981358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸صداوسیمای جمهوری اسلامی ایران اظهارات محمود نبویان، نایب‌رئیس کمیسیون امنیت ملی مجلس، در شبکه خبر پیرامون مذاکرات پیش رو بین ایران و آمریکا را «مصداق تخلف قانونی و مستوجب پیگرد قضایی» عنوان و اعلام کرد «مدیرکل مربوطهٔ این شبکه استعفا کرده است».
+
+🔸محمود نبویان، که به جناح تندرو موسوم به «پایداری» تعلق دارد، روز شنبه ۳۰ خرداد با خواندن بخش‌هایی از متن‌هایی که گفت مکاتبات مجتبی خامنه‌ای با هیئت مذاکره‌کننده است، مدعی شد رهبر جمهوری اسلامی در مراحل مختلف با روند مذاکرات و بندهای متن‌های گوناگون مرتبط با مذاکرات مخالف بوده است.
+
+🔸این گفت‌وگو پیش از آن‌که نبویان به متن نهایی تفاهم‌نامه برسد، قطع شد و موجی از واکنش‌ها را در میان دیگر چهره‌ها و فعالان رسانه‌ای جمهوری اسلامی در پی داشت.
+
+🔸صداوسیما در بیانیهٔ خود اعلام کرد نبویان در اظهاراتش «اشارهٔ ناقص و مخدوش به برخی اسناد دارای طبقه‌بندی» داشته و سعید آجورلو، عضو تیم رسانه‌ای هیئت مذاکره‌کننده و از چهره‌های نزدیک محمدباقر قالیباف، نیز او را به «تحریف عمدی متون» با هدف «فرار از پاسخگویی درباره ادعاهای نادرست قبلی» متهم کرد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158553
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158553" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۳۰ خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23025
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23025_1781981359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخوند نبویان بعد از قطع شدن برنامه ی امروزش داخل صداسیما :
+
+امروز در شبکه خبر در مورد چرایی مخالفت رهبری با تفاهم یادداشت ایران و آمریکا مشغول بیان دیدگاه رهبری بودم که به صورت ناقص رها شد. بخش مهم آن بررسی متن یادداشت تفاهم بود که علت مخالفت رهبری را بیشتر آشکار می کرده است. انشاالله خداوند ما را در پیروی از رهبری عزیز ثابت قدم نگهدارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23024
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23024_1781981359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده شده در هیئت های محرم:
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23023
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23023_1781981360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم مذاکره کننده جمهوری اسلامی که رفتن سوئیس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23022
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23022_1781981360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سایپا هم بعد از ایران‌خودرو نامه زده و درخواست افزایش قیمت کرده.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پلیس فرانسه امروز «حدود ۲۰ نفر» از کسانی را که در تجمع هواداران سازمان مجاهدین خلق در پاریس شرکت کرده بودند، دستگیر کرد.
+
+این افراد با وجود ممنوعیت پلیس فرانسه برای برگزاری این تجمع، در گردهمایی از قبل برنامه‌ریزی شده شرکت کرده بودند.
+
+برگزارکنندگان درخواست اضطراری برای لغو این ممنوعیت ارائه کردند، اما دادگاهی در پاریس صبح شنبه این ممنوعیت را تأیید کرد.
+
+با وجود این ممنوعیت، چندین اتوبوس به میدان ووبان در مرکز پاریس رسیدند و خبرگزاری فرانسه گزارش داد که صدها معترض خود را به محل تجمع رسانده بودند.
+
+یک منبع پلیس به خبرگزاری فرانسه گفت که پلیس دستور متفرق شدن جمعیت را صادر کرده بود.
+
+افشین علوی، عضو شورای ملی مقاومت ایران ، به خبرگزاری فرانسه گفت: «آنها حدود ۲۰ نفر را بدون هیچ دلیلی دستگیر کردند.»
+
+او افزود: «از طرف معترضان، هیچ خشونتی وجود ندارد. پلیس بسیاری از تجمع‌کنندگان را متفرق کرد و از پیوستن دیگران جلوگیری کرد.»
+
+پلیس فرانسه دیروز اعلام کرده بود که به دلیل «احتمال درگیری» این تجمع را ممنوع کرده است. برگزار‌کنندگان گفتند که این تصمیم به دلایل «بی‌اساس» گرفته شده است.
+
+شورای ملی مقاومت، عنوان شاخه سیاسی سازمان مجاهدین خلق، گفت که این تجمع اعتراضی قرار بود علیه «موج اعدام‌ها» در ایران برگزار شود.
+
+پلیس در مورد لغو این تجمع گفته است: «در شرایط کنونی که وضعیت در داخل و در جهان تنش‌آلود است، خطر جدی وجود دارد که در جریان این تجمع، میان فعالانی که دیدگاه‌های مخالف دارند درگیری رخ دهد؛ درگیری‌ای که می‌تواند نظم عمومی را به‌شدت مختل کند.»
+
+پلیس فرانسه همچنین گفته بود که محل تجمع و مسیر راهپیمایی برنامه‌ریزی‌شده از «نزدیکی چند ساختمان دولتی و نمایندگی‌های دیپلماتیک» عبور می‌کرد.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284516
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/284516" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه جام جهان‌نما شنبه ۳۰ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هرشب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284515
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284515_1781981361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنان ترامپ در حاشیه اجلاس گروه ۷ درباره جنگ با ایران نکاتی توجه‌برانگیز داشت. این ویدیو گزیده‌ای از سخنرانی طولانی در کنفرانس خبری ۱۷ ژوئن، ۲۷ خرداد در اویان فرانسه است.
+
+او در سخنرانی بیش از یک ساعته که محورش تفاهم‌نامه و جنگ با ایران بود به مواردی از جمله بی‌نتیجه بودن ادامه جنگ، اختلاف‌نظر با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شوکه شدنش از وسعت حملات تلافی‌جویانه ایران به کشورهای منطقه، مشارکت امارات در بمباران ایران، ضرورت سرمایه‌گذاری در ایران و آزادسازی پول‌های بلوکه‌شده‌اش، بی‌طرف‌ ماندن روسیه و چین در جنگ اشاره کرد و از جمله گفت: «نمی‌‌شود همه راکتور هسته‌ای داشته باشند و به ایران بگوییم تو نمی‌توانی.»
+
+کل این سخنرانی در همان روز با ترجمه همزمان سیاوش اردلان در پوشش ویژه تلویزیون فارسی بی‌بی‌سی پخش شد.
+https://bbc.in/4vYHWIV
+@BBCPersian
+</div>
+
+## BBCPersian — post 284514
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284514_1781981363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرسی و گودنس نخستین جفت دوقلوهای به‌هم‌چسبیده‌ای هستند که بخش‌هایی از جمجمه جدیدشان با استفاده از فناوری واقعیت ترکیبی طراحی شده است. این دو کودک دوساله اهل نیجریه با چسبیدگی از ناحیه سر به دنیا آمدند.
+
+بی‌بی‌سی در روزهای قبل از آخرین عمل جراحی این دوقلوها، که یک جراحی پرخطر بود و در ابوظبی انجام شد، همراه جراح آن‌ها بود.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزیر کشتیرانی هند: سه نفت‌کش هندی از تنگه هرمز عبور کردند
+
+سارباناندا سونوال، وزیر کشتیرانی هند، روز شنبه اعلام کرد که سه نفت‌کش با پرچم این کشور، با بیش از ۸۶۰ هزار تن نفت و ۹۴ خدمه، به سلامت از تنگه هرمز عبور کرده و در مسیر هند هستند.
+
+او گفت این سه نفت‌کش عبور از تنگه هرمز را تکمیل کرده‌اند.
+
+پیش از عبور این سه نفتکش، ۱۳ محموله با پرچم هند در تنگه هرمز گیر افتاده بودند.
+
+تردد کشتی‌های تجاری از تنگه هرمز روز جمعه پس از امضای توافق آتش‌بس بین ایران و آمریکا افزایش یافت.
+
+ساعاتی پیش سپاه پاسداران اعلام کرد که در واکنش به «عهدشکنی طرف مقابل» در حمله به جنوب لبنان، تنگه هرمز را بسته است.
+
+نیروی دریایی سپاه پاسداران اعلام کرده است که شناورها به تنگه هرمز نزدیک نشوند.
+
+مشخص نیست که عبور این سه نفت‌کش از تنگه هرمز پیش از اعلام بسته شدن این آبراهه بوده یا بعد از آن.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284512
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/284512" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه‌ترین خبرهای شنبه ۳۰ خرداد ۱۴۰۵
+</div>
+
+## BBCPersian — post 284511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حملات اسرائیل در لبنان امروز (شنبه ۳۰ خرداد)، و تنها ساعاتی پس از توافق آتش‌بس با حزب‌الله، تا کنون دست‌کم ۱۵ کشته بر جای گذاشته است.
+
+به گفته مقامات یک سرباز لبنانی هم در میان کشته‌شدگان است.
+
+اسرائیل می‌گوید این حملات در پاسخ به پرتابه‌هایی است که حزب‌الله به سمت نیروهای اسرائیلی شلیک می‌کند.
+
+خبرگزاری دولتی لبنان، گزارش کرده که جنگنده‌ها و پهپادهای اسرائیلی چندین مکان را در جنوب و دره بقاع هدف قرار داده‌اند.
+
+در همین حال یک مقام نظامی اسرائیل گفت که حزب‌الله بیش از ۵۰ پرتابه به سمت نیروهای اسرائیلی در جنوب لبنان شلیک کرده است.
+
+حزب‌الله مسئولیت این حملات را بر عهده نگرفته است. یک مقام ارشد حزب‌الله به خبرگزاری رویترز گفت که این گروه به اسرائیل اجازه «آزادی حرکت در مناطق اشغالی لبنان» را نخواهد داد و افزود که مقاومت تا زمانی که نیروهای اسرائیلی در لبنان باقی بمانند، مشروع است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284510
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284510_1781981365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش آمریکا روز شنبه ادعای سپاه پاسداران درباره بستن تنگه هرمز را رد کرد و گفت این آبراه حیاتی همچنان باز است و نیروهای آمریکایی در حال نظارت بر اوضاع هستند تا از ادامه این روند اطمینان حاصل کنند.
+
+تیم هاوکینز، سخنگوی فرماندهی مرکزی ایالات متحده، سنتکام، به رویترز گفت: «ایران تنگه هرمز را کنترل نمی‌کند.»
+
+او گفت: ««ترافیک همچنان جریان دارد و نیروهای آمریکایی در حال نظارت بر اوضاع هستند تا از ادامه این وضعیت اطمینان حاصل کنند.»
+
+ساعاتی پیش قرارگاه خاتم‌الانبیا اعلام کرد تنگه هرمز را بسته است و نیروی دریایی سپاه هم از شناورها خواست به این آبراه نزدیک نشوند.
+
+@BBCPersian
+📷 REUTERS
+</div>
+
+## Dirty_Kids — post 392690
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392690_1781981365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا عکاسی را دوست دارم ...
+
+متیو فرگت عکاسیه که به خاطر عکس‌های خلاف جاذبه‌ش معروفه. تو کتاب جدیدش - Levitation - عکس‌های خلاقانه‌ش از ورزشکارها و رقصنده‌ها که در موزه‌های فرانسه و ایتالیا گرفته شده رو می‌تونیم ببینیم.
+عالی🔥
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392689
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392689_1781981367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از محرم بگو
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392688
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392688_1781981369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چجوری تونستن به زخمیها تو بیمارستان تیر خلاص بزنن؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392687
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392687_1781981369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از دستاورد‌های بزرگ جمهوری‌اسلامی، آمار طلاق و ازدواج در ایران:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه پیرمرد گوگولی گوشیشو داد گفت عصمت بگیر، رفتم تو کانتکتاش هرجوری نوشتم عصمت نبود، گفتم نیس که شمارش، گفت اگه نمیگیره تفسی بگیر پس🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂🙂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392685
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392685_1781981370.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خداروشکر اینترنت وصل شد تا دوباره همچین محتواهای شاهکاری رو ببینیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اراک برا مبتدی‌ها نیست؛ یه پراید موقع رانندگی روی پشت بوم یه خونه فرود اومده!!
+
+حتی سازنده‌های GTA پشماشون ریخته و قراره برای ساخت GTA6 ازش راهنمایی بگیرن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129440
+
+<div align="center">
+  <a href="telegram/content/alonews_129440_1781981371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیش از ۱۰۰ نماینده خواستار استعفای کیر استارمر شدند
+
+
+
+🔴 روزنامه تلگراف از افزایش فشارها بر استارمر، نخست‌وزیر بریتانیا، خبر داده و نوشته است که بیش از ۱۰۰ نماینده حزب کارگر خواستار کناره‌گیری او هستند.
+
+
+🔴 ستارمر اما هنوز نشانه‌ای از عقب‌نشینی نشان نداده است. او روز جمعه و بلافاصله پس از اعلام نتایج انتخابات میان‌دوره‌ای، در واکنش به سوالات خبرنگاران درباره آینده رهبری خود، با لحنی قاطع اعلام کرد که در صورت بروز رقابت داخلی برای رهبری حزب، «وارد نبرد خواهد شد و از سمت خود کناره‌گیری نخواهد کرد.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129439
+
+<div align="center">
+  <a href="telegram/content/alonews_129439_1781981371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمانی که تیم ملی، تیم‌ِ ملی بود
+
+@AloSport
+</div>
+
+## alonews — post 129438
+
+<div align="center">
+  <a href="telegram/content/alonews_129438_1781981373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈المیادین: هیئت آمریکایی پیش از اعلام رسمی ایران وارد سوئیس شده بود/ کوشنر دو روز است در زوریخ منتظر تصمیم تهران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129437
+
+<div align="center">
+  <a href="telegram/content/alonews_129437_1781981373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی الاصول، هواپیمای حامل هیئت ایرانی تا ۱ساعت دیگه به سوئیس میرسه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129436
+
+<div align="center">
+  <a href="telegram/content/alonews_129436_1781981373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ماشین های تک سرنشین وارداتی جدید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129435
+
+<div align="center">
+  <a href="telegram/content/alonews_129435_1781981373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خانعلی:
+رهبری میگفت باید جنگ رو ادامه بدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129434
+
+<div align="center">
+  <a href="telegram/content/alonews_129434_1781981373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به الجزیره گفت که ارتش اسرائیل به سنتکام اطلاع داده است که به واحدهای خود دستور داده است که به آتش‌بس در لبنان پایبند باشند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129433
+
+<div align="center">
+  <a href="telegram/content/alonews_129433_1781981373.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چندین هواپیمای سوخت‌رسان KC-135 نیروی هوایی آمریکا وارد منطقه شدن و یک هواپیمای هشدار زودهنگام E-3 هم در مسیر خلیج فارس قرار داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129432
+
+<div align="center">
+  <a href="telegram/content/alonews_129432_1781981374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواپیمای هیئت ایرانی از آسمان ترکیه عبور کرد و تا ۲ ساعت دیگر در زوریخ فرود می‌آید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129431
+
+<div align="center">
+  <a href="telegram/content/alonews_129431_1781981374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست وزیر پاکستان و فرمانده ارتش پاکستان هم به سوئیس میرن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129430
+
+<div align="center">
+  <a href="telegram/content/alonews_129430_1781981374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه‌ای که آنتن از نبویان گرفته شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129429
+
+<div align="center">
+  <a href="telegram/content/alonews_129429_1781981374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه‌ای که آنتن از نبویان گرفته شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129428
+
+<div align="center">
+  <a href="telegram/content/alonews_129428_1781981376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: می‌گویند من به اندازه کافی سخت‌گیر نبودم؛ من بزرگ‌ترین پلشان را ظرف ۳ دقیقه نابود کردم فقط به‌خاطر اینکه دیر در یک جلسه حاضر شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129427
+
+<div align="center">
+  <a href="telegram/content/alonews_129427_1781981377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 دونالد ترامپ: سازمان مهاجرت و گمرک (ICE) توسط رسانه‌های جعلی در حدی بی‌سابقه مورد حمله قرار گرفته است. مأموران آن میهن‌پرستان بزرگی هستند که سخت کار می‌کنند و در محیطی بسیار خصمانه وظیفه‌شان را انجام می‌دهند. بخش زیادی از این دشمنی را دموکرات‌ها و رسانه‌های جعلی ایجاد کرده‌اند.
+
+
+
+🔴مدتی است به این فکر می‌کنم که نام ICE را به NICE تغییر دهیم. این کار خبرنگاران و روزنامه‌نگاران فاسد و غیرمیهن‌پرست را کاملاً گیج خواهد کرد!
+
+🔴تصور کنید مجبور شوند بگویند: "امروز از یک مرکز NICE بازدید کردیم" یا "مأموران NICE یک قاچاقچی خشن مواد مخدر را اخراج کردند." آن‌ها نمی‌توانند تحملش کنند و کاملاً دیوانه می‌شوند!
+
+🔴فقط کافی است یک حرف N (مخفف National) به ICE (اداره مهاجرت و گمرک) اضافه شود. به نظر من اسم معتبرتری است.
+
+
+🔴همه این ایده را دوست دارند، اما تام هومن به من گفته که خود مأموران به اندازه بقیه مردم از آن خوششان نمی‌آید.
+
+
+🔴چه کسی موافق است که یک N اضافه کنیم و ICE را به NICE تبدیل کنیم؟
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129426
+
+<div align="center">
+  <a href="telegram/content/alonews_129426_1781981377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ساعاتی پیش، نبویان نماینده‌ی تندرو‌ مجلس، با حضور در صداوسیما مشغول قرائت بخشی از نامه‌های «به کلی سری» مربوط به آیت الله خامنه شد. 
+🔴 نبویان با انتخاب بخش‌هایی از نامه و حذف عامدانه‌ی بخش‌های دیگر که شامل چندین نامه و مکاتبه بود، نقل‌قول‌هایی ناقص و تقطیع…
+</div>
+
+## alonews — post 129425
+
+<div align="center">
+  <a href="telegram/content/alonews_129425_1781981377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ساعاتی پیش، نبویان نماینده‌ی تندرو‌ مجلس، با حضور در صداوسیما مشغول قرائت بخشی از نامه‌های «به کلی سری» مربوط به آیت الله خامنه شد. 
+🔴 نبویان با انتخاب بخش‌هایی از نامه و حذف عامدانه‌ی بخش‌های دیگر که شامل چندین نامه و مکاتبه بود، نقل‌قول‌هایی ناقص و تقطیع…
+</div>
+
+## alonews — post 129424
+
+<div align="center">
+  <a href="telegram/content/alonews_129424_1781981377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ساعاتی پیش، نبویان نماینده‌ی تندرو‌ مجلس، با حضور در صداوسیما مشغول قرائت بخشی از نامه‌های «به کلی سری» مربوط به آیت الله خامنه شد.
+
+
+🔴 نبویان با انتخاب بخش‌هایی از نامه و حذف عامدانه‌ی بخش‌های دیگر که شامل چندین نامه و مکاتبه بود، نقل‌قول‌هایی ناقص و تقطیع شده منسوب به آیت الله خامنه ای را در تلویزیون منعکس کرد.
+
+
+🔴 اگرچه این برنامه‌ی سازماندهی شده در صدا و سیما یک‌باره از آنتن زنده خارج و «قطع» شد اما رسانه‌های پرتعداد منسوب به این جریان، با ضریب دادن به این اظهارات تقطیع‌شده، به تحریکات علیه تیم مذاکره‌کننده که هم‌اینک عازم ژنو شده‌اند، دامن زدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129423
+
+<div align="center">
+  <a href="telegram/content/alonews_129423_1781981377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۵ اسراییل: اسرائیل تلاش کرد مسیر لبنان را از مسیر ایران جدا کند اما شکست خورد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 20:35
 ---
 
