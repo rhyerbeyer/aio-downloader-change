@@ -1,10 +1,723 @@
 # خواننده تلگرام
 
 <!-- TOP_NAV START -->
-<div dir="rtl" style="text-align:left; margin-bottom:10px;"><a href="https://github.com/rhyerbeyer/aio-downloader-change/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+
 <!-- TOP_NAV END -->
 
 <!-- MSG START -->
+
+---
+📅 بروزرسانی: 1405/04/01 02:24
+---
+
+## VahidOOnLine — post 246754
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246754_1782082468.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کوین بوک، مدیر عامل شرکت کلیرویو انرژی پارتنرز، به شبکه خبری سی‌بی‌اس گفت «ممکن است مدتی طول بکشد» تا قیمت بنزین در ایالات متحده به سطح قبل از جنگ ایران کاهش یابد.
+
+بر اساس این گزارش، میانگین قیمت بنزین معمولی اکنون کمی کمتر از ۴دلار در هر گالن اعلام شده که کمتر از بالاترین قیمت در زمان جنگ، یعنی بیش از ۴.۵۰دلار، است، اما هنوز هم بسیار بالاتر از یک سال پیش، بیش از سه دلار، محسوب می‌شود.
+
+بوک پیش‌بینی کرد اگر قیمت نفت ثابت بماند، قیمت بنزین می‌تواند پنج تا هفت سنت دیگر کاهش یابد، اما در مورد پس ازاین مرحله، «عدم قطعیت» وجود دارد.
+
+این تحلیلگر بازار انرژی اشاره کرد که ممکن است تا پایان سال جاری میلادی طول بکشد تا موجودی‌های نفت تخلیه شده دوباره پر شوند و به مازاد برسند.
+
+بوک گفت: «برای بازگشت به جایی که قبل از جنگ بودیم، به پر کردن موجودی‌ها نیاز داریم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246753
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246753_1782082469.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، در واکنش به شعار هواداران تندروی حکومت گفت اصول، عدالت و خدمت به مردم و صداقت است.
+او خطاب به هواداران حکومت با اشاره به تورم ۵۰ درصدی و توقف ۴۰ تا ۵۰ روزه صادرات نفت گفت: «وقتی می‌جنگی باید پای لرزش هم بنشینی.»
+پزشکیان همچنین افزود دولت برای پشتیبانی از جنگ، ۲۰ میلیون بشکه نفت در اختیار هوافضای سپاه قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246752
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246752_1782082471.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، با انتقاد از روزنامه نیویورک تایمز، گزارش این روزنامه مبنی بر اینکه پس از نزدیک به چهار ماه جنگ تغییر چندانی رخ نداده است، را رد کرد و گفت جمهوری اسلامی خسارت‌های گسترده‌ای متحمل شده است.
+
+ترامپ با اشاره به تیتر نیویورک تایمز که به نقل از تحلیلگران نوشته بود «چندان چیزی تغییر نکرده است»، نوشت: «واقعا؟»
+
+رییس‌جمهوری آمریکا در تروث سوشال نوشت که ارتش، نیروی دریایی و نیروی هوایی جمهوری اسلامی از بین رفته‌اند و سکوهای پرتاب، موشک‌ها، پهپادها و توان تولید آن‌ها نیز تقریبا نابود شده است.
+
+او در ادامه نوشت: «دو رده اصلی رهبران آن‌ها از بین رفته‌اند، تورم آن‌ها به ۲۵۰ درصد رسیده است، اقتصادشان فروپاشیده است، به سربازانشان حقوق پرداخت نمی‌شود، تنگه هرمز باز است، نفت در حال جریان است و بازار سهام و اشتغال آمریکا در بالاترین سطوح تاریخی قرار دارند.»
+
+او در پایان با حمله به نیویورک تایمز نوشت: «این‌ها چیزهایی هستند که تغییر کرده‌اند، ای ترسوهای فاسد؛ و حتی بیشتر از این‌ها.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246751
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246751_1782082472.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روز یکشنبه، ۳۱ خرداد ( ۲۱ ژوئن)، ساکنان نیم‌کره شمالی زمین طولانی‌ترین روز سال و کوتاه‌ترین شب آن را با رویداد نجومی «انقلاب تابستانی» تجربه می‌کنند. در این روز، خورشید به بالاترین نقطه در آسمان می‌رسد و بیشترین مدت‌زمان تابش نور خود را به نمایش می‌گذارد تا فصل تابستان به صورت رسمی و ستاره‌شناختی آغاز شود. این پدیده دقیقا برعکس نیم‌کره جنوبی است، جایی که ساکنان آن امروز طولانی‌ترین شب سال و آغاز فصل زمستان را پشت سر می‌گذارند. از فردا به مرور از طول روزها در نیم‌کره شمالی کاسته و به طول شب‌ها افزوده خواهد شد تا زمین آرام‌آرام مسیر خود را به سمت اعتدال پاییزی پیش ببرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246750
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246750_1782082473.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان روز یکشنبه، ۳۱ خردادماه، گفت می‌ترسد دولت نتواند رضایت مردم را جلب کند و نارضایتی‌ها به اعتراض‌های خیابانی بیانجامد. رییس‌جمهوری اسلامی ایران گفت: «از آنچه می‌ترسم این است که نتوانیم به مردم به درستی خدمت بدهیم، ناراضی شوند و به خیابان بیایند و اعتراض کنند. آن وقت ابهت ما فرو می‌ریزد.»  او گفت: «مهم‌ترین قدرت جمهوری اسلامی، وحدت مردم است و مسئولان نباید اجازه دهند کمبودها، کسری‌ها و نواقص باعث نارضایتی مردم شود زیرا بروز چنین وضعیتی موجب خوشحالی دشمنان خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246749
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246749_1782082474.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه پاسداران، بامداد دوشنبه، به نقل از «یک منبع آگاه» گزارش داد: «مذاکرات ایران و آمریکا در قالب چهارجانبه، حدود ساعت ۱۵ شروع شد و بعد از حدود یک ساعت و نیم، برای یک وقفه نیم ساعته جهت مشورت میان هیات‌ها تعلیق شد.» براساس این گزارش، تبادل پیام‌ها همچنان ادامه دارد اما تا این لحظه «نتیجه نهایی حاصل نشده است». تسنیم نوشت: «در جریان نشست چهارجانبه، هیات جمهوری اسلامی صریحا نسبت به نقض تعهدات خصوصا بند یک یادداشت تفاهم اعتراض کرد و خواستار تسریع در ایفای تعهدات آمریکا در رابطه با آزادسازی دارایی‌های بلوکه شده ایران و صدور اسقاطیه‌های صدور نفت ایران شد. در رابطه با موضوع هسته‌ای، هیات ایرانی تاکید کرد که شروع مذاکرات درباره هسته‌ای منوط به اجرای تعهدات آمریکا طبق بندهای ۱، ۴، ۱۰ و ۱۱ است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246748
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246748_1782082475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن رضایی، عضو مجمع تشخیص مصلحت نظام و مشاور نظامی مجتبی خامنه‌ای، روز یکشنبه با انتشار پیامی در اکس، آمریکا را «مسئول اقدامات اسرائیل در لبنان» معرفی کرد و نوشت: «ایالات متحده بر اساس تفاهم با جمهوری اسلامی ایران، مسئول اقدامات تنش‌زای اسرائیل در لبنان است و باید پاسخگو باشد.» رضایی گفت: «در صورت تهدید علیه ایران، آمریکایی‌ها را پاسخگو می‌کنیم».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15562
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15562_1782082476.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نحوه پوشش اخبار نیویورک‌تایمزِ فاسد و در حال فروپاشی درباره ایرانِ بسیار آسیب‌خورده و فلج‌شده، از طریق «حقایق» جعلی و ساختگی، به باور من «جنایت علیه کشور» است. من تمام گزارش‌های کذب و بی‌معنی آن‌ها را به شکایت چند میلیارد دلاری خودم علیه آن‌ها اضافه خواهم کرد. آن‌ها مجرم هستند! رئیس‌جمهور DJT
+@withyashar
+</div>
+
+## WithYashar — post 15561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود عمو یاشار یه سوال ناراحت کننده و کلی داشتم چرا انقدر کشور ما خیانت کار زیاد داشته تو کل تاریخش
+</div>
+
+## WithYashar — post 15560
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15560_1782082477.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه مشخصه من چی بگم ! 🍑
+@withyashar
+</div>
+
+## WithYashar — post 15559
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15559_1782082478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از زلاتان پرسیدن نظرت راجع به بازی ایران و بلژیک چیه؟ گفت:
+نیمه اول نزدیک بود بخوابم
+نیمه دوم واقعاً خوابیدم
+@withyashar
+</div>
+
+## pm_afshaa — post 94571
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94571_1782082479.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نورالدین الدغیر خبرنگار الجزیره:
+گزارش‌ها حاکی از اینه که مواضع ترامپ، مذاکرات ایران و آمریکا رو متوقف نکرده، بلکه شکل مذاکرات رو از مذاکرات چهارجانبهٔ مستقیم با حضور میانجی‌های قطری و پاکستانی، به مذاکرات غیرمستقیم از طریق انتقال پیام‌ها توسط میانجی‌ها تغییر داده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94570
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94570_1782082480.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بد وضعیتیه
+تناقض تو ایرانی‌ها در این حد
+تازه اینجا خارج از کشوره!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ 🏆 دیدار تیم‌های فوتبال شیلی و اتحاد جماهیر شوروی در تاریخ ۲۱ نوامبر [آبان] ۱۹۷۳ به شکل نمادین در استادیوم ملی شیلی برگزار شد و طی آن شیلی بدون حضور رقیبش پیروز شد.
+این مسابقه با اصرار حکومت پینوشه در استادیومی برگزار شد که یک ماه قبل از انجا مخالفان را اعدام کرده بودند.
+اتحاد جماهیر شوروی از شرکت در اسن دیدار از دور برگشت مسابقات مقدماتی جام جهانی ۱۹۷۴ به دلیل کودتای ۱۱ سپتامبر ۱۹۷۳ شیلی سر باز زد و مطابق ماده ۲۲ قوانین فیفا این دیدار با نتیجه دو بر صفر به سود شیلی اعلام شد (بازی رفت در مسکو با تساوی بدون گل خاتمه یافته بود). علی‌رغم این، نظامیان حاکم بر شیلی تصمیم گرفتند این دیدار را به شکل نمادین برگزار کنند و آن را تبدیل به تبلیغاتی برای حکومتشان بکنند.
+
+#جام_جهانی #مستند
+@DEJradio
+</div>
+
+## DEJradio — post 5878
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5878_1782082482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱 
+🔺 ارتش اسرائیل زیر یک روستای کوهستانی در جنوب لبنان، تنها چند کیلومتر دورتر از مرز اسرائیل، یک پایگاه مخفی زیرزمینی حـ.ـزب‌الله را کشف و تصرف کرد. این پایگاه برای مونتاژ پهپادها تأسیس شده بود.
+این تأسیسات زیرزمینی که با درهای فولادی عظیم ضدانفجار محافظت می‌شود، در دهه گذشته با کمک مستقیم رژیم ایران، از جمله برنامه‌ریزی و تأمین مالی، ساخته شده است.
+این تونل چند صد متر به داخل کوه امتداد دارد و به عمق ۲۹ متر زیر روستای «مجدل زون» می‌رسد و یکی از خروجی آن زیر یک مسجد است.
+در بخشی از تونل‌ها مهمات و تسلیحات نظامی ذخیره شده بود.
+براساس گزارش ارتش اسرائیل در جریان عملیات، بیش از ۲۰ تروریست حزب‌الله کشته شدند که بیش از ۱۰ نفر از آن‌ها از واحد «نیرو رضوان» بودند، و بیش از ۵۰ زیرساخت تروریستی، از جمله مواضع دیده‌بانی و انبارهای تسلیحات، منهدم شد.
+
+#لبنان #اسرائیل
+@DEJradio
+</div>
+
+## DEJradio — post 5877
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5877_1782082483.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥
+🔺 براساس گزارش منابع منطقه‌ای انفجاری مهیب در تأسیسات نفتی «راس لفان» قطر که یکشنبه شب ۳۱ خرداد ۱۴۰۵ رخ داد سبب آتش‌سوزی مخازن یک پالایشگاه نزدیک دوحه شد. علت انفجار هنوز مشخص نیست اما کانال‌های تلگرامی وابسته به سـ.ـپاه پاسداران با انتشار تصاویر این انفجار برای دولت‌های عربی خط و نشان کشیده‌اند.
+
+#انفجار
+@DEJradio
+</div>
+
+## DEJradio — post 5874
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 ⚽️ تعداد زیادی از ایرانیان میهن‌دوست، یکشنبه شب ۳۱ خرداد ۱۴۰۵ با پرچم ملی شیروخورشید ایران به استادیوم «سوفای» لس‌آنجلس رفتند تا از نزدیک دومین بازی شاگردان امیرقلعه‌نوعی در جام جهانی ۲۰۲۶ برابر تیم بلژیک را تماشا کنند.
+در طول بازی تماشاگران بارها شعار «جاوید شاه» سر دادند.
+
+#جام_جهانی #شیروخورشید
+@DEJradio
+</div>
+
+## VahidOnline — post 76583
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76583_1782082484.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه آمریکا اعلام کرد مارکو روبیو، وزیر خارجه این کشور، از دو روز دیگر، یعنی ۲۳ ژوئن (دوم تیر) در سفری دو روزه به خاورمیانه به امارات متحده عربی، کویت و بحرین سفر خواهد کرد.
+
+در این سفر، آقای روبیو درباره مجموعه‌ای از اولویت‌های منطقه‌ای گفت‌وگو خواهد کرد؛ از جمله:
+تفاهم‌نامه میان آمریکا و ایران
+تلاش‌ها برای تضمین عبور کامل، آزاد و ایمن کشتی‌ها از تنگه هرمز
+اهمیت حفظ صلح و ثبات در منطقه
+
+وزیر خارجه آمریکا همچنین در بحرین با اعضای شورای همکاری خلیج فارس دیدار خواهد کرد تا درباره اولویت‌های مشترک کشورهای منطقه گفت‌وگو کند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76582
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76582_1782082484.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست قالیباف، ترجمه ماشین:
+ما این‌طور از سرزمین‌مان محافظت می‌کنیم.
+mb_ghalibaf
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88108
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88108_1782082485.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب یه نفر ۳ میلیون دلار شرط بسته بود که بلژیک ، ایران رو می‌بره همه پولشو باخت.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 343655
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343655_1782082486.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، درباره ابراز نگرانی مسعود پزشکیان از بازگشت اعتراضات گفت: «صدای ترک‌هایی که در لایه‌های مختلف جامعه ایجاد شده، به گوش رهبران جمهوری اسلامی رسیده است؛ ترک‌هایی که انفجار آن را در دی‌ماه گذشته در قالب اعتراضات سراسری شاهد بودیم.»
+
+او افزود: «اکنون به نظر می‌رسد این شکاف‌ها به لایه‌های سنتی حامیان جمهوری اسلامی، نیروهای سرکوب و حتی خانواده‌های آنها نیز سرایت کرده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343654
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343654_1782082489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کوین بوک، مدیر عامل شرکت کلیرویو انرژی پارتنرز، به شبکه خبری سی‌بی‌اس گفت «ممکن است مدتی طول بکشد» تا قیمت بنزین در ایالات متحده به سطح قبل از جنگ ایران کاهش یابد.
+
+بر اساس این گزارش، میانگین قیمت بنزین معمولی اکنون کمی کمتر از ۴دلار در هر گالن اعلام شده که کمتر از بالاترین قیمت در زمان جنگ، یعنی بیش از ۴.۵۰دلار، است، اما هنوز هم بسیار بالاتر از یک سال پیش، بیش از سه دلار، محسوب می‌شود.
+
+بوک پیش‌بینی کرد اگر قیمت نفت ثابت بماند، قیمت بنزین می‌تواند پنج تا هفت سنت دیگر کاهش یابد، اما در مورد پس ازاین مرحله، «عدم قطعیت» وجود دارد.
+
+این تحلیلگر بازار انرژی اشاره کرد که ممکن است تا پایان سال جاری میلادی طول بکشد تا موجودی‌های نفت تخلیه شده دوباره پر شوند و به مازاد برسند.
+
+بوک گفت: «برای بازگشت به جایی که قبل از جنگ بودیم، به پر کردن موجودی‌ها نیاز داریم.»
+https://iranintl.com/202606210622
+</div>
+
+## IranIntlTV — post 343653
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343653_1782082490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ٰکندن کنه جمهوری اسلامی از تن ایران دشوار و دردناک است، اما دشوار بودن این مسیر به معنای کنار آمدن با آن نیست. با وجود همه موانع، بسیاری از مردم همچنان به سرنگونی باور دارند و مهم‌تر از همه، بر ترس از تغییر غلبه کرده‌اند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343652
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343652_1782082491.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، در واکنش به شعار هواداران تندروی حکومت گفت اصول، عدالت و خدمت به مردم و صداقت است.
+او خطاب به هواداران حکومت با اشاره به تورم ۵۰ درصدی و توقف ۴۰ تا ۵۰ روزه صادرات نفت گفت: «وقتی می‌جنگی باید پای لرزش هم بنشینی.»
+پزشکیان همچنین افزود دولت برای پشتیبانی از جنگ، ۲۰ میلیون بشکه نفت در اختیار هوافضای سپاه قرار داده است.
+</div>
+
+## IranIntlTV — post 343651
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343651_1782082493.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، با انتقاد از روزنامه نیویورک تایمز، گزارش این روزنامه مبنی بر اینکه پس از نزدیک به چهار ماه جنگ تغییر چندانی رخ نداده است، را رد کرد و گفت جمهوری اسلامی خسارت‌های گسترده‌ای متحمل شده است.
+
+ترامپ با اشاره به تیتر نیویورک تایمز که به نقل از تحلیلگران نوشته بود «چندان چیزی تغییر نکرده است»، نوشت: «واقعا؟»
+
+رییس‌جمهوری آمریکا در تروث سوشال نوشت که ارتش، نیروی دریایی و نیروی هوایی جمهوری اسلامی از بین رفته‌اند و سکوهای پرتاب، موشک‌ها، پهپادها و توان تولید آن‌ها نیز تقریبا نابود شده است.
+
+او در ادامه نوشت: «دو رده اصلی رهبران آن‌ها از بین رفته‌اند، تورم آن‌ها به ۲۵۰ درصد رسیده است، اقتصادشان فروپاشیده است، به سربازانشان حقوق پرداخت نمی‌شود، تنگه هرمز باز است، نفت در حال جریان است و بازار سهام و اشتغال آمریکا در بالاترین سطوح تاریخی قرار دارند.»
+
+او در پایان با حمله به نیویورک تایمز نوشت: «این‌ها چیزهایی هستند که تغییر کرده‌اند، ای ترسوهای فاسد؛ و حتی بیشتر از این‌ها.»
+https://iranintl.com/202606216914
+</div>
+
+## IranIntlTV — post 343650
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343650_1782082494.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در ساختار جمهوری اسلامی، از نهادهای امنیتی و قضایی تا رسانه‌ها و دستگاه دیپلماسی، هر بخش نقشی در سرکوب و توجیه آن برعهده دارد. دیپلمات‌هایی مانند عراقچی نیز در سطح بین‌المللی روایت حکومت از کشتار معترضان را توجیه می کنند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343649
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343649" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: تیم مذاکره کننده، ویترین دیپلماتیک ماشین کشتار
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343648
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343648_1782082497.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال ایران در تساوی صفر - صفر با بلژیک و با رسیدن به دومین مساوی پی در پی در جام جهانی ۲۰۲۶، با دو امتیاز، فعلا صدرنشین گروه خود است.
+
+🔹تیم ملی باید سومین بازی خود را در برابر مصر برگزار کند و همین حالا روی کاغذ شانس صعود به مرحله حذفی به عنوان صدرنشین را هم دارد.
+
+🔹گزارش علیرضا مدیری، خبرنگار ایران اینترنشنال از استادیوم سوفای لس آنجلس
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343647
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343647_1782082499.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دان بیکن، نماینده جمهوری‌خواه مجلس نمایندگان آمریکا، گفت تنها راه تغییر مثبت در ایران، فروپاشی حکومت است.
+همزمان، سی‌بی‌اس نیوز به نقل از یک منبع آگاه گزارش داد فرستادگان ویژه آمریکا در گفت‌وگوهای سوئیس درباره راهبرد برخورد با اسرائیل و حزب‌الله در لبنان با مارکو روبیو همسو نیستند.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343646
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343646_1782082502.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امیر قلعه‌نویی، سرمربی تیم ملی فوتبال ایران، پس از تساوی بدون گل برابر بلژیک در دومین دیدار مرحله گروهی جام جهانی ۲۰۲۶ گفت: «بازی خوبی انجام دادیم و حتی می‌توانستیم برنده مسابقه باشیم. بلژیک تیم باکیفیتی است، اما پس از ۱۰ نفره شدن شانس آورد که بازی را نباخت.»
+
+🔹او در ادامه با اشاره به عملکرد بازیکنان تعویضی گفت: «از عملکرد بازیکنانی که به عنوان یار تعویضی وارد زمین شدند رضایت ندارم. فوتبال همین است؛ گاهی تعویض‌ها نتیجه می‌دهد و گاهی انتظارات را برآورده نمی‌کند. در این مسابقه بازیکنان تعویضی نتوانستند آنچه را مدنظر کادر فنی بود اجرا کنند.»
+
+🔹سرمربی تیم ملی تاکید کرد: «این بازی به پایان رسیده و از حالا تمام تمرکز ما روی دیدار بعدی مقابل مصر خواهد بود.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343645
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343645_1782082503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا بیرانوند، دروازه‎‌بان تیم ملی ایران پس از درخشش در بازی برابر بلژیک و کسب عنوان بهترین بازیکن زمین گفت: «اگر دقت می‌کردیم می‌توانستیم بازی را ببریم. بچه‌های تیم ملی امروز برای تمام ایرانیان با قلبشان بازی کردند. امیدوارم مردم از ما راضی باشند.»
+
+🔹بیرانوند در ادامه گفت: «بلژیک یکی از قدرت های دنیا است و قبل از ۱۰ نفره شدن فشار عجیبی می‌آوردند. آنها بعد از اخراج دنبال اشتباهات ما بودند و خدا را شکر که مساوی کردیم. به کادر فنی و بازیکنان خسته نباشید می‌گویم. به مردم ایران تبریک می‌گویم و دست تک تک آن‌هایی که ما را حمایت کردند می‌بوسم.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343644
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343644_1782082504.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «مهم‌ترین پرسش مردم ایران در این مذاکرات این است که چه کسی نماینده مطالبات آنهاست؛ حکومتی که متهم به کشتار شهروندان خود است، نمی‌تواند نماینده مردم باشد. مردم ایران پس از سرکوب‌ها و کشتارها، خواستار حمایت بین‌المللی و محدود شدن ابزار سرکوب حکومت بودند، نه مذاکره بر سر تنگه هرمز، برنامه هسته‌ای یا اورانیوم غنی‌شده.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 7169
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7169_1782082506.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 21 Jun 2026 22:30:27 UTC
+
+POTUS:
+"The way the Corrupt and Failing New York Times is covering stories on a very battered and beat up Iran, through FAKE & MADE UP “FACTS” is, in my opinion, “TREASONOUS.” I will be adding all of their false and ridiculous reporting to my multi Billion Dollar lawsuit against them. They are Criminals! President DJT"
+
+ترجمه خودکار فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«روشی که نیویورک تایمزِ فاسد و در حال شکست، گزارش‌ها درباره ایرانِ بسیار آسیب‌دیده و داغان را از طریق "حقایق" جعلی و ساختگی پوشش می‌دهد، به عقیده من، "خائنانه" است. من تمامی گزارش‌های کذب و مضحک آن‌ها را به شکایت چند میلیارد دلاری‌ام علیه آن‌ها اضافه خواهم کرد. آن‌ها مجرم هستند! رئیس‌جمهور دی‌جی‌تی (DJT)»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221484
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221484_1782082506.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️یک حساب فیفا اعلام کرد که هواداران فوتبال، علیرضا بیرانوند، دروازه‌بان تیم ملی ایران، را پس از تساوی ۰–۰ ایران مقابل بلژیک، به عنوان برترین بازیکن مسابقه انتخاب کردند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221483
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221483_1782082507.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ایران و بلژیک به تساوی رضایت دادند؛ گزارش حال‌وهوای استادیوم پس از پایان بازی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فوتبال در آفساید سیاست؛ روایت بازیکنانی که صدای مردم شدند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آیا تفاهم‌نامه آمریکا و جمهوری اسلامی به توافق نهایی منجر می‌شود؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدای انفجار تاسیسات گاز قطر در دوحه شنیده شد
+
+▪️وزارت کشور قطر اعلام کرد انفجاری که صدای آن در دوحه شنیده شد، ناشی از یک «حادثه فنی» در مرکز فرآوری گاز طبیعی مایع این کشور در منطقه راس لفان بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163273.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17777
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17777_1782082508.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌌
+F-16 Falcon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17776
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17776_1782082511.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: تا دقایقی دیگر بیانیه مشترک آمریکا، ایران، پاکستان و قطر صادر خواهد شد. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17775
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17775_1782082511.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: تیتر در روزنامه فاسد و ورشکسته نیویورک تایمز: بعد از تقریباً چهار ماه جنگ چه تغییری کرده؟ تحلیل‌گران می‌گویند زیاد نیست. واقعاً؟
+
+ارتششان نابود شده، نیروی دریایی‌شان از بین رفته، نیروی هوایی‌شان نیست، پایگاه‌ها، موشک‌ها، پهپادها و تولید آن‌ها تقریباً از بین رفته، دو دسته از بالاترین رهبرانشان رفته‌اند، تورمشان به 250 درصد رسیده، اقتصادشان شکسته، سربازانشان حقوق نمی‌گیرند، تنگه هرمز باز است، نفت به وفور جریان دارد، و بازار بورس آمریکا و فرصت‌های شغلی در بالاترین رکورد هستند.
+
+این‌ها همان تغییراتی است که رخ داده، شما ترسوهای فاسد و بی اخلاق، و خیلی بیشتر از این!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23117
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23117_1782082512.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖤جای ۴۰۰۰۰ نفر خالیه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23116
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23116_1782082514.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف:
+
+ما اینگونه از سرزمینمان محافظت می‌کنیم😂
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️بیش از ۷۰ هزار تماشاگر در ورزشگاه لس‌آنجلس
+
+بنابر آمار اعلامی ۷۰ هزار و ۳۱۷ تماشاگر در ورزشگاه مدرن لس‌آنجلس حضور داشتند.
+
+https://bbc.in/4eGn7uR
+@BBCPersian
+</div>
+
+## BBCPersian — post 284675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️۲۳ شوت به دروازه ایران
+
+بلژیک باوجود اینکه ۲۳ بار توپ را به‌سوی دروازه ایران شلیک کرد، نتوانست راه به جایی ببرد. عملکرد خط دفاعی ایران و دروازه‌بان جانانه بود.
+
+https://bbc.in/4eGn7uR
+@BBCPersian
+</div>
+
+## BBCPersian — post 284674
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284674_1782082515.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت خارجه آمریکا اعلام کرد مارکو روبیو، وزیر خارجه این کشور، از دو روز دیگر، یعنی ۲۳ ژوئن (دوم تیر) در سفری دو روزه به خاورمیانه به امارات متحده عربی، کویت و بحرین سفر خواهد کرد.
+
+در این سفر، آقای روبیو درباره مجموعه‌ای از اولویت‌های منطقه‌ای گفت‌وگو خواهد کرد؛ از جمله:
+
+تفاهم‌نامه میان آمریکا و ایران
+
+تلاش‌ها برای تضمین عبور کامل، آزاد و ایمن کشتی‌ها از تنگه هرمز
+
+اهمیت حفظ صلح و ثبات در منطقه
+
+وزیر خارجه آمریکا همچنین در بحرین با اعضای شورای همکاری خلیج فارس دیدار خواهد کرد تا درباره اولویت‌های مشترک کشورهای منطقه گفت‌وگو کند.
+
+📷 Getty
+
+https://bbc.in/4vkbSPT
+@BBCPersian
+</div>
+
+## BBCPersian — post 284673
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/284673" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻پادکست برنامه شصت دقیقه یکشنبه ۳۱ خرداد ۱۴۰۵
+
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+
+با هشتگ BBCPersianRadio با ما در ارتباط باشید.
+
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392807
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392807_1782082517.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام قاآنی خطاب به اسرائیل:
+
+سربازان متجاوز و تروریست صهیونیست، تو کمتر از 4 روز 100 نفر تلفات دادید!!!
+
+اگر با پای خودتون از جنوب لبنان خارج نشید، حماسه سال 2000 یه بار دیگه تکرار میشه؛ همون سالی که با خفت و خواری از این سرزمین فرار کردید [سال 2000، حزب‌الله کاری کرد که اسرائیل بعد از 18 سال از منطقه بیرون رفت].
+امروز هم اگر به تجاوز و اشغالگری اصرار کنید، با ذلت و شکست با لگد خارج میشید. خود دانید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392806
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392806_1782082517.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینکارا چیه؟! چرا اینجاتو تتو زدی؟ شرم کو؟ حیا کو؟ آدرس این تتو آرتیست کو؟ میخوام برم رایگان بهش خدمت کنم :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392805
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392805_1782082519.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا تو یه لیگ دیگه کصخلن
+خوشحالی از گلزنی تیم ملا با پرچم شیر و خورشید 🤦🏻‍♂️😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392804
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392804_1782082522.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دخترا تو زندگیشون فقط یه نفر مثل دعانویس قلعه‌نویی رو می‌خوان.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرفداراشون 😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392802
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392802_1782082523.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه گل جمهوری‌اسلامی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129645
+
+<div align="center">
+  <a href="telegram/content/alonews_129645_1782082525.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال محسن رضایی:
+ایالات متحده، بر اساس تفاهم خود با جمهوری اسلامی ایران، مسئول تجاوزات و اقدامات تحریک‌آمیز رژیم صهیونیستی در لبنان است و باید پاسخگو باشد.
+
+در صورت تهدید علیه ایران، ما آمریکایی‌ها را مسئول خواهیم دانست.
+
+✅ @AloNews خبر جنگ
+</div>
 
 ---
 📅 بروزرسانی: 1405/04/01 01:16
@@ -1260,10 +1973,8 @@ https://bbc.in/4eGn7uR
 
 صحنه‌های جذاب بازی رو اونجا میزنیم
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
-<div dir="rtl" style="text-align:left; margin-top:10px;"><a href="https://github.com/rhyerbeyer/aio-downloader-change/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+
 <!-- NAV END -->
