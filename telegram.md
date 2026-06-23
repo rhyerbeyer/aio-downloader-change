@@ -7,6 +7,398 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/02 05:21
+---
+
+## VahidOOnLine — post 246925
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246925_1782179477.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف در واکنش به اعتراض حامیان حکومت به مذاکرات، در ایکس نوشت: «در یکی از برنامه‌های خوب صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246924
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246924_1782179478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عبدالاحد مومند، یگانه فضانورد اهل افغانستان، بر اثر بیماری سرطان روز یکشنبه ۳۱ خرداد در آلمان درگذشت.
+او پس از ترک افغانستان به آلمان مهاجرت کرد و در شهر اشتوتگارت زندگی می‌کرد. عبدالاحد مومند در ولایت/استان غزنی متولد شده بود و برای تحصیل در رشته هوانوردی و آموزش‌های نظامی به اتحاد جماهیر شوروی پیشین رفت. او بعدها به عنوان نخستین فضانورد افغانستان به فضا سفر کرد و نام خود را در تاریخ این کشور ثبت نمود.
+عبدالاحد مومند در سال ۱۹۸۸ میلادی و در سن ۲۹ سالگی، در چارچوب یک ماموریت مشترک اتحاد جماهیر شوروی پیشین، به ایستگاه فضایی «میر» سفر کرد. این سفر تاریخی او را به نخستین و تنها فضانورد افغانستان تبدیل کرد.
+درگذشت عبدالاحد مومند با واکنش گسترده شهروندان افغانستان و چهره‌های سیاسی این کشور همراه شده است.
+حامد کرزی، رئیس‌ جمهوری پیشین افغانستان، در واکنش به درگذشت او گفت که عبدالاحد مومند کارنامه‌ای بزرگ و فراموش‌نشدنی برای افغانستان به جا گذاشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246923
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246923_1782179478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حسن حسن‌زاده، فرمانده سپاه تهران، از تصویب پیشنهاد تعطیلی سه‌روزه پایتخت در استانداری و ارسال آن برای تصمیم‌گیری نهایی جهت برگزاری مراسم تشییع علی خامنه‌ای، رهبر سابق جمهوری اسلامی، خبر داد. بر اساس جدول زمان‌بندی اعلام‌شده، «آیین وداع» روزهای شنبه ۱۳ و یکشنبه ۱۴ تیرماه در مصلای تهران برگزار می‌شود و مراسم تشییع برای روز دوشنبه ۱۵ تیرماه برنامه‌ریزی شده است.
+علی خامنه‌ای حدود ۴ ماه پیش، در اولین دقایق حمله آمریکا و اسرائیل، روز ۹ اسفندماه ۱۴۰۴ کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246922
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246922_1782179479.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، با حمله به دونالد ترامپ، رییس‌جمهوری آمریکا، گفت به آمریکا و شخصی مانند او نمی‌توان اعتماد کرد.
+او ترامپ را «متکبر، مغرور، خودخواه، عقده‌ای، پست و پیمان‌شکن» خواند و افزود برخی مسئولان، به گفته مجتبی خامنه‌ای، با حسن نظر مذاکره را راه تامین مصالح نظام می‌دانند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246921
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️غلامحسین محسنی اژه‌ای، رئیس قوه قضایی جمهوری اسلامی با «پست» و «عقده‌ای» خواندن دونالد ترامپ، رئیس‌جمهوری آمریکا درباره مذاکرات جاری گفت که فعلا نظر بر این است که «مصالح نظام» از این طریق تامین می‌شود و نقشه‌های دشمن به این روش خنثی می‌شود. اژه‌ای افزود: به هیچ وجه تسلیم نخواهیم شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246920
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246920_1782179480.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو منبع اسرائیلی به اکسیوس گفتند دولت اسرائیل نگران است که آمریکا با تفاهم‌های جدیدی که در سوئیس به دست آمده و همچنین تفاهم‌نامه‌ای که هفته گذشته با حکومت ایران امضا شد، عملا نفوذ جمهوری اسلامی در لبنان را مشروعیت می‌بخشد و آزادی عمل اسرائیل در این کشور را محدود می‌کند.
+منابع اسرائیلی می‌گویند توافق‌های جدید آمریکا و ایران درباره لبنان، تفاهم‌های پیشین میان دولت‌های نتانیاهو و جو بایدن در سال ۲۰۲۴ در این زمینه را تضعیف می‌کند.
+یک منبع اسرائیلی گفت اگرچه بخش هسته‌ای توافق آمریکا و ایران برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، نگران‌کننده است، اما او در حال حاضر بیش از همه درباره بخش مربوط به لبنان نگرانی دارد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: THE LIFE OF AUSTIN METCALF, THROUGH HIS FATHER'S EYES
+
+"He was a leader. He was a God-fearing son. He showed compassion. He showed love."
+
+Jeff Metcalf joined Will Cain and shared what he wants the world to know about Austin.
+</div>
+
+## FoxNewsTwitter — post 343276
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343276_1782179481.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"President Trump, I know, will never sign onto a deal that does not serve this country and our national security interests. He is always looking out for America first."
+
+White House Press Secretary Karoline Leavitt joined Sean Hannity and touted what she described as growing momentum toward a deal with Iran, arguing the administration's pressure campaign is producing results.
+
+The comments come as the White House points to renewed diplomatic movement as evidence that Trump's approach is working.
+</div>
+
+## FoxNewsTwitter — post 343275
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343275_1782179482.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This is what the American people elected President Trump to do."
+
+White House Press Secretary Karoline Leavitt joined @seanhannity and blasted the so-called "pro-algae" protesters who gathered near the Lincoln Memorial Reflecting Pool, dismissing the demonstration as another attempt to mock the Trump administration.
+
+The stunt came after the recently renovated Reflecting Pool became the subject of viral attention over algae growth and ongoing repairs. President Trump has accused vandals of damaging the site, and multiple arrests have been made in connection with alleged vandalism at the pool.
+
+Leavitt said the administration remains focused on delivering on the agenda voters elected President Trump to carry out.
+</div>
+
+## FoxNewsTwitter — post 343274
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343274_1782179484.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A possible U.S.-Iran deal is drawing very different reactions depending on which side of the border you're standing on.
+
+As negotiations continue, some see a diplomatic path forward. But in Israel, growing concerns remain over Hezbollah attacks and whether any agreement would do enough to address the threats posed by Iran-backed groups.
+
+Benjamin Hall reports questions mount over what a deal could mean for security, stability, and America's closest ally in the Middle East.
+</div>
+
+## FoxNewsTwitter — post 343273
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343273_1782179486.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"How does the country survive when one party seems to increasingly despise the country?"
+
+Victor Davis Hanson analyzes recent reports that fewer Democrats are proud to be American. https://twitter.com/IngrahamAngle/status/2069215039379194199#m
+</div>
+
+## FoxNewsTwitter — post 343272
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343272_1782179488.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Why isn’t Governor Pritzker calling me for help?"
+
+President Trump is weighing in after a violent weekend in Chicago left six people dead and 39 others shot.
+
+The violence included a drive-by shooting at a Juneteenth celebration in Princeton Park, where police say gunmen opened fire from an SUV into a crowd, injuring 13 people.
+
+Trump pointed to Washington, D.C.'s crime crackdown as a model, arguing Chicago could see a similar turnaround if state leaders sought federal assistance.
+</div>
+
+## FoxNewsTwitter — post 343271
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343271_1782179488.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @mikerreports: UPDATE: Savannah’s network NBC is now reporting that the follow-up note DID indicate that Nancy Guthrie had died “but contained no apology or request for payment for the release of her body.” https://twitter.com/mikerreports/status/2069185994914513000#m
+</div>
+
+## FoxNewsTwitter — post 343270
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343270_1782179490.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The players were neither fined nor disciplined, nor will they ever be."
+
+MLB Commissioner Rob Manfred is pushing back after Sen. Josh Hawley accused the league of targeting San Francisco Giants players who wrote Bible verse references on their Pride Night hats.
+
+In a letter to Hawley, Manfred said the players received only a "routine oral warning" related to MLB's uniform policy and stressed that no fines or discipline were issued. He also said the league later learned the Giants had not clearly informed players they could opt out of the Pride-themed cap and wear a standard game cap instead.
+
+The dispute has become the latest flashpoint in the debate over religious expression, Pride events, and professional sports.
+</div>
+
+## IranIntlTV — post 343851
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343851_1782179491.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف در واکنش به اعتراض حامیان حکومت به مذاکرات، در ایکس نوشت: «در یکی از برنامه‌های خوب صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.»
+https://iranintl.com/202606239016
+</div>
+
+## IranIntlTV — post 343850
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343850_1782179491.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، با حمله به دونالد ترامپ، رییس‌جمهوری آمریکا، گفت به آمریکا و شخصی مانند او نمی‌توان اعتماد کرد.
+او ترامپ را «متکبر، مغرور، خودخواه، عقده‌ای، پست و پیمان‌شکن» خواند و افزود برخی مسئولان، به گفته مجتبی خامنه‌ای، با حسن نظر مذاکره را راه تامین مصالح نظام می‌دانند.
+</div>
+
+## IranIntlTV — post 343849
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343849_1782179492.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو منبع اسرائیلی به اکسیوس گفتند دولت اسرائیل نگران است که آمریکا با تفاهم‌های جدیدی که در سوئیس به دست آمده و همچنین تفاهم‌نامه‌ای که هفته گذشته با حکومت ایران امضا شد، عملا نفوذ جمهوری اسلامی در لبنان را مشروعیت می‌بخشد و آزادی عمل اسرائیل در این کشور را محدود می‌کند.
+منابع اسرائیلی می‌گویند توافق‌های جدید آمریکا و ایران درباره لبنان، تفاهم‌های پیشین میان دولت‌های نتانیاهو و جو بایدن در سال ۲۰۲۴ در این زمینه را تضعیف می‌کند.
+یک منبع اسرائیلی گفت اگرچه بخش هسته‌ای توافق آمریکا و ایران برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، نگران‌کننده است، اما او در حال حاضر بیش از همه درباره بخش مربوط به لبنان نگرانی دارد.
+
+https://iranintl.com/202606228814
+</div>
+
+## FarsiVOA — post 221598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مقابله با قاچاق دلار و اصلاحات ساختاری؛ بانک مرکزی عراق پرونده بانک‌های تحریم شده را می‌بندد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ گزارشی درباره حمایت یک چهره مخالف جمهوری اسلامی از «یادداشت تفاهم» را بازنشر کرد
+
+▪️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، دوشنبه شب یک تیر ماه، یک‌ بار دیگر گزارشی را که در آن علیرضا جعفرزاده، از مسئولان «شورای ملی مقاومت ایران»، و کِی.تی. مک‌فارلند، معاون پیشین مشاور امنیت ملی آمریکا، از «یادداشت تفاهم» اخیر حمایت کرده‌اند، در شبکه اجتماعی «تروت سوشال» بازنشر کرد. آقای ترامپ پیشتر نیز این مقاله را بازنشر کرده بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/trump-shares-praise-for-iran-deal/8163872.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺مایک والتز: در برجام این جمهوری اسلامی بود که تعیین می‌کرد بازرسان به چه مکان‌هایی دسترسی داشته باشند
+
+▪️مایک والتز، سفیر ایالات متحده در سازمان ملل متحد، روز دوشنبه در مصاحبه‌ای با فاکس‌نیوز تأیید کرد که جمهوری اسلامی بار دیگر به بازرسان هسته‌ای اجازه ورود به ایران را داده است و این اقدام را نخستین گام در یک فرایند گسترده‌تر دانست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163870.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تیم فوتبال ایران زیر سایه مذاکرات جمهوری اسلامی و آمریکا؛ گفت‌وگو با حسین علیزاده دیپلمات پیشین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221594
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221594_1782179493.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش قانون‌گذار آمریکایی به اقدام جمهوری اسلامی در اعدام ایرانیان مخالف
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آلن گرینسپن، معروف‌ترین رئیس سابق بانک مرکزی آمریکا درگذشت
+
+▪️آلن گرینسپن، رئیس سابق بانک مرکزی آمریکا، در ۱۰۰ سالگی درگذشت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163868.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221592
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221592_1782179494.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حواشی بازی ایران و بلژیک در لس انجلس در گزارش آرمیتا آزاد
+@FarsiVOAO
+</div>
+
+## FarsiVOA — post 221591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از دستاوردهای دور اول مذاکرات آمریکا و جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بیانیه مشترک نخست‌وزیر، وزیر دفاع و رئيس ارتش اسرائيل: منطقه امنیتی در جنوب لبنان را حفظ، و زیرساخت‌های تروریستی را نابود می‌کنیم
+
+▪️دفتر بنیامین نتانیاهو، نخست وزیر اسرائيل، با صدور بیانیه‌ای گفت که ارتش اسرائيل «با قاطعیت» به «خنثی‌سازی تهدیدها» در جنوب لبنان ادامه خواهد داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163661.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221589
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221589_1782179495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دیوار دفاعی ایران مقابل ستاره‌های بلژیک؛ گفت‌وگو با معصومه حسرتی، عضو پیشین تیم ملی زنان ایران
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284800
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284800_1782179495.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کامران غضنفری، یکی از نمایندگان تهران در مجلس شورای اسلامی، با انتظار پستی در شبکه ایکس از برنامه ریزی برای تجمعی اعتراضی در برابر ساختمان مجلس خبر داده و علت آن را بسته ماندن مجلس شورای اسلامی طی چند ماه گذشته اعلام کرده است.
+
+آقای غضنفری در پست روز دوشنبه خود در شبکه ایکس که با عنوان «اطلاعیه مهم» آغاز شده نوشته است: «به اطلاع ملت شریف ایران می رساند؛ جمعی از نمایندگان مجلس شورای اسلامی، ساعت هشت صبح روز یکشنبه ۷ تیر به مجلس خواهند رفت. چنانچه مجلس بسته باشد، تا باز شدن مجلس، در همانجا تحصن خواهیم کرد.»
+
+📸AFP via Getty Images
+https://bbc.in/4vsfqzK
+@BBCPersian
+</div>
+
+## BBCPersian — post 284791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋بکی مورتون و برایان ویلر
+بی‌بی‌سی
+
+کی‌یر استارمر اعلام کرده است که از رهبری حزب کارگر بریتانیا کناره‌گیری می‌کند و به این ترتیب دوران نخست‌وزیری او نیز به پایان می‌رسد.
+
+آقای استارمر در سخنرانی خود مقابل دفتر نخست‌وزیری در داونینگ استریت گفت تا زمانی که جانشین او انتخاب شود، در سمت خود باقی خواهد ماند.
+
+روند سقوط او از اوج قدرت، سریع و چشمگیر بوده است. کمتر از دو سال پیش، او پیروزی قاطع حزب کارگر در انتخابات سراسری را جشن گرفت و به نظر می‌رسید برای سال‌ها بر سیاست بریتانیا مسلط خواهد بود.
+
+اما اکنون، به جای آن‌که «یک دهه نوسازی ملی» را که وعده داده بود آغاز کند، با فشار اعضای حزب خودش از قدرت کنار رفت.
+ادامه مطلب⬇️
+
+📸PA/ Getty/ Reuters/House of Commons
+https://bbc.in/4gjK7T5
+@BBCPersian
+</div>
+
+## BBCPersian — post 284790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جام جهانی؛ توقف طولانی مسابقه فرانسه و عراق به علت شرایط جوی
+
+پس از آن که دیدار فرانسه و عراق در نیمه اول با گل کلیان امباپه و در زیر بارش باران به پایان رسید، فیفا اعلام کرد به علت تهدید صاعقه و شرایط جوی، نیمه دوم با تاخیر آغاز خواهد شد.
+
+همین موضوع باعث تخلیه هزاران هوادار از سکوهای رو باز ورزشگاه فلادلفیا در شرق آمریکا شد.
+
+اکنون با گذشت حدود یک ساعت از پایان نیمه اول هنوز مسئولان برگزاری اجازه آغاز نیمه دوم را نداده‌اند و بارش شدید باران هم در کرانه شمال شرقی آمریکا ادامه دارد.
+
+https://bbc.in/4vBWgXW
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/02 03:15
 ---
 
