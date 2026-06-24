@@ -7,6 +7,619 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/03 04:58
+---
+
+## VahidOOnLine — post 247070
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247070_1782264509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کرواسی با تک‌گل آنته بودیمیر در نیمه دوم، پاناما را با نتیجه یک بر صفر شکست داد و نخستین پیروزی خود در جام جهانی ۲۰۲۶ را به دست آورد.
+به گزارش رویترز، این دیدار در گروه L برگزار شد و پس از تساوی بدون گل انگلیس و غنا، برای هر دو تیم اهمیت زیادی داشت؛ چرا که شکست در این مسابقه به معنای از دست رفتن شانس صعود بود. بودیمیر که به‌عنوان بازیکن تعویضی وارد میدان شده بود، در دقیقه ۵۴ تنها گل بازی را به ثمر رساند.
+در شبی که لوکا مودریچ، کاپیتان کرواسی، دویستمین بازی ملی خود را انجام داد، کرواسی با کسب سه امتیاز به جدول بازگشت و امیدهای خود برای صعود را حفظ کرد.
+پاناما نیز با این شکست و بدون کسب امتیاز از دو مسابقه، به پنجمین تیم حذف‌شده جام جهانی ۲۰۲۶ تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247069
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247069_1782264510.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای شهر وان استان آنتاریو کانادا سه‌شنبه به پیشنهاد شهردار این شهر قطعنامه‌ای تصویب کرد تا یک پلاک یادبود دائمی برای گرامیداشت جان‌باختگان سرکوب‌های اخیر جمهوری اسلامی در یکی از املاک شهرداری نصب شود.
+قرار است این پلاک با همکاری نزدیک جامعه ایرانی-کانادایی طراحی شود و در آینده مراسمی برای رونمایی از آن برگزار خواهد شد.
+پیش از این نیز شهرداری وان با برافراشتن پرچم شیر و خورشید در نهم بهمن ۱۴۰۴ و برگزاری مراسم یادبود برای کشته‌شدگان خیزش انقلابی در دوم اسفند ۱۴۰۴، همبستگی خود را با مردم ایران نشان داده بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247068
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247068_1782264511.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز سه‌شنبه با اشاره به تقابل با ایران و ونزوئلا، به تفاوت‌های مسلمانان و کاتولیک‌ها اشاره کرد و گفت: «ایران کشور بسیار بزرگ‌تری با ۹۱ میلیون جمعیت و ایدئولوژی کاملا متفاوتی است. ایدئولوژی مسلمانان کمی با ایدئولوژی کاتولیک‌ها تفاوت دارد. ما اینجا کاتولیک‌ها را داریم و آنجا مسلمانان را، که با هم متفاوتند.» ترامپ در ادامه افزود: «اگر ایران منطقی و باهوش باشد، اوضاع خوب خواهد بود. در غیر این صورت، ما مجبوریم کار را تمام کنیم، کاری که نهایتا کمتر از یک هفته زمان می‌برد. اما من فکر می‌کنم آن‌ها درست رفتار خواهند کرد، چون ما می‌خواهیم این غائله ختم به خیر شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247067
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247067_1782264512.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنای معروف و نمادین «مسیح نجات‌دهنده» در شهر ریو دو ژانیرو به مناسبت آغاز شمارش معکوس برای برگزاری رقابت‌های جام جهانی فوتبال زنان ۲۰۲۷، با نورهایی به رنگ سبز و زرد (رنگ‌های پرچم برزیل) نورپردازی شد. برزیل آماده می‌شود تا حدود یک سال دیگر میزبان دهمین دوره این رقابت‌ها و نخستین جام جهانی فوتبال زنان در تاریخ آمریکای جنوبی باشد. در این تورنمنت بزرگ، ۳۲ تیم از ۶ کنفدراسیون مختلف به رقابت خواهند پرداخت که در این میان، برزیل به عنوان کشور میزبان، پیش‌تر سهمیه حضور خود را به صورت خودکار قطعی کرده است.
+رقابت‌های انتخابی این جام جهانی از سال ۲۰۲۵ آغاز شده و تا بهمن ۱۴۰۵ (فوریه ۲۰۲۷)ادامه خواهد داشت. سهمیه‌های مسابقات میان کنفدراسیون‌های مختلف توزیع شده و سه سهمیه نیز از طریق پلی‌آف بین‌قاره‌ای تعیین می‌شود.
+قرعه‌کشی نهایی جام جهانی زنان ۲۰۲۷ احتمالا در آذرماه سال جاری (دسامبر ۲۰۲۶) برگزار خواهد شد و تیم‌های راه‌یافته برای کسب عنوان قهرمانی جهان در برزیل به رقابت خواهند پرداخت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247066
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247066_1782264513.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جانی اینفانتینو، رئیس فیفا، اعلام کرد دونالد ترامپ، رئیس‌جمهوری آمریکا، جام قهرمانی جام جهانی ۲۰۲۶ را در فینال این رقابت‌ها که در تاریخ ۲۸ تیر (۱۹ ژوئیه) در ورزشگاه نیوجرسی برگزار می‌شود، به تیم قهرمان اهدا خواهد کرد.
+به گزارش رویترز، اینفانتینو در گفتگو با برنامه «فاکس اند فرندز» گفت او و ترامپ به‌طور مشترک در مراسم پایانی حضور خواهند داشت و جام را به کاپیتان تیم برنده تحویل می‌دهند.
+این تصمیم پس از حاشیه‌های مراسم اهدای جام جهانی باشگاه‌ها به چلسی در سال گذشته مطرح شده است؛ زمانی که ترامپ جام را به ریس جیمز، کاپیتان چلسی، اهدا کرد و پس از آن نیز روی سکو کنار بازیکنان ماند؛ صحنه‌ای که واکنش و سردرگمی برخی بازیکنان را به همراه داشت.
+در تاریخ جام جهانی، پیش‌تر نیز برخی رهبران کشورها جام قهرمانی را اهدا کرده‌اند؛ از جمله ملکه الیزابت دوم که در سال ۱۹۶۶ جام را به بابی مور، کاپیتان تیم ملی انگلیس، داد و پادشاه خوان کارلوس اسپانیا که در سال ۱۹۸۲ جام قهرمانی را به دینو زوف، کاپیتان تیم ملی ایتالیا، اهدا کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247065
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247065_1782264514.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی عمان در اطلاعیه‌ای نوشت این کشور با توجه به مسئولیت خود در قبال تنگه هرمز و همسو با نتایج رایزنی‌های آمریکا و ایران، با هماهنگی سازمان بین‌المللی دریانوردی اقدام به فراهم کردن امکان استفاده از یک مسیر دریایی موقت برای تمامی‌کشتی‌ها کرده است.
+طبق این اطلاعیه، این مسیر بر اساس مختصات اعلام‌شده از سوی سازمان بین‌المللی دریانوردی و مراجع ذی‌صلاح عمانی تعیین شده و کشتی‌های متقاضی عبور باید هماهنگی‌های لازم را با سازمان بین‌المللی دریانوردی انجام دهند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247064
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247064_1782264515.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک روته، دبیرکل ناتو، از تلاش‌های دونالد ترامپ، رییس‌جمهوری آمریکا، برای اطمینان یافتن از اینکه تهران هرگز به قابلیت‌های هسته‌ای دست نخواهد یافت، حمایت کرد.
+
+او به شبکه خبری فاکس گفت: «رییس‌جمهور دقیقاً همان کاری را که لازم است انجام می‌دهد، یعنی تضعیف توانایی هسته‌ای ایران.»
+
+روته رژیم ایران را «صادرکننده هرج و مرج و تروریسم» توصیف کرد و افزود: «"می‌توانید تصور کنید که ایران به سلاح هسته‌ای دست یابد؟ این برای منطقه و برای کل جهان ویرانگر خواهد بود. و اگر آن لحظه فرا برسد که آن‌ها به سلاح هسته‌ای دست یابند، خیلی دیر خواهد بود.»
+
+او در مورد موضع کشورهایی که به ترامپ گفتند جنگ با ایران «جنگ ما نیست» و «ما آن را شروع نکرده‌ایم»، گفت که «ناامیدی» را کاملاً درک می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247063
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247063_1782264516.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیلا گملیئل، وزیر علوم و فناوری اسرائیل، در نشست بین‌المللی سیاست‌گذاری «سندیکای خبر یهود» با تاکید بر اینکه «قوم یهود و ملت ایران پیوندی ۲۵۰۰ ساله دارند که جمهوری اسلامی نتوانسته آن را از بین ببرد»، خواستار «ایرانی آزاد و همکاری منطقه‌ای» شد.
+گملیئل گفت «این پیوند به کوروش بزرگ بازمی‌گردد؛ کسی که به یهودیان اجازه داد از تبعید در بابل به اورشلیم بازگردند و معبد را بازسازی کنند». او این رویداد را «نخستین پیمان میان ملت ایران و مردم یهودی» خواند.
+او افزود، حکومت جمهوری اسلامی، برابر با مردم ایران نیست و یک ایران آزاد می‌تواند با اسرائیل، کشورهای خلیج فارس و ایالات متحده در زمینه آب، انرژی و امنیت همکاری کند.
+وزیر علوم و فناوری اسرائیل گفت که وقتی میزبان شاهزاده رضا پهلوی بوده، همراه با او طرح «توافق کوروش» را برای گسترش توافق‌ ابراهیم به سوی یک ایران آزاد، پیشنهاد کرده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343330
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343330_1782264516.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Alexandria Ocasio-Cortez is headed back to the general election after cruising to victory in New York's Democratic primary.
+
+The congresswoman remains one of the Democratic Party's most prominent progressive voices, and her latest win is likely to keep attention focused on what comes next politically.
+
+As her national profile continues to grow, so does speculation about whether AOC could eventually pursue a bigger role on the national stage.
+</div>
+
+## FoxNewsTwitter — post 343329
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343329_1782264517.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @JesseBWatters: 🚨 WOW! Kelsey Grammer EXPOSES the "VIRUS" of HATRED infecting America 😡
+
+"A small number just want to tear things down... consumed by hatred" 💥
+
+How would DR. FRASIER CRANE treat TDS?! 😷
+</div>
+
+## FoxNewsTwitter — post 343328
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343328_1782264520.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+One of President Trump's most outspoken critics is headed toward another term in Congress.
+
+Rep. Jamie Raskin, a leading figure in the anti-Trump "Resistance" movement and the impeachment manager during Trump's second impeachment trial, defeated his Democratic primary challengers in Maryland.
+
+Raskin has built a national profile through his frequent clashes with Trump and his role on key House committees investigating the former president and his allies.
+
+The victory clears the way for one of President Trump's most prominent congressional critics to remain in office and sends Raskin to the general election in Maryland's 8th Congressional District.
+</div>
+
+## FoxNewsTwitter — post 343327
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343327_1782264521.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Maryland Gov. Wes Moore is headed to the general election after winning the Democratic primary.
+
+The first-term governor, who is often mentioned as a potential 2028 White House contender, secured the Democratic nomination and will advance to the general election this fall.
+
+His victory is likely to fuel even more discussion about his future on the national stage.
+
+Moore, the nation's only Black governor, has repeatedly clashed with President Trump, engaging in public feuds over policy and politics. Earlier this year, Trump even sought to exclude Moore from a White House governors' dinner, saying the Democrat was "not worthy" of attending.
+</div>
+
+## FoxNewsTwitter — post 343326
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343326_1782264522.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump couldn't lose in this race.
+
+South Carolina Attorney General Alan Wilson won the state's Republican gubernatorial runoff after the president endorsed both Wilson and his rival, Lt. Gov. Pamela Evette, in the election.
+
+The result adds to Trump's endorsement record in an unusual way, underscoring his continued influence in high-profile Republican primaries.
+</div>
+
+## pm_afshaa — post 94720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:ما ایران را بدون توانایی موشکی ترک می‌کنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94719
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:دموکرات‌ها به داشتن سلاح هسته‌ای توسط ایران رأی مثبت دادن 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:دموکرات‌ها به داشتن سلاح هسته‌ای توسط ایران رأی مثبت دادن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نفتالی بنت نخست‌وزیر سابق اسرائیل و رقیب نتانیاهو: دولت کنونی اسرائیل برنامه انتقال بیش از ده‌ها هزار ترمینال اینترنت ماهواره‌ای استارلینک به ایران را در انقلاب شیروخورشید دی‌ماه متوقف کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5924
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5924_1782264522.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## VahidOnline — post 76636
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76636_1782264523.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ProtesterCrow
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 344052
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344052_1782264524.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای شهر وان استان آنتاریو کانادا سه‌شنبه به پیشنهاد شهردار این شهر قطعنامه‌ای تصویب کرد تا یک پلاک یادبود دائمی برای گرامیداشت جان‌باختگان سرکوب‌های اخیر جمهوری اسلامی در یکی از املاک شهرداری نصب شود.
+قرار است این پلاک با همکاری نزدیک جامعه ایرانی-کانادایی طراحی شود و در آینده مراسمی برای رونمایی از آن برگزار خواهد شد.
+پیش از این نیز شهرداری وان با برافراشتن پرچم شیر و خورشید در نهم بهمن ۱۴۰۴ و برگزاری مراسم یادبود برای کشته‌شدگان خیزش انقلابی در دوم اسفند ۱۴۰۴، همبستگی خود را با مردم ایران نشان داده بود.
+
+https://iranintl.com/202606249426
+</div>
+
+## IranIntlTV — post 344047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دیوید بکام، ستاره پیشین فوتبال انگلیس و یکی از مالکان باشگاه اینترمیامی، تماشاگر بازی انگلیس - غنا در مرحله گروهی جام جهانی ۲۰۲۶ در استادیوم بوستون بود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344046
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344046_1782264525.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی عمان در اطلاعیه‌ای نوشت این کشور با توجه به مسئولیت خود در قبال تنگه هرمز و همسو با نتایج رایزنی‌های آمریکا و ایران، با هماهنگی سازمان بین‌المللی دریانوردی اقدام به فراهم کردن امکان استفاده از یک مسیر دریایی موقت برای تمامی‌کشتی‌ها کرده است.
+طبق این اطلاعیه، این مسیر بر اساس مختصات اعلام‌شده از سوی سازمان بین‌المللی دریانوردی و مراجع ذی‌صلاح عمانی تعیین شده و کشتی‌های متقاضی عبور باید هماهنگی‌های لازم را با سازمان بین‌المللی دریانوردی انجام دهند.
+
+https://iranintl.com/202606234195
+</div>
+
+## IranIntlTV — post 344044
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344044_1782264526.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر پاکستان گفت که در تفاهم‌نامه میان ایران و ایالات متحده، هیچ اشاره‌ای به موشک‌های بالیستیک نشده است.
+
+اردوان روزبه، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 344043
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344043_1782264528.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک روته، دبیرکل ناتو، از تلاش‌های دونالد ترامپ، رییس‌جمهوری آمریکا، برای اطمینان یافتن از اینکه تهران هرگز به قابلیت‌های هسته‌ای دست نخواهد یافت، حمایت کرد.
+
+او به شبکه خبری فاکس گفت: «رییس‌جمهور دقیقاً همان کاری را که لازم است انجام می‌دهد، یعنی تضعیف توانایی هسته‌ای ایران.»
+
+روته رژیم ایران را «صادرکننده هرج و مرج و تروریسم» توصیف کرد و افزود: «"می‌توانید تصور کنید که ایران به سلاح هسته‌ای دست یابد؟ این برای منطقه و برای کل جهان ویرانگر خواهد بود. و اگر آن لحظه فرا برسد که آن‌ها به سلاح هسته‌ای دست یابند، خیلی دیر خواهد بود.»
+
+او در مورد موضع کشورهایی که به ترامپ گفتند جنگ با ایران «جنگ ما نیست» و «ما آن را شروع نکرده‌ایم»، گفت که «ناامیدی» را کاملاً درک می‌کند.
+https://iranintl.com/202606237001
+</div>
+
+## IranIntlTV — post 344042
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344042_1782264528.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیلا گملیئل، وزیر علوم و فناوری اسرائیل، در نشست بین‌المللی سیاست‌گذاری «سندیکای خبر یهود» با تاکید بر اینکه «قوم یهود و ملت ایران پیوندی ۲۵۰۰ ساله دارند که جمهوری اسلامی نتوانسته آن را از بین ببرد»، خواستار «ایرانی آزاد و همکاری منطقه‌ای» شد.
+گملیئل گفت «این پیوند به کوروش بزرگ بازمی‌گردد؛ کسی که به یهودیان اجازه داد از تبعید در بابل به اورشلیم بازگردند و معبد را بازسازی کنند». او این رویداد را «نخستین پیمان میان ملت ایران و مردم یهودی» خواند.
+او افزود، حکومت جمهوری اسلامی، برابر با مردم ایران نیست و یک ایران آزاد می‌تواند با اسرائیل، کشورهای خلیج فارس و ایالات متحده در زمینه آب، انرژی و امنیت همکاری کند.
+وزیر علوم و فناوری اسرائیل گفت که وقتی میزبان شاهزاده رضا پهلوی بوده، همراه با او طرح «توافق کوروش» را برای گسترش توافق‌ ابراهیم به سوی یک ایران آزاد، پیشنهاد کرده است.
+
+https://iranintl.com/202606231671
+</div>
+
+## FarsiVOA — post 221698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر: معنای تعهد جمهوری اسلامی برای عدم ساخت یا خرید سلاح هسته‌ای چیست
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تفاهم با آمریکا و مشکلات اقتصادی مردم ایران از نگاه کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آلیانتس: «بستن بی‌سابقه» تنگه هرمز و گیرافتادن ۱۲۰۰ کشتی نگاه شرکت‌های بیمه را تغییر داده است
+
+▪️روزنامه فایننشال تایمز در گزارشی نوشت که داده‌های جدید نشان می‌دهد بسته شدن تنگه هرمز باعث گیر افتادن بیش از ۱۲۰۰ کشتی باری شد که ارزش کالاهای آن‌ها در مجموع حدود ۱۲۵ میلیارد دلار است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164285.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221695
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221695_1782264529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مصر؛ بزرگ‌ترین مانع تیم ایران در راه صعود؛ گفت‌وگو با کوروش بازیار، مربی و کارشناس فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221694
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221694_1782264531.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اختلال‌های سریالی بانکی در ایران؛ گفت‌وگو با معصومه طاهرخانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش‌ها به سفر هیئت طالبان به بروکسل
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221692
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221692_1782264532.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدیه گلرو در برنامه تفسیر خبر: جمهوری اسلامی امروز با قبل از دی‌ماه بسیار متفاوت است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221691
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221691_1782264534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا می‌گوید ایالات متحده در حالی مشغول رها کردن جمهوری اسلامی است که این رژیم «هیچ ظرفیت هسته‌ای» نخواهد داشت.
+آقای ترامپ این موضوع را روز سه‌شنبه در یک سخنرانی در جمع هوادارانش در ایالت پنسیلوانیا اعلام کرد.
+رئیس‌جمهوری آمریکا توضیح داد که جمهوری اسلامی ایران «را در شرایطی رها می‌کنیم که نیروی دریایی، نیروی هوایی، سامانه‌های پدافند هوایی، توان موشکی و برنامه هسته‌ای ندارد. ما [حکومت] ایران را بدون هیچ ظرفیت هسته‌ای رها می‌کنیم و آن‌ها نیز با این موضوع موافقت کرده‌اند.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221690
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221690_1782264534.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مسی در ۳۹ سالگی؛ «غیرقابل‌باور» و فراترازانتظار؛ گفت‌وگو با مهرداد بحری مفسر و مربی فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221689
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221689_1782264535.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️طوفان در جام جهانی؛ توقف مسابقه فرانسه و عراق در گزارش آرش آرا
+@FarsiVOA
+</div>
+
+## IranianMinds — post 23209
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23209_1782264537.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رونالدو بعد از تموم شدن بازی امشب رو به دوربین:
+
+من برگشتم ، من برگشتم...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23208
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23208_1782264539.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😄
+😄
+😄
+😃 دلار درآمد با معرفی دوستات
+🤝
+💵
+همین الان وارد شو و علاوه بر 
+0️⃣
+0️⃣
+2️⃣
+🔣 بونوس اضافه اولین واریز با معرفی هرکدوم از دوستات به وینرو تا 
+🤩
+🤩
+🤩
+🤩 دلار درآمد کسب کن
+💰
+فرصت محدود
+🙂
+
+🔤 Winro.io
+
+🔤 Winro.io
+</div>
+
+## IranianMinds — post 23207
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23207_1782264540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا 
+😄
+😄
+😄
+😃 دلار درآمد با معرفی دوستات
+🤝
+💵
+
+با معرفی هرکدوم از دوستات به وینرو میتونی تا 
+🤩
+🤩
+🤩
+🤩 دلار درآمد داشته باشی
+💰
+
+
+🔝فقط کافیه دوستتو به وینرو دعوت کنی و کسب درآمد کنی
+
+این پاداش پول نقده و لحظه‌ای به حسابت واریز میشه و به صورت آنی میتونی برداشتش کنی
+💰
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+#وینرو
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+
+💰expert tips bets
+
+
+🎰 راستی با اولین واریزت هم میتونی تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگی
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io   کلیک کن و درآمد کسب کن
+
+📱 کانال اخبار و هدایــا eA2
+🌟
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 23206
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23206_1782264541.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چقدر حرف مموتی درست بود.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284871
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284871_1782264544.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋دیوید گریتن و استفانی هگارتی
+بی‌بی‌سی
+
+یک کمیسیون تحقیق سازمان ملل می‌گوید اسرائیل عمدا کودکان فلسطینی را هدف قرار داده است که منجر به نسل‌کشی و جنایت علیه بشریت و جنایات جنگی در نوار غزه، و همچنین جنایات جنگی در کرانه باختری اشغالی شده است.
+
+در گزارش جدید این کمیسیون آمده است که مقامات و نیروهای امنیتی اسرائیل «عمدا اقداماتی را انجام داده‌اند که منجر به مرگ و آسیب شدید جسمی و روحی صدها هزار کودک فلسطینی شده است» و این کشتارها حتی پس از آتش‌بس اکتبر گذشته در غزه ادامه یافته است.
+
+این کمیسیون می‌گوید دلایلی منطقی دارد که نتیجه‌ بگیرد که اقدامات اسرائیل «بخشی از یک استراتژی عمدی برای نابودی آینده فلسطینی‌ها در غزه از طریق هدف قرار دادن فرزندان آنها بوده است.»
+ادامه مطلب⬇️
+
+📸EPA
+https://bbc.in/4uXUCiz
+@BBCPersian
+</div>
+
+## BBCPersian — post 284870
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284870_1782264545.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مارکو روبیو، وزیر خارجه آمریکا، روز سه‌شنبه سفر خود به کشورهای حاشیه خلیج فارس را از امارات متحده عربی آغاز کرد. او همچنین به کویت و بحرین، دو کشوری که میزبان پایگاه‌های نظامی آمریکا هستند، سفر خواهد کرد تا درباره توافق با تهران گفت‌وگو کند.
+
+آقای روبیو روز سه‌شنبه یک بار دیگر تاکید کرد که از نظر آمریکا هیچ کشوری حق ندارد برای عبور کشتی‌ها از تنگه هرمز عوارض یا هزینه تعیین کند؛ موضوعی که در پی تلاش ایران برای دریافت هزینه از کشتی‌های عبوری مطرح شده است.
+
+او هنگام ورود به امارات گفت: «تنگه هرمز یک آبراه بین‌المللی است. هیچ کشوری اجازه ندارد در یک آبراه بین‌المللی عوارض یا هزینه دریافت کند. این موضوع بخشی از قوانین موجود بین‌المللی است.»
+
+آقای روبیو افزود: «فکر نمی‌کنم در اینجا لازم باشد کسی را در این مورد متقاعد کنیم. به گمان من، همه کشورهای این منطقه با ما هم‌نظر هستند.»
+
+📸REUTERS
+https://bbc.in/4vny3EJ
+@BBCPersian
+</div>
+
+## BBCPersian — post 284869
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284869_1782264545.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مقام‌ها در استان هرمزگان ایران می‌گویند نتیجه تحقیقات ۱۰۰ روزه برای پیدا کردن بقایای جسد ماکان نصیری، یکی از دانش‌آموزان کشته شده در بمباران مدرسه میناب، بی‌نتیجه مانده است و کارشناسان گفته‌اند علت «برخورد مستقیم موشک» با بدن او بوده است.
+
+مجتبی قهرمانی، رئیس کل دادگستری استان هرمزگان گفته است:
+«به دلیل قدرت تخریبی بالای موشک‌های به‌کار رفته، حتی پس از گذشت بیش از ۱۰۰ روز و انجام بیش از ۱۰۰ نمونه‌برداری دی‌ان‌ای، هیچ اثری از پیکر این شهید کوچک پیدا نشده است.»
+
+آقای قهرمانی افزوده تلاش برای پیدا کردن تار مو و انجام آزمایش دی‌ان‌ای برای یافتن این دانش آموز ۸ ساله هم به جایی نرسیده است و به گفته او: «کارشناسان معتقدند که متاسفانه موشک مستقیما به بدن ایشان اصابت کرده و اثری از پیکر باقی نگذاشته است و تنها یک لنگه کفش و کیف پاره‌شده‌اش پیدا شده است.«
+
+صبح شنبه، نهم اسفند، تنها حدود چهار ساعت پس از آغاز حملات هوایی آمریکا و اسرائیل به ایران، دبستان شجره طیبه در میناب، استان هرمزگان، هدف حمله موشکی قرار گرفت که طی آن ده‌ها دانش‌آموز شدند. ‌
+https://bbc.in/4w51Vpt
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/03 02:47
 ---
 
