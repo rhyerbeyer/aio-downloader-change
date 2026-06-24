@@ -7,6 +7,494 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/04 03:16
+---
+
+## VahidOOnLine — post 247217
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247217_1782344797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آویگدور لیبرمن که پیش‌تر سمت‌های وزیر دفاع، وزیر خارجه و وزیر دارایی اسرائیل را بر عهده داشته در یادداشتی در وال استریت ژورنال نوشت: هیچ جایی برای توهم وجود ندارد. توافق میان واشنگتن و تهران مانع از تبدیل شدن ایران به یک قدرت هسته‌ای نخواهد شد؛ بلکه آن را تضمین خواهد کرد. به نوشته لیبرمن، یادداشت تفاهم میان آمریکا و ایران به جاه‌طلبی‌های هسته‌ای تهران مشروعیت کامل بخشیده و راه را برای توافقی نهایی هموار کرده است که به‌مراتب بدتر از برجام در دوران ریاست‌جمهوری اوباما خواهد بود. بدتر از آن، چارچوبی که در حال شکل‌گیری است شباهت نگران‌کننده‌ای به توافقی دارد که دولت کلینتون با کره شمالی امضا کرد. همه ما می‌دانیم نتیجه چه بود. او که نامزد انتخابات اسرائیل است، در ادامه می‌نویسد: «من از آمریکایی‌ها هیچ گله‌ای ندارم. برخی اسرائیلی‌ها انتظار دارند تصمیم‌گیران آمریکایی بر اساس منافع اسرائیل عمل کنند. اما تصمیم‌گیران آمریکایی باید بر اساس منافع آمریکا عمل کنند، نه منافع اسرائیل. مسئولیت دفاع از منافع حیاتی اسرائیل فقط بر عهده خود اسرائیل است.
+با این حال، درک می‌کنم برخی از این سیاست‌ها ممکن است برای دولت آمریکا خوشایند نباشد. ما باید به دوستان خود در کاخ سفید تاکید کنیم که اسرائیل به‌هیچ‌وجه ملزم به پایبندی به بندهای این یادداشت تفاهم و هرگونه توافق احتمالی بعدی نیست. این توافق میان واشنگتن و تهران است، نه اورشلیم و تهران.
+اسرائیل باید بر اساس منافع ملی خود و برای حفظ امنیت مردمش و آینده کشور عمل کند. امنیت ملی ما اهرم چانه‌زنی نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247216
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247216_1782344797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز چهارشنبه سوم تیرماه در کاخ سفید و در پاسخ به پرسشی درباره رجب طیب اردوغان، رئیس‌جمهوری ترکیه، به نقش خود در متقاعد کردن او برای عدم مداخله در جنگ اخیر اشاره کرد و گفت:
+«او یکی از دوستان من است و بیرون از این جنگ ماند. می‌دانید، او یک کاندیدای اصلی برای ورود به جنگ ایران بود؛ حتی شاید در سمت ایران، چون همان‌طور که می‌دانید، او طرفدار بزرگ اسرائیل نیست. اما من از او خواستم که خودش را کنار بکشد و وارد نشود، و او هم بیرون ماند و مداخله نکرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارک روته، دبیرکل سازمان پیمان آتلانتیک شمالی (ناتو)، بامداد پنجشنبه چهارم تیرماه، در پاسخ به پرسشی درباره موضع ناتو نسبت به توان موشکی و هسته‌ای ایران گفت که موضع مشترک همه ۳۲ عضو این ائتلاف و ایالات متحده این است که ایران «هرگز نباید به توانایی هسته‌ای دست پیدا کند.»
+
+روته در پاسخ به پرسشی درباره اظهارات دونالد ترامپ در نشست گروه هفت (G7) مبنی بر اینکه اگر عربستان سعودی موشک‌های بالستیک دارد، ایران نیز باید آن‌ها را داشته باشد، از اظهار نظر درباره موضوع موشک‌های بالستیک خودداری کرد. او گفت مسئله اصلی برای ناتو جلوگیری از دستیابی ایران به توانایی هسته‌ای است و افزود کشوری که به گفته او «هرج‌ومرج و تروریسم صادر می‌کند»، در صورت دستیابی به چنین توانایی، تهدیدی برای منطقه، اسرائیل، اروپا و جهان خواهد بود. همچنین تاکید کرد که ترجیح می‌دهد تمرکز خود را بر موضوع هسته‌ای حفظ کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247214
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247214_1782344800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دولت دونالد ترامپ، روز چهارشنبه ۳ تیرماه از کنگره درخواست کرد که ۸۷.۶ میلیارد دلار بودجه اضافی برای تامین «نیازهای فوری» مرتبط با جنگ با ایران و همچنین مقابله با شیوع ویروس ابولا در آفریقا اختصاص دهد.
+به گزارش رویترز، بخش عمده این درخواست شامل ۶۷.۱۵ میلیارد دلار بودجه برای ارتش آمریکا است. کاخ سفید اعلام کرد ۲۱ میلیارد دلار از این مبلغ برای خرید مهمات، تقویت صنایع دفاعی آمریکا و پشتیبانی از توانمندی‌های حیاتی نظامی در نظر گرفته شده است.
+این درخواست همچنین شامل ۵۰۰ میلیون دلار برای برنامه امنیت سلامت جهانی به منظور پیشگیری، رصد و مقابله با شیوع ویروس ابولا در جمهوری دموکراتیک کنگو، اوگاندا و دیگر کشورها است. کاخ سفید اعلام کرد این بودجه برای جلوگیری از انتقال ویروس به ایالات متحده ضروری است.
+دولت ترامپ همچنین خواستار اختصاص ۸۰۰ میلیون دلار برای کمک‌های بشردوستانه مرتبط با شیوع ابولا در آفریقا و ۱۱.۱ میلیارد دلار برای حمایت از کشاورزان آمریکایی شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار سونامی در ونزوئلا، بعد از زمین‌لرزه۷ ریشتری، ویدیو منتشرشده از کاراکاس، برخاستن دود و گردوغبار از مناطق مختلفی را در پی این زمین‌لرزه شدید نشان می‌دهد. @withyashar
+</div>
+
+## WithYashar — post 15767
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15767_1782344801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار سونامی در ونزوئلا، بعد از زمین‌لرزه۷ ریشتری، ویدیو منتشرشده از کاراکاس، برخاستن دود و گردوغبار از مناطق مختلفی را در پی این زمین‌لرزه شدید نشان می‌دهد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343375
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343375_1782344803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+SEE IT: The Great American State Fair opens with a patriotic display honoring all 50 states.
+</div>
+
+## FoxNewsTwitter — post 343374
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343374_1782344805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Because of President Trump, we still have our freedom as Christians."
+
+"Our president is once in a lifetime. Nobody works as hard for America as he does."
+
+Billy & Dorothea Oland explain why they've traveled from North Carolina to the nation's capital to attend the kick-off of the Great American State Fair that President Trump will take the stage from later tonight.
+
+"To me, it's to be here to celebrate the 250th birthday of our country and our freedom, but it's also to celebrate that freedom we have in Jesus Christ."
+</div>
+
+## FoxNewsTwitter — post 343373
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343373_1782344807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump kicks off Great American State Fair as 250th anniversary celebrations take over National Mall (Courtesy: FREEDOM 250) https://twitter.com/i/broadcasts/1dJrPPpMnEAKX
+</div>
+
+## FoxNewsTwitter — post 343372
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343372_1782344808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+America's 250th birthday is almost here, and President Trump is getting set to kick off the celebrations at the Great American State Fair.
+
+The fair is bringing together all 50 states for a national celebration stretching from the Capitol to the Washington Monument, featuring military flyovers, musical performances and civic programming.
+
+@LucasFoxNews explains what to expect from the evening, the first step in a major push to bring the nation together for a celebration of unity.
+</div>
+
+## FoxNewsTwitter — post 343371
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343371_1782344808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump kicks off Great American State Fair as 250th anniversary celebrations take over National Mall https://twitter.com/i/broadcasts/1dJrPPpMnEAKX
+</div>
+
+## IranIntlTV — post 344226
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344226_1782344809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی خامنه‌ای: علی‌الاصول؛ گردن نمی‌گیرم، پس هستم!
+
+این روزها یک عبارت تازه وارد ادبیات سیاسی جمهوری اسلامی شده که به نظر می‌رسد قرار است سال‌ها سوژه طنز باشد: «علی‌الاصول».
+
+ماجرا از جایی شروع شد که در یکی از پیام‌های منتسب به مجتبی خامنه‌ای درباره مذاکرات با آمریکا آمده بود: «بنده علی‌الاصول نظر دیگری داشتم.»
+
+کامبیز حسینی در «برنامه» به این موضوع می پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/P-T7viTBEMA
+@iranintltv
+</div>
+
+## IranIntlTV — post 344225
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344225_1782344812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیدا از تهران: یزید گذاشت زینب حرف بزند، ولی این‌ها بچه‌های ما را شبانه دفن کردند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/P-T7viTBEMA
+@iranintltv
+</div>
+
+## IranIntlTV — post 344224
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344224_1782344813.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید از تهران: من دی‌ماه تیر خوردم و تنها خواسته‌ام از اپوزیسیون این است که متحد باشند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/P-T7viTBEMA
+@iranintltv
+</div>
+
+## IranIntlTV — post 344223
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344223_1782344815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابی از تهران: دوستم را کشتند؛ در راه بیمارستان به من گفت: «توروخدا نگذار بمیرم»
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/P-T7viTBEMA
+@iranintltv
+</div>
+
+## IranIntlTV — post 344222
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344222_1782344817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نادرازبوشهر: خیلی‌ها «برنامه» می‌دیدند؛ ساچمه خوردند بینایی‌شان از دست رفت؛ حالا فقط می‌شنوند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/P-T7viTBEMA
+@iranintltv
+</div>
+
+## IranIntlTV — post 344221
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344221_1782344819.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻۳۶ سال پیش، در ساعت ۳۰ دقیقه بامداد روز ۳۱ خرداد ۱۳۶۹، همزمان با بازی برزیل و اسکاتلند در جام جهانی ۱۹۹۰ ایتالیا، زلزله‌ای به قدرت ۷.۴ ریشتر شهرهای منجیل، رودبار، طارم و توابع این شهرها را لرزاند و فاجعه‌ای بزرگ رقم زد؛ مطابق آمار رسمی پژوهشگاه بین‌المللی زلزله‌شناسی و مهندسی زلزله، در این زلزله بیش از ۳۵ هزار نفر کشته شدند.
+
+🔹بازی برزیل - اسکاتلند در جام جهانی ۱۹۹۰، مانند جام جهانی ۲۰۲۶ در دور سوم مرحله گروهی برگزار می‌شد، تلویزیون قرار بود این بازی را با تاخیر پخش کند. همین باعث شد بسیاری از ایرانیان آن شب بیدار بمانند.
+
+🔹زلزله مهیب در مرز استان‌های گیلان و زنجان، در هنگام پخش بازی به وقوع پیوست و بسیاری از اهالی این دو استان که برای تماشای فوتبال بیدار بودند، زنده ماندند،‌ اما این زلزله جان بیش از ۳۵ هزار نفر را گرفت، ۶۰ هزار نفر زخمی شدند و بیش از ۵۰۰ هزار نفر را هم بی‌خانمان کرد.
+
+🔹این زمین لرزه در استان‌های گیلان، قزوین، زنجان، آذربایجان شرقی، تهران، اردبیل، مرکزی، مازندران، سمنان، همدان و کردستان به مدت حدود ۶۰ ثانیه احساس شد.
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344220
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344220_1782344820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل، گفت: «جمهوری اسلامی، چه در جنگ ۱۲ روزه و چه در جنگ ۴۰ روزه، نشان داده بیش از خود اسرائیل از توافق ابراهیم احساس خطر می‌کند.»
+
+او افزود: «به همین دلیل، مجموعه موشک‌ها و حملاتی که به سمت امارات متحده عربی انجام شد، در مواردی حتی بیشتر از حملاتی بود که به سوی اسرائیل صورت گرفت.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 221784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اختلاف بر سر مذاکره، آتش‌بس و بازرسی‌های هسته‌ای به درون ساختار قدرت جمهوری اسلامی کشیده شده است؛ یک عضو مجلس شورای اسلامی، ادعای وجود مصوبه شورای عالی امنیت ملی برای تعطیلی مجلس را «دروغ» خواند و گفت این تعطیلی با هدف جلوگیری از مخالفت اعضای مجلس انجام شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221783
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221783_1782344822.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مسیر صعود تیم ایران؛ همه چیز در یک بازی در گفت‌وگو با کوشا دلشاد مری فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اوکراین می‌گوید به یک تأسیسات بزرگ گاز و دو مرکز ارتباطات ماهواره‌ای در عمق روسیه حمله کرد
+
+◾️نیروهای مسلح اوکراین روز چهارشنبه ۳ تیر اعلام کردند در تازه‌ترین حملات دوربرد خود، یک مجتمع بزرگ فرآوری گاز طبیعی و دو مرکز مهم ارتباطات ماهواره‌ای نظامی روسیه را هدف قرار داده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/ukraine-says-hit-russian-gas-plant-satellite-centers/8164438.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در حالی که موج گرمای گسترده بخش‌های وسیعی از اروپای غربی را فرا گرفته است، فرانسه، بریتانیا و اسپانیا با ثبت دماهای بی‌سابقه و نزدیک به رکوردهای تاریخی روبه‌رو شده‌اند.
+
+مقام‌های هواشناسی هشدار داده‌اند که این موج گرما در برخی مناطق دما را به سطوحی رسانده که می‌تواند سلامت عمومی، زیرساخت‌ها و خدمات اضطراری را تحت فشار قرار دهد.
+
+در فرانسه، هشدار قرمز گرمای شدید برای بخش بزرگی از کشور، از جمله پاریس، صادر شده است. در اسپانیا نیز دما در برخی مناطق از ۴۰ درجه سانتی‌گراد فراتر رفته و در بریتانیا نیز چندین منطقه گرم‌ترین روزهای سال را تجربه کرده‌اند.
+
+کارشناسان می‌گویند این موج گرما بخشی از روند افزایش دما در اروپا است که در سال‌های اخیر با وقوع مکرر پدیده‌های آب‌وهوایی شدید همراه بوده است.
+
+
+📷Getty Images/PA
+@BBCPersian
+</div>
+
+## BBCPersian — post 284950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊راب واتسون, خبرنگار سیاسی، سرویس جهانی بی‌بی‌سی
+
+کی‌یر استارمر ششمین نخست‌وزیر بریتانیاست که در طول ده سال گذشته یا استعفا کرده یا از سوی رای‌دهندگان کنار گذاشته شده است.
+
+اگر تردیدی وجود دارد، باید گفت که این وضعیت در سیاست بریتانیا به هیچ وجه عادی نیست. برای روشن شدن موضوع، این واقعیت را در نظر بگیرید: از زمانی که مقام نخست‌وزیری در قرن هجدهم ایجاد شد، هر نخست‌وزیر به طور میانگین حدود پنج سال در قدرت بوده است.
+
+اما در دهه گذشته این میانگین به زحمت به ۱۸ ماه رسیده است.
+
+پس دلیل این جابه‌جایی‌های غیرعادی چیست؟ از یک نگاه، هر یک از این شش مورد دلایل خاص خود را داشته‌اند.
+
+برای خواندن مطلب کامل به لینک زیر مراجعه کنید.
+
+https://bbc.in/3SipBZ3
+📷GettyImages/ Reuters/ AFP/ In Pictures via Getty/ Bloomberg via Getty
+@BBCPersian
+</div>
+
+## BBCPersian — post 284939
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊فرج بال‌افکن, بی‌بی‌سی
+
+روایت موسیقی ایران هر روز که می‌گذرد، تلخ‌تر و گزنده‌تر می‌شود؛ مانند خبر درگذشت آذر عظیما که یک ماه پس از درگذشتش منتشر شد؛ او خواننده برنامه گلها، از شاگردان ابوالحسن صبا و همسر مرتضی حنانه، روز ۲۰ اردیبهشت در اصفهان چشم از جهان فرو بست و در آرامستان باغ رضوان آن شهر به خاک سپرده شد؛ یکی از صداهای بازمانده از سال‌های آغازین برنامه گلها که بی‌هیاهوی خبری، در روزهای جنگ و خاموشی گسترده اینترنت از میان رفته بود.
+
+پس از رسانه‌ای‌شدن خبر درگذشت آذر عظیما در روز سه‌شنبه دوم تیرماه، شماری از اهالی موسیقی به او ادای احترام کردند. از جمله کوروس سرهنگ‌زاده، خواننده قدیمی ایران و از همکاران آذر عظیما در رادیو، با ابراز «اندوه و تأسف بسیار»، درگذشت او را به خانواده‌اش و جامعه هنری تسلیت گفت و از مرتضی حنانه نیز به‌عنوان دوست قدیمی خود یاد کرد.
+
+ادامه این گفت‌وگو با امیرعلی حنانه فرزند آذر عظیما را در لینک زیر بخوانید:
+
+https://bbc.in/4uXxUqJ
+📷PHOTO COURTESY OF MARYAM RASTGOO
+@BBCPersian
+</div>
+
+## BBCPersian — post 284938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ادامه نارضایتی ترامپ از تصویب طرح کنگره علیه جنگ ایران
+
+بیل کسیدی،‌ سناتور جمهوری‌خواه از مشاجره تند با دونالد ترامپ بر سر جنگ ایران خبر داده است.
+
+آقای کسیدی، سناتور ایالت لوئیزیانا، روز چهارشنبه جزئیاتی از گفت‌وگوی پرتنش خود با دونالد ترامپ، رئیس‌جمهور آمریکا، را برای خبرنگاران شرح داد.
+
+این گفت‌وگو پس از آن رخ داد که آقای ترامپ از سناتورهای جمهوری‌خواه پرسیده بود چرا باید به قطعنامه‌ای رای دهند که اختیارات جنگی او در قبال ایران را محدود می‌کند.
+
+آقای کسیدی به خبرنگاران گفت:
+
+«رئیس‌جمهور پرسید چرا باید بعضی به قانون اختیارات جنگی رای بدهند. من از او پرسیدم آیا این یک سوال کنایه‌آمیز است یا واقعا پاسخ می‌طلبد؟ او گفت: "واقعی است." وقتی شروع به صحبت کردم، رئیس‌جمهور نمی‌خواست سوال من را بشنود و حرفم را قطع کرد.»
+
+این سناتور جمهوری‌خواه افزود: «من علاقه‌ای نداشتم که حرفم قطع شود. احساس می‌کردم در حال تلاش برای گرفتن پاسخ به نمایندگی از مردم آمریکا هستم و قرار نیست وقتی برای مردم آمریکا دنبال پاسخ می‌گردم، مرعوب شوم. از آنجا ماجرا شدت گرفت و در نهایت آرام شد.»
+
+https://bbc.in/43YDpub
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393037
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393037_1782344823.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست 
+☑️ 😍 
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂 A3 ادرس عضویت کانالش
+💖
+💖 https://t.me/+KZZlpcWXPSU5YjA0 https://t.me/+KZZlpcWXPSU5YjA0
+</div>
+
+## Dirty_Kids — post 393036
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393036_1782344823.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست 
+☑️ 😍
+
+
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂
+A3
+ادرس عضویت کانالش
+💖
+💖
+https://t.me/+KZZlpcWXPSU5YjA0
+https://t.me/+KZZlpcWXPSU5YjA0
+</div>
+
+## Dirty_Kids — post 393035
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393035_1782344824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393034
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393034_1782344824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طراح بسته‌بندی این نمک، کدوم روانی حیوان آزاری بوده؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هالند حتی تو انتخاب دوست دختر هم ده از دهه :))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393029
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393029_1782344824.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادی‌ترین هوادار کلمبیا:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393028
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393028_1782344826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خدایاشکرت؛ امروز توی خمینی شهر اصفهان، اجنه لشکرکشی کردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393027
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393027_1782344827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این داداش سگ حشرمون به اسم حسین موقع تجاوز به یه خانوم توی لندن اینقدری شومبولش کوچولو بوده که اصلا عمل دخول رو نتونسته انجام بده و متاسفانه دختره جیغ کشیده و همه ریختن سرش و ابرو برامون نزاشته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393023
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393023_1782344827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 استایل جدید بنی بلانکو، شوهرِ سلنا گومز
+
+این چه گوهیه😐😐🫪
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/04/04 01:53
 ---
 
