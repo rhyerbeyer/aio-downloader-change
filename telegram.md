@@ -7,6 +7,876 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/04 01:53
+---
+
+## VahidOOnLine — post 247213
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247213_1782339835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت دونالد ترامپ، رییس‌جمهوری آمریکا، از کنگره درخواست کرد بیش از ۱۱ میلیارد دلار کمک جدید برای کشاورزانی تصویب کند که پس از جنگ با جمهوری اسلامی با افزایش هزینه سوخت و کود شیمیایی روبه‌رو شده‌اند.
+
+بر اساس درخواست بودجه کاخ سفید، ۱۰ میلیارد دلار از این مبلغ به تولیدکنندگان محصولات زراعی و باغی برای کشت سال ۲۰۲۶ اختصاص می‌یابد و ۱.۱ میلیارد دلار نیز به کشاورزان ایالت فلوریدا که از طوفان‌های زمستانی آسیب دیده‌اند، تعلق خواهد گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247212
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247212_1782339835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، در ایکس خواستار رای‌گیری دوباره سنا درباره قطعنامه محدودسازی اختیارات جنگی ترامپ در ارتباط با جمهوری اسلامی شد. او نگرانی ترامپ را درباره اینکه این طرح در میانه مذاکرات با تهران ممکن است حکومت ایران را جسورتر کند، مبتنی بر عقل سلیم دانست.
+گراهام نوشت: «نکته طعنه‌آمیز این است که رای‌هایی از این دست، ناخواسته به طولانی‌تر شدن درگیری منجر می‌شوند. اگر امکان‌پذیر باشد، باید دوباره رای‌گیری کنیم.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه سوم تیرماه در دفتر بیضی کاخ سفید و در پاسخ به پرسشی درباره گزارش مربوط به حمله به مدرسه میناب، این حادثه را «وحشتناک» توصیف کرد و گفت هنوز نمی‌توان مشخص کرد موشک شلیک‌شده متعلق به کدام طرف بوده است.
+
+ترامپ گفت هنوز گزارش نهایی این حادثه را ندیده و باید منتظر تکمیل تحقیقات ماند. او افزود: «نمی‌دانم اصلاً بتوانند مشخص کنند تقصیر چه کسی بوده، چون در آن زمان موشک‌ها از همه طرف شلیک می‌شدند. عده‌ای گفتند آن موشک متعلق به ما بوده است، اما تاکنون هیچ مدرکی ندیده‌ام که مرا به این نتیجه برساند که موشک آمریکا بوده باشد.»
+
+پیت هگست، وزیر جنگ آمریکا، نیز گفت وزارت دفاع این تحقیق را «بسیار جدی» دنبال می‌کند و نتیجه بررسی‌ها در زمان مناسب اعلام خواهد شد. ترامپ در پایان بار دیگر تاکید کرد که به باور او، نتیجه تحقیقات نشان نخواهد داد آمریکا مسئول این حمله بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247210
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247210_1782339836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال بوسنی و هرزگوین در آخرین دیدار خود در مرحله گروهی جام جهانی ۲۰۲۶، با پیروزی ۳ بر ۱ مقابل قطر، امیدهای خود را برای صعود زنده نگه داشت و به عنوان یکی از بخت‌های اصلی صعود در رتبه سوم گروه B قرار گرفت. در این مسابقه که در سیاتل برگزار شد و با صد‌و‌پنجمین بازی ملی ادین ژکو، کاپیتان نامدار بوسنی همراه بود، برتری بوسنیایی‌ها در دقیقه ۲۹ با حرکت انفرادی تماشایی و شوت مهارنشدنی کریم آلاج‌بگوویچ به گل اول تبدیل شد.
+چند دقیقه بعد، روی پاس گل ژکو، توپ پس از برخورد به مدافع قطر وارد دروازه شد تا گل دوم بوسنی به عنوان گل به خودی ثبت شود. اگرچه قطر پیش از پایان نیمه اول توسط حسن الهیدوس یکی از گل‌ها را جبران کرد، اما ارمن ماهمیچ در دقیقه ۸۰ گل سوم بوسنی را به ثمر رساند تا پیروزی قطعی شود. با این نتیجه، قهرمان آسیا بدون کسب امتیاز از این گروه حذف شد و بوسنی با ایستادن در رده سوم، در آستانه صعود به مرحله یک‌سی‌ودوم نهایی به عنوان یکی از بهترین تیم‌های سوم قرار گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247209
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247209_1782339836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز گزارش داد بحرین، محدودیت‌های تازه‌ای برای برگزاری مراسم عاشورا و فعالیت‌های مذهبی شیعیان اعمال کرده است.
+این کشور مدت برگزاری مراسم عاشورای امسال را از ۱۰ روز به پنج روز کاهش داد و اعلام کرد عزاداری‌ها باید تا نیمه‌شب پایان یابند.
+بحرین همچنین تا اطلاع ثانوی سفر شهروندانش به ایران و عراق را ممنوع کرده است؛ تصمیمی که هزاران بحرینی را که هر سال برای زیارت به کربلا سفر می‌کنند، تحت تاثیر قرار می‌دهد.
+نیویورک تایمز نوشت این اقدامات پس از آن صورت می‌گیرد که بحرین، متحد نزدیک ایالات متحده که میزبان مقر ناوگان پنجم نیروی دریایی آمریکا است، در جریان جنگ اخیر هدف صدها حمله پهپادی و موشکی جمهوری اسلامی قرار گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247208
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247208_1782339837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال سوئیس با پیروزی ۲ بر ۱ مقابل کانادا در آخرین دیدار مرحله گروهی، با هفت امتیاز به عنوان صدرنشین گروه B راهی مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶ شد.
+به گزارش رویترز، روبن وارگاس و یوهان مانزامبی در نیمه دوم برای سوئیس گلزنی کردند. کانادا نیز در دقیقه ۷۶ توسط پرامیس دیوید یکی از گل‌ها را جبران کرد، اما نتوانست از شکست فرار کند.
+سوئیس با این پیروزی در ونکوور ماندگار شد و دیدار مرحله حذفی خود را در همین شهر برگزار خواهد کرد. کانادا نیز با چهار امتیاز و قرار گرفتن در رده دوم گروه، به مرحله بعد صعود کرد و باید در لس‌آنجلس به میدان برود.
+در جریان این مسابقه، هواداران کانادایی با نمایش پیراهن شماره ۸ از اسماعیل کونه، هافبک این تیم که در دیدار برابر قطر دچار شکستگی پا شده بود، حمایت کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247207
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247207_1782339838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه سوم تیرماه گفت اگر توافق نهایی با ایران به تهران اجازه دهد از کشتی‌های عبوری در تنگه هرمز عوارض دریافت کند، چنین توافقی برای او غیرقابل قبول خواهد بود.
+
+ترامپ در پاسخ به پرسشی درباره احتمال گنجاندن چنین بندی در توافق با ایران گفت: «این برای من غیرقابل قبول خواهد بود، زیرا ما اهرم‌های زیادی در اختیار داریم و اگر چنین امتیازی به ایران بدهید، باید آن را به دیگران هم بدهید.» او افزود: «من چنین چیزی را نمی‌پذیرم. این موضوع می‌تواند همه‌چیز را تغییر دهد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247206
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247206_1782339838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در نشست خبری مشترک با مارک روته، دبیرکل ناتو، در کاخ سفید گفت: «رجب طیب اردوغان وارد جنگ ایران نشد. شاید حتی در سمت ایران بود، چون همان‌طور که می‌دانید او طرفدار بزرگ اسرائیل نیست. من از او خواستم کنار بماند و او نیز کنار ماند.»
+
+ترامپ افزود: «شی جین‌پینگ هم می‌توانست وارد شود و از آن منطقه نفت مورد نیاز خود را تامین کند، اما از او خواستم وارد نشود و او نیز این کار را نکرد. ما کار خوبی انجام دادیم و او کنار ماند.»
+
+او همچنین گفت: «اگر دقیق نگاه کنید، ولادیمیر پوتین هم همین‌طور بود. البته می‌توان گفت او مسائل دیگری برای تمرکز داشت. همه آن‌ها کنار ماندند. واقعا شگفت‌انگیز بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏وو باهیانا، پیشگوی برزیلی مدعی شده است که در جریان دیدار برزیل و اسکاتلند در جام جهانی ۲۰۲۶ که بامداد پنجشنبه در فلوریدا برگزار می‌شود، فضایی‌ها به زمین حمله خواهند کرد. او که بیش از ۲۳ میلیون دنبال‌کننده دارد، حتی ویدیویی تولیدشده با هوش مصنوعی از ربوده شدن مردم منتشر کرده است.
+
+‏گفته می‌شود بابا وانگا، پیشگوی مشهور بلغاری هم، وقوع یک تهاجم فضایی در جریان یک رویداد بزرگ ورزشی را پیش‌بینی کرده بود.
+@withyashar
+</div>
+
+## mwarmonitor — post 11470
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11470_1782339839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝نگاه کردن به مسئولینِ صف‌کشیده در تصویر ، چیزی جز حس انزجار، تهوع و خشم عمیق زنده نمی‌کند؛ تصویری که اوج وقاحت، بی‌شرمی و ریاکاری بی حدومرز شما را به رخ می‌کشد. در ملوک‌الطوایفی که ارقام اختلاس‌ها، غارت‌ها و بذل و بخشش‌ها به توله‌های نیابتی و مخارج نجومی آقازاده‌ها در فرنگ با میلیاردها دلار محاسبه می‌شود، شما انگل‌های جامعه بعد از مدتی عذاب دادن به مردم و ادعای جلوگیری از بریز و بپاش، با کت‌وشلوارهای اتوکشیده پشت یک دستگاه ویلچر قراضه ۲۰۰ میلیون ریالی صف بسته‌اید تا عکس یادگاری بگیرید و فتح‌الفتوحتان را تیتر کنید. خاک بر سر شما و آن مدیریت جهادی‌تان که صدقه‌ی ناچیز ریالی را حماسه جلوه می‌دهید؛ تف به سرتاپای وجود سرشار از تزویرتان که تف هم برای پاک کردن لکه ننگ شما زیادی است و حقا که باید زمین دهن باز کند تا شما زالوهای ریاکار یک‌جا بلعیده و نیست و نابود شوید تا جامعه از بوی تعفن این‌همه دنائت نفس بکشد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343370
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343370_1782339840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"We now have people coming to Congress whose goal is to destroy America."
+
+Rep. Randy Fine blasted the direction of the Democratic Party, reacting to yesterday's far-left socialist sweep of multiple New York City congressional districts.
+
+"This is not your father's Democratic Party, where everyone wanted a successful America. We just disagreed on how to get there," the Florida Republican said.
+
+Fine made the remarks while discussing the future of the Democratic Party and rising concerns over antisemitism.
+</div>
+
+## FoxNewsTwitter — post 343369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This is the leader of the free world taking responsibility beyond the shores of the United States for the rest of the world."
+
+NATO Secretary General Mark Rutte praises President Trump's actions against Iran, arguing the country's nuclear capabilities posed a threat far beyond the Middle East.
+
+Moments later, the conversation shifted when Rutte acknowledged Trump's doubts of how helpful Europe has been in support for U.S. operations.
+
+Trump fired back: "They weren't."
+</div>
+
+## pm_afshaa — post 94760
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94760_1782339842.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+جمهوری اسلامی با هر چیزی که من می‌خوام موافقت می‌کنه و چاره‌ای جز این نداره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94759
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94759_1782339842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عالیه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94758
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94758_1782339843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم مطیعی مداح: هر سال که مداحی میخوندم، یه نسخه متنی ازش رو کپی میکردم و میدادم به حضرت آقا. ولی امسال که آقا نیستش این برگه مداحی‌مو به کی بدم؟
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94757
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94757_1782339843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پزشکیان: قطعا راه علی خامنه‌ای رو با قدرت ادامه میدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94756
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94756_1782339844.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارک روته، دبیرکل ناتو:
+جمهوری اسلامی هرج‌ومرج صادر می‌کنه. تروریسم صادر می‌کنه. و بسیار به دستیابی به توانمندی‌های هسته‌ای نزدیک شده بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94755
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94755_1782339844.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر اقتصاد: در جنگ میدان پیروز شدیم اما جنگ اقتصادی تازه شروع شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94754
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94754_1782339845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده شده در الیگودرز :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76659
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76659_1782339845.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست خبری ترامپ و دبیر کل ناتو
+
+در بازه‌های زمانی مختلف از این جلسه ۴۵ دقیقه‌ای، در مجموع حدود ۵ دقیقه درباره مسائل مرتبط با ایران حرف زده شده، به تشخیص ماشین البته:
+
+مارک روته، دبیر کل ناتو:
+اول از همه، درباره ایران. واقعاً می‌خواهم روشن کنم کاری که شما درباره ایران انجام می‌دهید چقدر مهم است.
+
+این، پیش از هر چیز، درباره توان هسته‌ای است؛ توانی که ایران عملاً در آستانه دستیابی به آن بود. و این می‌توانست تهدیدی برای منطقه باشد. می‌توانست تهدیدی برای کل جهان باشد. این کشوری است که هرج‌ومرج صادر می‌کند. تروریسم صادر می‌کند. و آن‌ها خیلی نزدیک بودند به اینکه به توان هسته‌ای دست پیدا کنند.
+
+هفته گذشته در گروه هفت دیدید که همه رهبران گروه هفت از این واقعیت استقبال کردند که این توان هسته‌ای تضعیف شده است. این فوق‌العاده مهم است.
+
+و فقط می‌خواهم این را روشن کنم، چون گاهی می‌پرسند اصلاً همه این ماجرای ایران برای چه بود؟ این درباره امنیت و ایمنی است. این یعنی رهبر جهان آزاد مسئولیتی را فراتر از سواحل ایالات متحده، برای بقیه جهان، بر عهده می‌گیرد. و این همان کاری است که شما انجام دادید.
+
+می‌دانم بحث‌هایی بوده درباره اینکه آیا متحدان اروپایی‌تان به اندازه کافی کنار شما بودند یا نه. فقط می‌خواهم یک چیز بگویم؛ می‌دانم شما چنین فکری دارید، و ناراحتی شما را از این موضوع می‌دانم.
+
+اما وقتی به اعداد نگاه می‌کنید، چهار تا پنج هزار هواپیمای آمریکایی از پایگاه‌های اروپا برخاستند؛ در شش هفته‌ای که این جنگ جریان داشت، تا زمانی که آتش‌بس در میانه آوریل برقرار شد. بخارست، فرودگاه رومانی، مجبور شد به روی پروازهای تجاری بسته شود، چون باید مطمئن می‌شدند که شما بتوانید هواپیماهای سوخت‌رسان را در هوا نگه دارید.
+
+پس این ماجرا بزرگ بود. می‌دانم موارد پراکنده‌ای بوده که واقعاً از آن‌ها ناامید شده‌اید. اما به‌طور کلی، متحدان اروپایی شما در کنار شما بوده‌اند. واقعاً می‌خواهم این نکته را بگویم: چهار تا پنج هزار هواپیمای آمریکایی از پایگاه‌های هوایی اروپا برخاستند.
+
+
+
+خبرنگار:
+پیام شما به دوست بزرگتان، اردوغان، و مردم ترکیه چیست؟
+
+ترامپ:
+من او [اردوغان] را دوست دارم؛ او دوست من است. او وارد جنگ نشد. او یکی از گزینه‌های اصلی برای ورود به جنگ با ایران بود. شاید هم در طرف ایران، چون همان‌طور که می‌دانید طرفدار جدی اسرائیل نیست. و من از او خواستم وارد نشود؛ او هم وارد نشد.
+
+2:11
+خبرنگار:
+می‌توانم یک سؤال دیگر بپرسم؟ آیا گزارش مربوط به حمله به مدرسه میناب را دیده‌اید، آقا؟ می‌توانید به ما بگویید؟
+
+ترامپ:
+نه، آن را ندیده‌ام.
+
+خبرنگار:
+چرا نه؟
+
+ترامپ:
+خب، باید صبر کنم تا کامل شود. نمی‌دانم اصلاً بتوانند آن مسئله را حل کنند. یعنی می‌توانید حرفم را بشنوید، اما نمی‌دانم اصلاً بتوانند— آن‌ها خواهند گفت یکی از موشک‌های ما بوده.
+
+پیت، نمی‌دانم اصلاً بتوانند آن مسئله را حل کنند؛ از نظر اینکه تقصیر چه کسی بود. چون موشک‌ها از همه طرف در هوا بودند. ببینید، شما انتظار نداشتید— و آنچه رخ داد وحشتناک است. اما موشک‌ها از همه طرف در هوا بودند.
+
+و کسی گفته این موشک ما بوده؟ خب، شاید موشک ما نبوده باشد. اما من چیزی ندیده‌ام که مرا به این نتیجه برساند. موشک‌های زیادی هم از سوی طرف‌های دیگر شلیک می‌شد. پیت، نظر تو چیست؟
+
+پیت:
+خب، آقای رئیس‌جمهور، ما این تحقیق را بسیار جدی گرفته‌ایم. و وقتی زمان مناسب برسد، هر نتیجه‌ای که به دست آمده باشد، همان زمان برای اعلامش خواهد بود.
+
+ترامپ:
+منظورم این است، اگر به پاسخ درست برسید، فکر نمی‌کنم کار ما بوده باشد. فکر نمی‌کنم ما بوده باشیم. موشک‌های زیادی به سوی آن‌ها شلیک می‌شد.
+
+
+خبرنگار:
+آیا جلوی توافق نهایی ایران را می‌گیرید، اگر شامل هر نوع هزینه‌ای برای کشتیرانی باشد یا [نامفهوم]؟
+
+ترامپ:
+بله، برای من غیرقابل قبول خواهد بود. چون تنگه‌های متعددی داریم و اگر برای آن‌ها چنین کاری بکنید، باید برای دیگران هم بکنید. تنگه‌های دیگری هم هست؛ آنجا هم اجازه چنین چیزی را نمی‌دهم. بله، این قواعد بازی را عوض می‌کند.
+
+خبرنگار:
+آقای رئیس‌جمهور، فکر می‌کنم رأی کنگره برای پایان دادن به جنگ با ایران، حتی به شکل غیرالزام‌آور، تا حدی بر مذاکرات با ایران اثر می‌گذارد.
+
+ترامپ:
+ما در مذاکراتمان با ایران عالی پیش می‌رویم. درست وسط یکی از مسائل کلیدی، که در هر صورت به آن خواهیم رسید، خبر فوری داریم: سنا رأی داده که دوست دارد ترامپ جنگ را متوقف کند. ایران این را می‌بیند و می‌گوید: «این دیگر چیست؟»
+
+حالا، می‌دانید که این بی‌معنی است، درست است؟ اما تعدادشان برای من کمتر بود. چهار سناتور جمهوری‌خواه داشتیم و همه دموکرات‌ها.
+
+دموکرات‌ها می‌خواهند جنگ را ببازند، چون احمق‌اند. برای همین به آن‌ها «داموکرات» می‌گوییم. آن‌ها کودن‌اند.
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 344219
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344219" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ قالیباف می‌گوید آمریکا را شکست داده است
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344218
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344218_1782339846.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، در دیدار پشت درهای بسته با نمایندگان جمهوری‌خواه در کنگره، گفت جمهوری اسلامی با همه خواسته‌های او موافقت خواهد کرد و «چاره‌ای جز این ندارد.»
+
+او همچنین تاکید کرد جمهوری اسلامی در حال دادن امتیازهای بسیار بزرگی به آمریکا است.
+
+جزییات بیشتر با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 344217
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344217_1782339848.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «سرنگونی جمهوری اسلامی تنها بخشی از یک سونامی سیاسی بزرگ‌تر خواهد بود؛ سونامی‌ای که به رابطه ۵۰۰ ساله روحانیت با حکومت در ایران پایان می‌دهد، زیرا مردم پس از تجربه ۴۸ ساله جمهوری اسلامی دیگر خواهان تکرار آن نیستند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344216
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344216" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: اما‌ن‌نامه آمریکایی برای مجتبی؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344215
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344215_1782339849.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ گفت ایران امتیازهای بزرگی به آمریکا داده و واشینگتن در حال پیروزی است. او همچنین گفته بازرسان آمریکایی در کنار آژانس از تاسیسات هسته‌ای ایران بازدید خواهند کرد. به گفته ترامپ، تهران با این بازرسی‌ها موافقت کرده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344214
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344214_1782339850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت دونالد ترامپ، رییس‌جمهوری آمریکا، از کنگره درخواست کرد بیش از ۱۱ میلیارد دلار کمک جدید برای کشاورزانی تصویب کند که پس از جنگ با جمهوری اسلامی با افزایش هزینه سوخت و کود شیمیایی روبه‌رو شده‌اند.
+
+بر اساس درخواست بودجه کاخ سفید، ۱۰ میلیارد دلار از این مبلغ به تولیدکنندگان محصولات زراعی و باغی برای کشت سال ۲۰۲۶ اختصاص می‌یابد و ۱.۱ میلیارد دلار نیز به کشاورزان ایالت فلوریدا که از طوفان‌های زمستانی آسیب دیده‌اند، تعلق خواهد گرفت.
+https://iranintl.com/202606241682
+</div>
+
+## IranIntlTV — post 344213
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344213_1782339851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، در ایکس خواستار رای‌گیری دوباره سنا درباره قطعنامه محدودسازی اختیارات جنگی ترامپ در ارتباط با جمهوری اسلامی شد. او نگرانی ترامپ را درباره اینکه این طرح در میانه مذاکرات با تهران ممکن است حکومت ایران را جسورتر کند، مبتنی بر عقل سلیم دانست.
+گراهام نوشت: «نکته طعنه‌آمیز این است که رای‌هایی از این دست، ناخواسته به طولانی‌تر شدن درگیری منجر می‌شوند. اگر امکان‌پذیر باشد، باید دوباره رای‌گیری کنیم.»
+
+https://iranintl.com/202606249875
+</div>
+
+## IranIntlTV — post 344212
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344212_1782339852.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «شواهد و قرائن نشان می‌دهد جمهوری اسلامی، به‌رغم پایان جنگ، هنوز احساس ثبات و امنیت نمی‌کند. دفن نشدن پیکر علی خامنه‌ای پس از حدود چهار ماه، مخفی بودن مجتبی، رهبر جدید، و تعطیلی چهارماهه مجلس، از جمله این نشانه‌هاست. سوال اینجاست که آیا مجتبی، که جمهوری اسلامی مدعی است زنده است، در مراسم تشییع پدرش شرکت خواهد کرد؟ آیا نوعی امان‌نامه از سوی آمریکا برای او صادر شده تا فعلا هدف قرار نگیرد؟ بخشی از پاسخ این پرسش را می‌توان ۱۰ روز دیگر، در مراسم دفن علی خامنه‌ای، مشاهده کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344211
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344211_1782339853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش عبور کشتی‌ها از تنگه هرمز، دونالد ترامپ هشدار داد اگر جمهوری اسلامی از کشتی‌های عبوری عوارض دریافت کند، مذاکرات فورا متوقف خواهد شد. همزمان مسقط میزبان مذاکرات امنیت کشتیرانی است و مارکو روبیو هم پس از دیدار با مقام‌های امارات، راهی کویت شد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344210
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344210_1782339854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در دهه اول محرم، کارزار گسترده‌ای در شبکه‌های اجتماعی شکل گرفته که تاکید می‌کند جمهوری اسلامی پس از کشتار گسترده مردم بی‌گناه در خیابان‌ها، حق ندارد از عاشورا و مظلومیت حسین سخن بگوید. خانواده‌های جان‌باختگان نیز با یادآوری رنج و مواجهه با پیکرهای کشته‌شدگان، این سخن را مطرح می‌کنند که عاملان این کشتارها صلاحیت سخن گفتن از مظلومیت را ندارند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344209
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344209_1782339855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال سوییس در سومین دیدار خود در جام جهانی ۲۰۲۶، کانادا، یکی از سه میزبان مسابقات، را با نتیجه ۲ بر یک شکست داد و با هفت امتیاز به‌عنوان صدرنشین گروه B به مرحله حذفی صعود کرد.
+
+🔹کانادا نیز با چهار امتیاز در جایگاه دوم قرار گرفت و راهی مرحله بعد شد.
+
+🔹بوسنی و هرزگوین نیز با نتیجه ۳ بر یک قطر را شکست داد و هم‌امتیاز با کانادا شد، اما در رده سوم گروه قرار گرفت.
+
+🔹قطر هم با یک امتیاز از جام جهانی حذف شد.
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344208
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344208_1782339855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز گزارش داد بحرین، محدودیت‌های تازه‌ای برای برگزاری مراسم عاشورا و فعالیت‌های مذهبی شیعیان اعمال کرده است.
+این کشور مدت برگزاری مراسم عاشورای امسال را از ۱۰ روز به پنج روز کاهش داد و اعلام کرد عزاداری‌ها باید تا نیمه‌شب پایان یابند.
+بحرین همچنین تا اطلاع ثانوی سفر شهروندانش به ایران و عراق را ممنوع کرده است؛ تصمیمی که هزاران بحرینی را که هر سال برای زیارت به کربلا سفر می‌کنند، تحت تاثیر قرار می‌دهد.
+نیویورک تایمز نوشت این اقدامات پس از آن صورت می‌گیرد که بحرین، متحد نزدیک ایالات متحده که میزبان مقر ناوگان پنجم نیروی دریایی آمریکا است، در جریان جنگ اخیر هدف صدها حمله پهپادی و موشکی جمهوری اسلامی قرار گرفت.
+https://iranintl.com/202606248050
+</div>
+
+## IranIntlTV — post 344206
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344206_1782339856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در نشست خبری مشترک با مارک روته، دبیرکل ناتو، در کاخ سفید گفت: «رجب طیب اردوغان وارد جنگ ایران نشد. شاید حتی در سمت ایران بود، چون همان‌طور که می‌دانید او طرفدار بزرگ اسرائیل نیست. من از او خواستم کنار بماند و او نیز کنار ماند.»
+
+ترامپ افزود: «شی جین‌پینگ هم می‌توانست وارد شود و از آن منطقه نفت مورد نیاز خود را تامین کند، اما از او خواستم وارد نشود و او نیز این کار را نکرد. ما کار خوبی انجام دادیم و او کنار ماند.»
+
+او همچنین گفت: «اگر دقیق نگاه کنید، ولادیمیر پوتین هم همین‌طور بود. البته می‌توان گفت او مسائل دیگری برای تمرکز داشت. همه آن‌ها کنار ماندند. واقعا شگفت‌انگیز بود.»
+https://iranintl.com/202606247056
+</div>
+
+## FarsiVOA — post 221781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر امورخارجه آمریکا وارد بحرین شد
+
+◾️مارکو روبیو، وزیر امورخارجه آمریکا عصر چهارشنبه به وقت واشنگتن وارد بحرین شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164448.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221780
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221780_1782339857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فریدون رحمانی در برنامه تفسیر خبر: جمهوری اسلامی توان و انگیزه تغییر را ندارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ درباره درخواست ترکیه برای دریافت جنگنده‌های اف-۳۵ و موتورهای اف-۱۱۰ از آمریکا: احتمالاً کاری می‌کنم که اردوغان بسیار خوشحال شود
+
+◾️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۳ تیر در گفت‌وگو با خبرنگاران در کاخ سفید از روابط خوب خود با رجب طیب اردوغان رئیس‌جمهوری ترکیه، سخن گفت و افزود رئيس‌جمهوری ترکیه، مانند شی‌جین پینگ رئيس جمهوری چین، به درخواست او از مداخله در حملات مشترک آمریکا و اسرائيل به جمهوری اسلامی خودداری کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164445.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17968
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17968_1782339857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+SU-57 Felon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس در مورد جنگنده‌های F-35 ترکیه: پیت و کل تیم در حال حاضر در حال بررسی این موضوع هستند، زیرا موارد خاصی وجود دارد که ما باید تأیید کنیم که اتفاق افتاده‌اند که برای رعایت قوانین آمریکا اتفاق افتاده‌اند.
+
+رئیس جمهور از ما خواسته است که این کار را انجام دهیم. ما در حال بررسی تله‌ها و تأیید این اتفاق هستیم. این واقعاً یک موضوع کنگره است و اطمینان حاصل کردن از اینکه ترکیه از قوانین آمریکا پیروی کرده است تا بتواند F-35 را دریافت کند.
+
+ترامپ: اردوغان کمی جنجالی است، اما من هم همینطور هستم. اما من او را می‌شناسم. فکر می‌کنم او فرد بسیار خوبی است. او به ما کمک زیادی کرده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23248
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23248_1782339859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق فتوای جدید لیزر هم حرام شد !
+
+فقط همسرتون حق داره لیزر کنه براتون و یا اینکه خیلی ضروری و برای درمان باشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23247
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23247_1782339859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مهران رجبی حرومی:
+
+اون موقع که سطل آشغال آتش میزدین و اغتشاش میکردین نگران نظافت شهر نبودین؛ حالا توی محرم نگران شدین؟!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23246
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23246_1782339860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ در مورد حمله به مدرسه میناب:
+
+من فکر نمی‌کنم کار ما بوده، در آن‌موقع موشک‌های زیادی شلیک می‌شدند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23245
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23245_1782339861.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باقر هرچی زور می‌زنه گریه‌اش نمی‌گیره😂
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284937
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284937_1782339862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مسابقات آخر مرحله گروهی از روز چهارشنبه آغاز شده است. آخرین مسابقات تیم‌ها به صورت همزمان برگزار می‌شود.
+
+در نخستین دو مسابقه همزمان کانادا که یکی از سه میزبان جام جهانی است در ونکوور با سوئیس روبرو شد که در نهایت با نتیجه دو بر یک باخت و با چهار امتیاز به رتبه دوم گروه رفت.
+
+دیدار دوم میان قطر و بوسنی هرزگوین با نتیجه سه بر یک به نفع نماینده اروپایی تمام شد تا قطر با دو شکست و یک تساوی با جام وداع کند.
+
+بوسنی با این پیروزی چهار امتیازی شد و تنها به علت تفاضل گل بعد از کانادا در رتبه سوم گروه ب قرار گرفت و حالا باید منتظر باقی نتایج نهایی گروهی باشد تا شاید به عنوان یکی از تیم‌های برتر سوم به دور حذفی راه پیدا کند.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393022
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393022_1782339863.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز هم ماجراهای اسنپ!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393021
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393021_1782339865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متال و هارد راک اسلامی
+هروری میبینمش نمیفهمم چی میخونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393020
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393020_1782339867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این خیلی حق بود😭🤌🏻
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130108
+
+<div align="center">
+  <a href="telegram/content/alonews_130108_1782339867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: قیمت‌های نفت به شدت کاهش یافته‌اند، اما ما در پمپ‌ها چیزی متناسب با آنچه باید باشد، نمی‌بینیم. به نظر من، قیمت باید در حال حاضر ۲.۲۵ دلار در پمپ باشد، اما ما بالاتر از آن هستیم. ما در حال انجام یک تحقیق بزرگ در این مورد هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130107
+
+<div align="center">
+  <a href="telegram/content/alonews_130107_1782339867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:خیلی وقت ها وقتی با اردوغان مشکل دارند می گویند می توانی به من لطف کنی و با او صحبت کنی؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130106
+
+<div align="center">
+  <a href="telegram/content/alonews_130106_1782339867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره زهران ممدانی: ممدانی دو بار اینجا بود. او مرد بسیار خوبی است. او مردی جذاب و خوش‌تیپ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130105
+
+<div align="center">
+  <a href="telegram/content/alonews_130105_1782339868.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کشورهای ناتو خوش‌شانس هستند که روته را دارند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130104
+
+<div align="center">
+  <a href="telegram/content/alonews_130104_1782339868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشگر: آیا می‌خواهید اولین فردی باشید که در لیست نخست‌وزیر جدید بریتانیا برای بازدید قرار می‌گیرد؟
+
+
+🔴 ترامپ: خیر.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130103
+
+<div align="center">
+  <a href="telegram/content/alonews_130103_1782339870.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: درست در میان یکی از موارد کلیدی: «ما اخبار فوری داریم. سنا رای داده که می‌خواهند ترامپ جنگ را متوقف کند.» ایران این را می‌بیند و می‌گوید: «این همه ماجرا چیست؟»
+
+
+🔴من احتمالاً کاری انجام خواهم داد که اردوغان را بسیار خوشحال کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130102
+
+<div align="center">
+  <a href="telegram/content/alonews_130102_1782339870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشگر: آیا اگر یک توافق نهایی با ایران شامل هر نوع هزینه‌ای برای حمل و نقل باشد، آن را می‌پذیرید؟
+
+
+🔴ترامپ: خیر. برای من غیرقابل قبول خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130101
+
+<div align="center">
+  <a href="telegram/content/alonews_130101_1782339872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشگر: آیا فکر می‌کنید زلنسکی در حال حاضر برنده است؟
+
+
+🔴ترامپ: خب، او کارش را نسبتاً خوب انجام می‌دهد. ببینید، هرطور که به آن نگاه کنید، او کارش را نسبتاً خوب انجام می‌دهد.
+
+
+🔴او حداقل از پس کارش برمی‌آید - بسیاری از مردم در هر دو طرف می‌میرند. اما فکر می‌کنم او کارش را نسبتاً خوب انجام می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130100
+
+<div align="center">
+  <a href="telegram/content/alonews_130100_1782339874.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ترکیه: مردم نمی‌دانند که ترکیه از نظر نظامی چقدر بزرگ است
+
+
+🔴ارتش بسیار قدرتمندی دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130099
+
+<div align="center">
+  <a href="telegram/content/alonews_130099_1782339874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پرزیدنت ترامپ: شهردار لندن ناکارآمد است، یک فرد بد و نماینده‌ای فاجعه‌بار برای کشور شما.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130098
+
+<div align="center">
+  <a href="telegram/content/alonews_130098_1782339875.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ترکیه: مردم نمی‌دانند که ترکیه از نظر نظامی چقدر بزرگ است.
+
+
+🔴ارتش بسیار قدرتمندی دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130097
+
+<div align="center">
+  <a href="telegram/content/alonews_130097_1782339875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشگر: ترکیه موتورهای جت F-110 را می‌خواهد و همچنین جنگنده‌های F-35 خود را. آیا با یک کیسه هدیه بزرگ به ترکیه می‌روید؟
+
+
+🔴ترامپ: فکر می‌کنم بله. او عضو ناتو است. برخی افراد او را به عنوان عضو نمی‌دانند، اما واقعاً عضو است. او عضو قدرتمندی در ناتو است. بله، احتمالاً کاری انجام خواهم داد که او را بسیار خوشحال کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130096
+
+<div align="center">
+  <a href="telegram/content/alonews_130096_1782339877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرزیدنت ترامپ: آن‌ها توافق کردند که ۵ درصد هزینه کنند، و آن‌ها آن را پرداخت نمی‌کنند.
+
+
+🔴روته: شما نمی‌توانید آن را در یک سال هزینه کنید.
+
+
+🔴 ترامپ: تو میتونی. تو میتونی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130095
+
+<div align="center">
+  <a href="telegram/content/alonews_130095_1782339879.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: بریتانیا در حال مردن است. باید دریای شمال را باز کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/04 00:22
 ---
 
