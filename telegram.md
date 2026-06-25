@@ -7,6 +7,681 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/05 02:28
+---
+
+## VahidOOnLine — post 247355
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247355_1782428307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز پنجشنبه چهارم تیرماه در سخنرانی خود در کتابخانه ریاست‌جمهوری ریچارد نیکسون، از عملکرد دونالد ترامپ در قبال جمهوری اسلامی دفاع کرد و گفت دولت آمریکا با وجود فشارهای بیرونی، از ماموریت اولیه خود منحرف نشده است.
+
+ونس گفت ترامپ از ابتدا هدف خود را نابودی توانمندی‌های نظامی متعارف حکومت ایران، از بین بردن توانایی جمهوری اسلامی برای اعمال قدرت در منطقه و تضمین این موضوع اعلام کرده بود که ایران «هرگز، تحت هیچ شرایطی، به سلاح هسته‌ای دست پیدا نکند.»
+
+او افزود برخی تلاش می‌کنند هدف دولت ترامپ در قبال ایران را تغییر دهند، اما به گفته او، رئیس‌جمهوری آمریکا با ایجاد اهرم‌های دیپلماتیک، اقتصادی و نظامی، اکنون به دنبال «پیروزی بزرگ‌تری برای مردم آمریکا» است.
+
+ونس در پایان گفت: «هنوز کار تمام نشده، اما تا اینجا همه‌چیز خوب پیش رفته است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247354
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247354_1782428308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال اکوادور با خلق یک شگفتی بزرگ، آلمان مدعی را با نتیجه ۲ بر ۱ شکست داد تا در دیداری دراماتیک، جواز حضور در مرحله یک‌سی‌ودوم نهایی جام جهانی ۲۰۲۶ را کسب کند. این پیروزی در حالی به دست آمد که اکوادور برای زنده نگه داشتن امیدهای خود به یک معجزه نیاز داشت، اما بازی با بدترین سناریوی ممکن برای آن‌ها آغاز شد و لروی سانه در همان دقیقه دوم مسابقه، قفل دروازه نماینده آمریکای جنوبی را باز کرد تا آلمانِ از پیش‌صعودکرده را پیش بیندازد.
+اکوادور که تا پیش از این دیدار در ۳۹ تلاش قبلی خود در این تورنمنت موفق به گلزنی نشده بود، سرانجام در چهلمین شوت خود طلسم‌شکنی کرد؛ نیلسون انگولو با ضربه‌ای تماشایی توپ را به گوشه دروازه مانوئل نویر فرستاد تا موجی از شادی را در میان هواداران زردپوش در استادیوم ایجاد کند. در نهایت، در دقیقه ۷۷ مسابقه، گونزالو پلاتا با به ثمر رساندن گل دوم و پیروزی‌بخش، کامبک رویایی اکوادور را کامل کرد تا این تیم مقتدرانه راهی مرحله حذفی شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247353
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247353_1782428308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️درحالی که جرد کوشنر، داماد بزرگ دونالد ترامپ با مقامات تهران مذاکره می‌کند، مارکو روبیو، وزیرخارجه آمریکا درباره حضور مایکل بولوس، داماد کوچک ترامپ که سمت سیاسی در دولت آمریکا ندارد در مذاکرات رسمی کویت گفت: ««مایکل اینجا بود چون برادرش در کویت زندگی می‌کند. او فقط برای دیدن من و احوالپرسی آمده بود. من دوست خوبی برای مایکل هستم و فرصتی شد که همدیگر را ببینیم.»
+مایکل بولوس، بازرگان و مدیر اجرایی آمریکایی-لبنانی، فرزند مسعد بولوس، بازرگان و دیپلمات آمریکایی لبنانی‌تبار، است. او پس از ازدواج با تیفانی ترامپ، دختر دونالد ترامپ، چهل‌وپنجمین و چهل‌وهفتمین رئیس‌جمهوری ایالات متحده، به داماد او تبدیل شد.
+روبیو در جریان همین سفرهای منطقه‌ای و در نشست خبری خود در بحرین و کویت، بر مسائل کلیدی امنیت خاورمیانه از جمله ضرورت مقابله با فعالیت و تامین مالی گروه‌های نیابتی وابسته به جمهوری اسلامی به عنوان پیش‌شرط دستیابی به صلح و ثبات پایدار تاکید کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247352
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247352_1782428309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، گفت کاهش تحریم‌ها علیه نفت جمهوری اسلامی تنها مزایای اقتصادی محدودی برای تهران خواهد داشت، زیرا ایران با وجود تحریم‌های فعلی نیز روزانه بین ۱.۵ تا دو میلیون بشکه نفت صادر می‌کند.
+
+رایت روز پنجشنبه در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت اجازه دادن به جمهوری اسلامی برای فروش نفت به کشورهایی فراتر از چین و دریافت پول به دلار، امتیاز اقتصادی بزرگی برای تهران نیست.
+
+او گفت: «این امتیاز بزرگی از سوی ایالات متحده نیست» و افزود هدف از این سیاست، باز کردن مسیر گفت‌وگو با جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247351
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247351_1782428310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گیدئون سعار، وزیر خارجه اسرائیل، قصد دارد پیشنهادی را برای به رسمیت شناختن رسمی «نسل‌کشی ارامنه» در سال‌های پایانی امپراتوری عثمانی به نشست آینده کابینه این کشور ارائه کند.
+به گزارش اسرائیل هیوم، در این پیشنهاد آمده است که اسرائیل بر اساس مسئولیت اخلاقی و تاریخی خود،«نسل‌کشی ارامنه» را به رسمیت می‌شناسد و هرگونه تلاش برای انکار، کوچک‌نمایی یا تحریف این رویداد تاریخی را، از جمله آنچه «کارزار سازمان‌یافته دولت ترکیه» توصیف شده، محکوم می‌کند.
+در این گزارش آمده است که این اقدام در شرایطی مطرح می‌شود که روابط اسرائیل و ترکیه با افزایش تنش‌ها و مواضع رجب طیب اردوغان، رئیس‌جمهوری ترکیه، وارد مرحله تازه‌ای شده است. این رسانه همچنین یادآوری کرده است که بنیامین نتانیاهو در سال ۲۰۲۵ برای نخستین بار به‌طور علنی اعلام کرد «نسل‌کشی ارامنه»  را به رسمیت می‌شناسد.
+در جریان وقایع سال ۱۹۱۵ میلادی، صدها هزار تا حدود یک‌ونیم میلیون ارمنی ساکن امپراتوری عثمانی در پی کشتار، تبعید و کوچ اجباری جان خود را از دست دادند. ارمنستان و بیش از ۳۰ کشور جهان این رویداد را «نسل‌کشی ارامنه» می‌دانند،
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343437
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343437_1782428311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Capitol Hill Democrats blasted the Supreme Court and President Trump after a ruling allowing the administration to end Temporary Protected Status for thousands of Haitian and Syrian migrants.
+
+“I think it’s really sad,” Rep. Alexandria Ocasio-Cortez said in response to the decision.
+
+House Democratic Caucus Chair Pete Aguilar and Rep. Shomari Figures also condemned the ruling, warning it leaves vulnerable migrants at risk and urging Congress and the administration to pursue alternative protections.
+</div>
+
+## FoxNewsTwitter — post 343436
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343436_1782428312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Nowhere but here would this be possible.”
+
+Vice President JD Vance reflected on America's 250th anniversary by sharing his own story, saying he "can't help but feel incredible gratitude" for what the country has given him and his family.
+
+Looking back on his life, Vance said becoming vice president, raising a family and expecting a fourth child are reminders of what he believes makes the American dream possible.
+</div>
+
+## FoxNewsTwitter — post 343435
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343435_1782428314.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“It's not over yet, but so far, so good.”
+
+Vice President JD Vance praised President Trump's handling of Iran at the Richard Nixon Presidential Library, arguing the administration has stayed focused on its original mission despite outside pressure.
+
+Vance said Trump's objective has remained unchanged: destroy Iran's conventional military capabilities, eliminate its ability to project power and ensure “they never have a nuclear weapon, ever.”
+</div>
+
+## DEJradio — post 5977
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5977_1782428316.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 تا برلین؛ سقوط دیواری که نماد سرکوب بود
+
+گزارش: ملیکا رضاپور
+
+#دیوار_برلین #سرکوب
+@DEJradio
+</div>
+
+## DEJradio — post 5976
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5976_1782428316.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 مهدی رستم‌پور، خبرنگار ورزشی:
+امیر قلعه‌نویی جادوگر دارد!
+
+رواج خرافات و باور به جادو در فوتبال ایران، به تیم جمهوری اسلامی در جام جهانی نیز سرایت کرده. امیر قلعه‌نویی با این تصور که افرادی مانند مهران فرغانی نیروی ماورایی دارند، از توصیه‌های آنها به عنوان مشاور، استفاده می‌کند.
+
+#دژفوتبالی #جادو #فوتبال #جام_جهانی
+@DEJradio
+</div>
+
+## IranIntlTV — post 344371
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344371_1782428317.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس گفت آمریکا و جمهوری اسلامی در مذاکرات سوئیس برای ایجاد یک کانال ارتباطی مستقیم نظامی به توافق اولیه رسیده‌اند.
+
+به گفته او، تهران پذیرفته یک نماینده از سپاه در دوحه در کنار نماینده‌ای از سنتکام مستقر شود تا از طریق این کانال از تشدید بحران‌ها جلوگیری شود.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 344370
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344370_1782428318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو در جریان سفر به کشورهای حاشیه خلیج فارس تاکید کرد واشینگتن تنگه هرمز را متعلق به هیچ کشور واحدی نمی‌داند و هرگونه حاکمیت انحصاری بر این آبراه حیاتی را رد می‌کند.
+
+او همچنین گفت آمریکا همچنان به مسیر دیپلماسی با جمهوری اسلامی متعهد است، اما تن به هر توافقی نخواهد داد.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 344369
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344369_1782428320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مصلحی، کارشناس بازار نفت، درباره برنامه جمهوری اسلامی برای دریافت هزینه در ازای ارائه خدمات امنیتی و محیط‌زیستی در تنگه هرمز، گفت: «جمهوری اسلامی تلاش می‌کند با عنوان‌هایی مانند "هزینه خدمات امنیتی" یا "خدمات زیست‌محیطی"، عملا نوعی عوارض عبور از کشتی‌ها دریافت کند. اما از دید بازار، شرکت‌های بیمه و شرکت‌های کشتیرانی، تفاوتی میان این دو وجود ندارد.»
+
+او افزود: «اگر این رویه جا بیفتد، می‌تواند به الگویی برای دیگر نقاط جهان تبدیل شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344368
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344368_1782428322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در پایان مسابقات گروه E جام جهانی ۲۰۲۶، آلمان و ساحل عاج هر دو با شش امتیاز، به عنوان تیم‌های اول و دوم به مرحله حذفی صعود کردند.
+
+🔹اکوادور هم با خلق شگفتی و پیروزی دو بر یک بر آلمان، ۴ امتیازی شد و شانس بالایی برای صعود به مرحله خواهد داشت.
+
+🔹اکوادور با بازگشتی تماشایی و پیروزی ۲ بر ۱ مقابل آلمان، عملا صعود خود به مرحله حذفی جام جهانی ۲۰۲۶ را قطعی کرد.
+
+🔹ساحل عاج با پیروزی ۲ بر صفر مقابل کوراسائو، برای نخستین بار به مرحله حذفی جام جهانی راه یافت.
+
+🔹گزارشی از این دو بازی را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344367
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344367_1782428322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، گفت کاهش تحریم‌ها علیه نفت جمهوری اسلامی تنها مزایای اقتصادی محدودی برای تهران خواهد داشت، زیرا ایران با وجود تحریم‌های فعلی نیز روزانه بین ۱.۵ تا دو میلیون بشکه نفت صادر می‌کند.
+
+رایت روز پنجشنبه در گفت‌وگو با شبکه سی‌ان‌بی‌سی گفت اجازه دادن به جمهوری اسلامی برای فروش نفت به کشورهایی فراتر از چین و دریافت پول به دلار، امتیاز اقتصادی بزرگی برای تهران نیست.
+
+او گفت: «این امتیاز بزرگی از سوی ایالات متحده نیست» و افزود هدف از این سیاست، باز کردن مسیر گفت‌وگو با جمهوری اسلامی است.
+https://iranintl.com/202606252640
+</div>
+
+## IranIntlTV — post 344366
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344366_1782428323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌وشش سال پس از زلزله منجیل و رودبار، هم‌زمانی عجیب بازی برزیل و اسکاتلند با زمین‌لرزه‌ای دیگر، این بار در ونزوئلا، خاطره فاجعه‌ای قدیمی را زنده کرد؛
+
+تصادفی آماری یا شوخی تلخ تاریخ؟
+
+آرین ریسباف گزارش می‌دهد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 221893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش: دولت ترامپ کنگره را از قصد خود برای فروش موتورهای جنگنده به ترکیه مطلع کرد
+
+◾️دولت دونالد ترامپ، رئیس‌جمهوری آمریکا، به‌طور رسمی کنگره آمریکا را از قصد خود برای فروش موتورهای جت به ترکیه و به ارزش بیش از ۷۰۰ میلیون دلار، مطلع کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164878.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221892
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221892_1782428325.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دو راهی بزرگ ایران؛ صعود یا خداحافظی؟ در گفت‌وگو با کیومرث صالح نیا مفسر فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221891
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221891_1782428326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سفارت اسرائيل در آمریکا روز پنجشنبه گفت جمهوری اسلامی «لبنان را به خط مقدم جنگ خود با اسرائیل تبدیل کرده» و این کار را «نه برای دفاع از مردم لبنان، بلکه برای پیشبرد اهداف خود» انجام داده است. سفارت اسرائيل گفت: «لبنان شایسته حق حاکمیت، صلح و فرصت شکوفایی است، نه اینکه به اهرم چانه‌زنی [جمهوری اسلامی ]ایران تبدیل شود.» جمهوری اسلامی تلاش کرده‌ است که مذاکرات خود با آمریکا را به اقدامات اسرائيل علیه گروه تروریستی حزب‌الله گره بزند. دولت لبنان بارها از مداخله‌های جمهوری اسلامی در امور این کشور انتقاد کرده و با میانجی‌گری آمریکا وارد گفت‌وگوهای صلح با دولت اسرائيل شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221890
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221890_1782428326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روزنامه وال‌استریت ژورنال عصر پنجشنبه در یک به‌روزرسانی نوشت حمله‌ای که ساعاتی پس از تهدیدهای سپاه علیه کشتی‌های تجاری در دریای عمان انجام شد، با یک پهپاد انتحاری صورت گرفته است.
+وال‌استرت ژورنال به نقل از مقامات گفت پهپاد انتحاری قبل از برخورد به کشتی، به سمت غرب آن مانور داده بود که نشان می‌دهد این حمله عمدی بوده است.
+به گفته عملیات تجارت دریایی بریتانیا، این حمله به کشتی آسیب رساند اما تلفاتی بر جای نگذاشت.
+ساعاتی پیش از این حمله، سپاه به کشتی‌ها هشدار داده بود از مسیرهای دریایی که رژیم آنها را مجاز ندانسته است، استفاده نکنند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر خارجه اسرائيل: قطعنامه به رسمیت شناختن نسل‌کشی ارامنه توسط حکومت عثمانی را در دولت ارائه می‌کنم
+
+◾️وزیر امور خارجه اسرائیل، گیدئون سعار، می‌گوید در جلسه بعدی دولت این کشور، قطعنامه پیشنهادی برای به رسمیت شناختن نسل‌کشی ارامنه توسط حکومت عثمانی را ارائه خواهد داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/gideon-sa-ar-i-will-work-to-have-israel-recognize-the-armenian-genocide-committed-by-the-ottoman-government/8164862.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶جام جهانی ۲۰۲۶؛ آلمان ۲ بر یک از اکوادور شکست خورد
+
+تیم ملی فوتبال آلمان در آخرین دیدار خود در مرحله گروهی با نتیجه ۲ بر یک از اکوادور شکست خورد. ملی‌پوشان آلمان علیرغم این ناکامی به عنوان صدرنشین گروه E به دور یک‌شانزدهم نهایی رسیدند. زردپوش‌های اکوادور به ویژه در نیمه دوم دیدار با آلمان تیم برتر میدان بودند. آلمان در دقیقه دوم توسط لیروی سانه یک بر صفر از حریف جلو افتاد. اکوادور اما چندی بعد پاسخ گل آلمان را داد. در دقیقه ۹ بازی نیلسون آنگولو با شوتی محکم از فاصله ۲۲ متری توپ را به تور دروازه آلمان دوخت و بازی را به تساوی کشاند. گونزالو پلاتا در دقیقه ۷۸ برای بار دوم دورازه آلمان را باز کرد و پیروزی اکوادور را رقم زد.
+
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶پایان نیمه اول / جام جهانی ۲۰۲۶؛
+آلمان یک − اکوادور یک
+
+نیمه نخست دیدار آلمان و اکوادور با تساوی یک بر یک به پایان رسید. آلمان بازی را پرتحرک آغاز کرد و در دقیقه دوم بازی توسط لیروی سانه یک بر صفر از حریف جلو افتاد. اکوادور اما چندی بعد پاسخ گل آلمان را داد. در دقیقه ۹ بازی نیلسون آنگولو با شوتی محکم از فاصله ۲۲ متری توپ را به تور دروازه آلمان دوخت و بازی را به تساوی کشاند.نیمه اول علیرغم تلاش و دوندگی هر دو تیم با تساوی یک بر یک پایان یافت.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 18045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+B-1 Lancer
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18044
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_18044_1782428327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا در حال طراحی موشکی است که قواعد جنگ هوایی را از نو می‌نویسد.
+
+
+نیروی هوایی آمریکا ۲۵ و ۲۶ اوت یک نشست محرمانه با پیمانکاران دفاعی در پایگاه اگلین برگزار می‌کند. دستور کار: موشک هوابه‌هوایی با برد حداقل ۱۰۰۰ مایل دریایی — ده برابر برد AIM-120D AMRAAM، پیشرفته‌ترین موشک هوابه‌هوای عملیاتی فعلی آمریکا.
+
+هدف اصلی این موشک جنگنده‌های دشمن نیست. طراحی شده تا AWACS‌ها، تانکرهای هوایی و بمب‌افکن‌های استراتژیک را از فاصله‌ای بزند که تا امروز کاملاً «منطقه امن» محسوب می‌شد. هواپیماهایی که ستون فقرات فرماندهی و پشتیبانی هر نیروی هوایی مدرن هستند و دهه‌ها بود پشت خط دوستانه بدون هیچ نگرانی پرواز می‌کردند.
+
+با این برد، حتی هواپیماهایی که ۱۵۰۰ کیلومتر از خط درگیری فاصله دارند هم دیگر در امان نیستند.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18043
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18043_1782428327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇦
+⚔️
+🇧🇾 افزایش تنش میان کی‌یف و مینسک بر سر تحرکات مرزی
+
+
+🤡 «ولودیمیر زلنسکی» رئیس‌جمهور اوکراین با ابراز نگرانی از فعالیت‌های عمرانی و نظامی در امتداد مرز بلاروس، مدعی شد تصاویر ماهواره‌ای از ساخت پل‌ها، جاده‌ها، انبارهای مهمات و تأسیسات ذخیره سوخت در چندین منطقه مرزی حکایت دارد.
+
+
+🔹 زلنسکی این زیرساخت‌ها را دارای ماهیت نظامی توصیف کرد و از مینسک خواست توسعه این تأسیسات را متوقف کند. وی همچنین مدعی شد همکاری‌های بلاروس با روسیه می‌تواند به تشدید جنگ منجر شود.
+
+
+🙃 در مقابل، «الکساندر لوکاشنکو» رئیس‌جمهور بلاروس اعلام کرد نمایندگان اوکراین اخیراً برای گفت‌وگو به مینسک سفر کرده‌اند و دو طرف درباره وضعیت امنیتی مرزها رایزنی داشته‌اند.
+
+
+🔹 لوکاشنکو ضمن هشدار نسبت به هرگونه تشدید تنش، تأکید کرد بلاروس قصد ورود به جنگ را ندارد، اما در صورت تهدید امنیت ملی خود، واکنش مناسبی نشان خواهد داد. او همچنین بر ادامه گفت‌وگوهای مستقیم و حل اختلافات از مسیر دیپلماتیک تأکید کرد.
+
+
+🔹 طی ماه‌های اخیر، هر دو طرف اقدام به تقویت مواضع دفاعی، توسعه زیرساخت‌های لجستیکی و افزایش آمادگی نظامی در مناطق مرزی کرده‌اند؛ موضوعی که نگرانی‌ها درباره احتمال افزایش تنش در جبهه شمالی جنگ اوکراین را افزایش داده است.
+
+
+🔹تاکنون هیچ مدرک رسمی مبنی بر آمادگی بلاروس برای ورود مستقیم به جنگ منتشر نشده و مقامات مینسک نیز بارها اعلام کرده‌اند که قصد آغاز درگیری جدیدی را ندارند. با این حال، ادامه استقرار نیروها و توسعه زیرساخت‌های مرزی از سوی هر دو طرف، همچنان با دقت از سوی ناظران نظامی دنبال می‌شود.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇨🇳
+🌏 چین اولین شبکه اینترنت ۱۰ گیگابیتی جهان را راه‌اندازی کرد
+چین اولین شبکه تجاری پهن‌باند ۱۰G جهان را در استان هبی راه‌اندازی کرد .
+
+
+🔹پروژه‌ای مشترک میان هوآوی و چاینا یونیکام با محوریت فناوری ۵۰G PON (شبکه نوری غیرفعال) انجام شده.
+
+
+🔹سرعت دانلود: تا ۹٬۸۳۴ مگابیت بر ثانیه | آپلود: ۱٬۰۰۸ مگابیت بر ثانیه | تأخیر: تنها ۳ میلی‌ثانیه.
+
+
+🔹 در این شبکه، یک فیلم ۴K با حجم ۲۰ گیگابایت در کمتر از ۲۰ ثانیه دانلود می‌شود .
+
+
+🔹 وزارت صنعت و فناوری اطلاعات چین (MIIT) پیش از این ۱۶۸ آزمایش‌گاه ۱۰G در سراسر کشور راه‌اندازی کرده بود؛ جمعیت کاربران اینترنت گیگابیتی چین از ۶.۴ میلیون نفر در ۲۰۲۰ به ۲۳۹ میلیون نفر در اواخر ۲۰۲۵ رسیده است.
+
+
+
+🔹سرعت متوسط اینترنت ثابت در آمریکا و اروپا حدود ۲۸۰ تا ۳۰۰ مگابیت بر ثانیه است . یعنی شبکه جدید چین تقریباً ۳۰ برابر سریع‌تر از آنچه کاربران غربی امروز تجربه می‌کنند عمل می‌کند. این شکاف را نمی‌توان صرفاً با سرمایه‌گذاری کوتاه‌مدت جبران کرد.
+
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23295
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23295_1782428328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سینه زنی رهبر انقلاب قالیباف ( مجتبی خودشه بمولا ) با چادر :
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23294
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23294_1782428329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟
+🥇
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+🍑
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+
+
+🌐ادرس عضویت کانالشون4:
+👇
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+</div>
+
+## IranianMinds — post 23293
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23293_1782428329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود پزشکیان هم یه درخت کاشت در اسلام‌آباد و هر چقدر طرف بهش میگه داداش بسه، مسعود همچنان به بیل زدن ادامه داد. @IranianMinds
+</div>
+
+## IranianMinds — post 23292
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23292_1782428330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیس قالیباف که با چادر رفته هیئت تا تندروها نریزن سرش 😂
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 285050
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285050_1782428331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تیم ملی آلمان در دیداری پرهیجان و در حالی که گل اول مسابقه را در همان دقایق ابتدایی زد با نتیجه دو بر یک مغلوب اکوادور شد.
+
+مسابقات آخر گروه یی روز پنجشنبه به طور همزمان میان آلمان و اکوادور و ساحل عاج و کوراسائو برگزار شد.
+
+در دیگر دیدار این گروه ساحل عاج با دو گل کوراسائو را شکست داد و با ۶ امتیاز بعد از آلمان صعود کرد.
+
+اکوادور با شکست آلمان ۴ امتیازی شد و به عنوان یکی از تیم‌های سوم برتر به مرحله حذفی خواهد رفت.
+
+از نکات جالب توجه دیدار آلمان و اکوادور این بود که تیم داوری متشکل از سه داور زن بود.
+
+همچنین تعداد تماشاگران این مسابقه که در نیوجرسی - کرانه شرقی آمریکا - برگزار شد به بیش از ۸۰ هزار نفر رسید.
+
+مسابقات آخر مرحله گروه د که آمریکا هم در آن حضور دارد، ساعتی دیگر آغاز خواهد شد. با ما بمانید تا نتایج همه مسابقات را برایتان اینجا گزارش کنیم.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 285049
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285049_1782428331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سخنگوی کارگروه جام جهانی در کاخ‌سفید روز پنجشنبه در واکنش به شکایت تیم ملی فوتبال ایران، که مقام‌های آمریکایی را به «آزار و اذیت» متهم کرده بود، گفت تاخیر ایجادشده برای این تیم «کوتاه» بوده است.
+
+او افزود هواپیمای حامل تیم ایران «طبق برنامه یا نزدیک به زمان تعیین‌شده» در شهر سیاتل به زمین نشسته است.
+
+این سخنگو جزئیات بیشتری درباره این موضوع ارائه نکرد و گفت نکته دیگری برای افزودن ندارد.
+
+روز گذشته گزارش شد که در زمان ورود بازیکنان تیم ملی ایران به خاک آمریکا یک بار دیگر در زمان انجام امور مرزبانی مهدی طارمی و سعید الهویی - از دستیاران امیر قلعه‌نویی - با معطلی همراه بوده و کاروان ایران ناچار به توقف شده است.
+
+📷EPA
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ رضا کینگ کونگم اگر میخوای تو بازی های جام جهانی از فرم های من استفاده کنی عضو کانالم شو 
+👇
+👇
+👇 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A4 
+⚡️ رضام ، کینگ کونگش ولی یادت باشه 😅
+</div>
+
+## Dirty_Kids — post 393115
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393115_1782428332.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ رضا کینگ کونگم اگر میخوای تو بازی های جام جهانی از فرم های من استفاده کنی عضو کانالم شو 
+👇
+👇
+👇
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A4
+
+⚡️ رضام ، کینگ کونگش ولی یادت باشه 😅
+</div>
+
+## Dirty_Kids — post 393114
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393114_1782428334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393113
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393113_1782428334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏همدردی بینظیر مردم با شمر در محرم امسال.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393112
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393112_1782428335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لابیای زید من اندازه بال خفاشه هروقت هرجا بخوام برم لابیاهاشو مثل بال خفاش باز میکنه و منو میرسونه دیگه نیازی به اسنپم ندارم. خدایا بابت ذهن کثیفم منو ببخش 🫪🤲
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393111
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393111_1782428336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینها که با اسلحه در روضه حسین ایستاده‌اند، همان قاتلین فرزندان ایران هستند.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393110
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393110_1782428338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفته میشه؛ تو یکی از هیئت‌های مملکت باپخش صدای «مراد ویسی» به این صورت از کشته‌شده‌های دی ماه یادآوری کردن :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393109
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393109_1782428340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بالاخره از سوتینِ بیضه رونمایی شد، به تازگی یه چیزی طراحی کردن برای نگهداری و حفظ آرامشِ تخمای آقایون.
+
+یکی از استفاده هاش، موقع ورزش و دویدنه، باعث میشه که تخماتون هی تکون نخوره و ضربه بهش وارد شه.
+از طرف دیگه بیضه رو همیشه گرم و نرم نگه میداره و باعث بهبود کیفیت اسپرم میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130258
+
+<div align="center">
+  <a href="telegram/content/alonews_130258_1782428341.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس در مورد جمهوری اسلامی ایران:
+
+
+آن‌ها دائماً سعی دارند مأموریتی که دونالد ترامپ برای ما تعیین کرده است را تغییر دهند.
+
+او در ابتدا چه گفت؟ «من می‌خواهم ارتش متعارف آن‌ها را نابود کنم. من می‌خواهم توانایی آن‌ها برای اعمال قدرت را از بین ببرم. و من می‌خواهم تضمین کنم که هرگز سلاح هسته‌ای نداشته باشند.»
+
+آنچه دیده‌ام این است که برخی افراد سعی می‌کنند بگویند: «خب، این عالی است، اما شما باید هدف متفاوتی داشته باشید.»
+
+به نظر من دلیل موفقیت رئیس‌جمهور این است که او از تسلیم شدن در برابر آن تمایل خودداری می‌کند.
+
+او می‌گوید: «ما کاری را که قصد انجامش را داشتیم انجام دادیم. ما اهرم‌های دیپلماتیک، اقتصادی و نظامی باورنکردنی ایجاد کردیم. بیایید از این اهرم‌ها برای کسب پیروزی بزرگ‌تری برای مردم آمریکا استفاده کنیم.»
+
+این همان چیزی است که او از ما خواسته است انجام دهیم. هنوز تمام نشده، اما تا اینجا همه چیز خوب پیش رفته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130255
+
+<div align="center">
+  <a href="telegram/content/alonews_130255_1782428341.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهباز شریف هم نتونست مانع بیل زدن پایان ناپذیر پزشکیان برای کاشتن درخت تو اسلام آباد بشه 
+🔴شهباز هی میگه نمادین هست ولش کن اما مسعود ول نمیکنه 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130254
+
+<div align="center">
+  <a href="telegram/content/alonews_130254_1782428341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله یک مداح دوزاری دیگر به پزشکیان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/05 00:48
 ---
 
