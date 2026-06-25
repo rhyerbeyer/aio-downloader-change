@@ -7,6 +7,948 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/05 00:48
+---
+
+## VahidOOnLine — post 247350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️منصور منصوری، نایب‌رئیس اتحادیه ملی محصولات کشاورزی ایران، در گفتگو با پایگاه تحلیلی‌خبری «نود اقتصادی» گفت ایران از رتبه نخست تولید پسته جهان به جایگاه سوم سقوط کرده است. به گفته او، سالانه حدود ۲۵۰ هزار تن پسته در ایران تولید می‌شود که ۸۰ درصد آن صادر و ۲۰ درصد در بازار داخلی مصرف می‌شود.
+
+منصوری بازارهای اصلی صادرات پسته ایران را چین، کشورهای حاشیه خلیج فارس و روسیه معرفی کرد و گفت حدود ۵ تا ۸ درصد صادرات نیز به اروپا می‌رود. او افزود صادرات پسته به کشورهای غیرهمسایه معمولا از مسیر دبی انجام می‌شود، اما بالا بودن قیمت پسته در بازار داخلی باعث کاهش صادرات شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247349
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247349_1782422289.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال در کارزار کشف حقیقت، درباره خود درمانی معترضان مجروح دی‌ماه از بیم بازداشت در بیمارستان غرضی اصفهان گزارش می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247348
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247348_1782422292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شاپور رحیمی، خواننده، نوازنده برجسته عود و مدیر پیشین مرکز حفظ و اشاعه موسیقی، روز چهارشنبه سوم تیرماه در ۷۹ سالگی و پس از طی یک دوره بیماری دار فانی را وداع گفت.
+
+استاد رحیمی که متولد ۱۳۲۶ در تهران بود، مسیر هنری خود را از دوران کودکی با رادیو ایران آغاز کرد. او با بهره‌گیری از دانش بزرگانی همچون محمود کریمی، ادیب خوانساری، محمدرضا شجریان و نورعلی برومند در آواز، و همچنین آموختن نوازندگی عود نزد اساتیدی نظیر منصور نریمان، به یکی از چهره‌های شاخص موسیقی اصیل ایران تبدیل شد.
+
+وی علاوه بر فعالیت‌های اجرایی، از سال ۱۳۴۹ با تدریس در مراکز معتبری همچون دانشگاه تهران و هنرستان ملی موسیقی، نسلی از هنرمندان موسیقی ایران را تربیت کرد. مدیریت چهارساله مرکز حفظ و اشاعه موسیقی و دریافت گواهینامه درجه یک هنری در سال ۱۳۹۲، از دیگر افتخارات این هنرمند فقید بود. خانه موسیقی ایران با انتشار پیامی، درگذشت این استاد گران‌قدر را به جامعه هنری و خانواده ایشان تسلیت گفت. یاد و نامش در حافظه موسیقی ایرانی جاودان خواهد ماند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247347
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247347_1782422292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارک کارنی، نخست‌وزیر کانادا، از بازگشایی سفارت‌های این کشور در تهران و کاراکاس حمایت کرد و گفت نبود نمایندگی دیپلماتیک در ایران و ونزوئلا، توان اتاوا را برای کمک به شهروندان کانادایی و واکنش سریع به بحران‌های بشردوستانه محدود کرده است.
+
+خبرگزاری آسوشیتدپرس روز پنجشنبه چهارم تیرماه گزارش داد کارنی با تاکید بر اینکه «تعامل به معنای تایید نیست»، گفت داشتن سفارت و ارائه خدمات کنسولی به معنای حمایت از سیاست‌های دولت‌های ایران یا ونزوئلا نیست. او با اشاره به زمین‌لرزه‌های اخیر در ونزوئلا افزود کانادا در صورت داشتن سفارت می‌توانست کمک‌های فوری‌تری ارائه دهد و تاکید کرد هرچند هنوز تصمیم نهایی برای بازگشایی سفارت‌ها گرفته نشده، اما این وضعیت باید تغییر کند.
+
+کانادا در سال ۲۰۱۲ در دولت استیون هارپر سفارت خود در تهران را تعطیل و روابط دیپلماتیک با جمهوری اسلامی را قطع کرد. همچنین در سال ۲۰۱۹ فعالیت سفارت کانادا در ونزوئلا به دلیل خودداری دولت نیکلاس مادورو از تمدید روادید دیپلمات‌های کانادایی متوقف شد.
+
+کارنی همچنین گفت دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه با او درباره نشست آینده ناتو، ایران و تحولات خاورمیانه گفتگو کرده است. به گفته او، پیت هگست، وزیر دفاع آمریکا، و شماری دیگر از مقام‌های آمریکایی نیز در این تماس حضور داشتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247346
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247346_1782422293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد نیروهای این کشور روز پنج‌شنبه دست‌کم شش عضو حزب‌الله را در دو عملیات جداگانه در جنوب لبنان هدف قرار داده و کشته‌اند.
+
+بر اساس بیانیه ارتش، در منطقه زوطر الشرقیه، نیروهای تیپ گولانی پنج عضو حزب‌الله را شناسایی کردند و در منطقه ارتفاعات علی‌الطاهر نیز نیروهای تیپ کماندویی یک فرد مسلح وابسته به حزب‌الله را هدف قرار دادند. ارتش اعلام کرد در هر دو عملیات، نیروی هوایی و نیروهای زمینی به طور هم‌زمان وارد عمل شدند.
+
+ارتش اسرائیل همچنین اعلام کرد عملیات در ارتفاعات علی‌الطاهر ادامه دارد. به گفته این ارتش، یک مجموعه بزرگ زیرزمینی حزب‌الله در این منطقه قرار دارد و حدود ۳۰ عضو این گروه در آن مستقر هستند.
+
+در پایان این بیانیه آمده است که ارتش اسرائیل اجازه نخواهد داد اعضای حزب‌الله از شبکه تونل‌های زیرزمینی خارج شوند یا در منطقه ارتفاعات علی‌الطاهر فعالیت کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15816
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15816_1782422294.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف با روسی 🧕🏻
+@withyashar
+</div>
+
+## WithYashar — post 15815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه المنار : توپخانه ارتش اسرائیل مناطقی بین دو شهرک بیت‌یاحون و برعشیت‌ را مورد حمله قرار داد.
+@withyashar
+</div>
+
+## WithYashar — post 15814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده های اسرائیل بر فراز جنوب لبنان به پرواز درآمدند
+@withyashar
+</div>
+
+## mwarmonitor — post 11516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 خطاب به شما می‌نویسم؛ جماعتی که رسماً تنها گونهٔ جانوری جهان هستید که هیچ دلیلی برای وجودتان تعریف نشده و اصلاً یک شترگاوپلنگِ متوهم واسه خودتان هستید. وقتی به این نوحه‌خوانی و سینه زدن‌های مسخره‌تان نگاه می‌کنم، با آن روسری‌های سبز یک‌دست و کت‌وشلوارهای اتو کشیده که مثل ربات‌های کوکی بالا و پایین می‌پرند، نمی‌دانم بخندم یا حالت تهوع بگیرم. این ملغمهٔ عجیب از مذهب، مارکسیسم، ارتش سرکوبگر و عزاداری، رسماً مستند کمدیِ غارنشینانی است که چهل سال است در کپسول زمانِ حماقت منجمد شده‌اند.
+
+باید مغز شماها را کالبدشکافی کرد و برای تحقیق به دانشگاه‌های معتبر دنیا فرستاد تا علم مشخص کند تو مغز شماها چی می‌گذرد؛ هرچند مطمئنم دانشمندان بعد از شکافتن آن جمجمه‌ها، به جای مغز، چیزی جز پشکل، جزوه‌های کپک‌زده و یک نوار کاستِ قفل‌کرده روی توهمات «برادر مسعود» پیدا نخواهند کرد.
+
+شما از جمهوری اسلامی هم حال‌بهم‌زن‌تر هستید؛ یک کثافتی که اصلاً نگم براتون! تکلیف آن‌ها حداقل روشن است، اما شما با این نمایش‌های مضحک عزاداری و نوحه‌خوانی چه چیزی را می‌خواهید ثابت کنید؟ جماعتی پیرمرد و پیرزن در پادگان‌های آلبانی که در آستانهٔ نود سالگی و با کپسول اکسیژن، هنوز درگیر طلاق‌های اجباری و پرستش عکس یک زن و شوهر مفقودالاثر هستید و برای مظلومیت امامان نوحه می‌خوانید، در حالی که بزرگ‌ترین ظلم را به جوانی و زندگی خودتان و ملت ایران کرده‌اید.
+
+در چرخهٔ طبیعت حتی مگس و پشه هم زباله تجزیه می‌کنند، اما شما تنها موجوداتی هستید که فقط از دلارهای گدایی‌شده از سناتورهای آمریکایی تغذیه می‌کنید تا بعد از هیستریِ دسته‌جمعی و سینه زنی، پشت کامپیوترهای عتیقه‌تان بنشینید و با اکانت‌های فیک بنویسید «درود بر خلق قهرمان». خلقی که چهل سال است دارد به این نوحه‌های دروغین و توهمات شما تف می‌کند. شما مومیایی‌های متحرکی هستید که اگر پایتان به هوای آزاد ایران برسد، در سه ثانیه زیر حجم نفرت مردم پودر می‌شوید.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343434
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343434_1782422296.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Vice President Vance delivers remarks at the Richard Nixon Presidential Library https://twitter.com/i/broadcasts/1qGoNNgEOMEKv
+</div>
+
+## FoxNewsTwitter — post 343433
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343433_1782422296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The U.S. has an opportunity to make history tonight in its final group stage game against Turkey.
+
+The team has never won all three group matches in a World Cup, and having clinched a knockout spot, tonight is about balancing a bid for history with valuable minutes for backups.
+
+Jonathan Hunt previews the high-stakes matchup from Los Angeles stadium.
+</div>
+
+## FoxNewsTwitter — post 343432
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343432_1782422299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A drag queen is taking over one of the Baltimore Orioles' biggest family attractions for Pride Night.
+
+The team announced that "RuPaul's Drag Race" star Heidi N Closet will serve as the "Guest Splasher" in the Bird Bath during the second inning of this Friday's game against the Washington Nationals.
+
+The Bird Bath has become one of its stadium's signature attractions, where fans in the left-field splash zone get soaked with water after Orioles extra-base hits. While it's open to fans of all ages, not just children, it's widely viewed as one of the ballpark's most family-friendly experiences.
+</div>
+
+## FoxNewsTwitter — post 343431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: BREAKING NOW: New details on Iranian drone attack on cargo ship in Strait of Hormuz
+
+@SimonettiLauren reports
+</div>
+
+## FoxNewsTwitter — post 343430
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343430_1782422300.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: NY Gov. Kathy Hochul rallies with immigration advocates and union members after Supreme Court ruling https://twitter.com/i/broadcasts/1mxPaaNrdzXKN
+</div>
+
+## pm_afshaa — post 94801
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات توپ خانه های اسراییل به جنوب لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5975
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5975_1782422300.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی، اپیزود پانزدهم
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## DEJradio — post 5974
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5974_1782422301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 همدان؛ دعوا سر غذای نذری
+
+#نذری #عاشورا
+@DEJradio
+</div>
+
+## DEJradio — post 5973
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5973_1782422303.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 تا برلین؛ سقوط دیواری که نماد سرکوب بود
+
+گزارش: ملیکا رضاپور
+
+#دیوار_برلین #سرکوب
+@DEJradio
+</div>
+
+## IranIntlTV — post 344365
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344365_1782422304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال در کارزار کشف حقیقت، درباره خود درمانی معترضان مجروح دی‌ماه از بیم بازداشت در بیمارستان غرضی اصفهان گزارش می‌دهد.
+</div>
+
+## IranIntlTV — post 344364
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344364_1782422306.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بازیکنان تیم ملی فوتبال هریک با سرگذشتی متفاوت و تجربه شرایط مختلف اکنون در مهم‌ترین مقطع دوران حرفه‌ای خود قرار دارند؛ دورانی که به‌عنوان فقط یک ورزشکار قابل قبول است اما آیا سکوت آنها در برابر جنایات جمهوری اسلامی، قابل چشم‌پوشی است؟
+
+🔹گفت‌وگو با رها شمس، مربی آکادمی یوونتوس
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344363
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344363" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: هشدار سپاه برای عبور کشتی‌ها بدون هماهنگی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344362
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344362_1782422308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سایت اتلتیک به نقل از منابع آگاهی نوشته که در آستانه جام جهانی ۲۰۲۶، دو فدراسیون فوتبال مصر و ایران تلاش‌هایی انجام دادند تا همه نشانه‌ها و تبلیغات مرتبط با پراید، هم در ارتباط با این مسابقه و هم در همه بخش‌های مرتبط با فیفا در سطح شهر، به طور کامل حذف شود.
+
+🔹درخواستی که فیفا با آن موافقت نکرد، زیرا کمیته میزبان و مقام‌های محلی و برگزارکنندگان سیاتل مصمم بودند برنامه‌های خود را ادامه دهند.
+
+🔹به نوشته این رسانه، فدراسیون فوتبال ایران از فیفا خواسته است در دیدار موسوم به «مسابقه پراید» میان مصر و ایران که روز ۶ تیرماه در سیاتل برگزار می‌شود، از برگزاری هرگونه «مراسم یا فعالیت تبلیغاتی» در حمایت از جامعه ال‌جی‌بی‌تی‌کیو+ جلوگیری کند و همچنین نمایش نمادها یا نشانه‌های جنبش پراید را در ورزشگاه محدود سازد.
+
+🔹فدراسیون فوتبال در بیانیه‌ای دراین‌باره از جامعه ال‌جی‌بی‌تی‌کیو+ نام نبرد و تنها از آن با عنوان «این جنبش» یاد کرد: «موضع ما این است که هیچ مراسم یا فعالیت تبلیغاتی مرتبط با این جنبش نباید در داخل ورزشگاه یا به عنوان بخشی از فضای مسابقه برگزار شود.»
+
+🔹جزییات بیشتر را در سایت بخوانید
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344361
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344361_1782422309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد نیروهای این کشور روز پنج‌شنبه دست‌کم شش عضو حزب‌الله را در دو عملیات جداگانه در جنوب لبنان هدف قرار داده و کشته‌اند.
+
+بر اساس بیانیه ارتش، در منطقه زوطر الشرقیه، نیروهای تیپ گولانی پنج عضو حزب‌الله را شناسایی کردند و در منطقه ارتفاعات علی‌الطاهر نیز نیروهای تیپ کماندویی یک فرد مسلح وابسته به حزب‌الله را هدف قرار دادند. ارتش اعلام کرد در هر دو عملیات، نیروی هوایی و نیروهای زمینی به طور هم‌زمان وارد عمل شدند.
+
+ارتش اسرائیل همچنین اعلام کرد عملیات در ارتفاعات علی‌الطاهر ادامه دارد. به گفته این ارتش، یک مجموعه بزرگ زیرزمینی حزب‌الله در این منطقه قرار دارد و حدود ۳۰ عضو این گروه در آن مستقر هستند.
+
+در پایان این بیانیه آمده است که ارتش اسرائیل اجازه نخواهد داد اعضای حزب‌الله از شبکه تونل‌های زیرزمینی خارج شوند یا در منطقه ارتفاعات علی‌الطاهر فعالیت کنند.
+https://iranintl.com/202606252437
+</div>
+
+## IranIntlTV — post 344360
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344360_1782422310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان جهانی مبارزه با شکنجه در گزارش شاخص جهانی شکنجه، ایران را در میان پرخطرترین کشورها از نظر شکنجه، مصونیت از مجازات و خشونت حکومتی قرار داد. در این گزارش نسبت به افزایش خطر شکنجه، بازداشت خودسرانه و نقض‌های جدی حقوق بشر هشدار داده شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344359
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344359_1782422312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با تشدید تنش‌ها در تنگه هرمز، داده‌های «مارین‌ترافیک» از تغییر مسیر چند نفتکش خبر می‌دهد. همزمان وال‌استریت ژورنال گزارش داد نیروی دریایی سپاه یک کشتی باری با پرچم سنگاپور را هدف قرار داده و سازمان دریانوردی سازمان ملل تخلیه کشتی‌ها و دریانوردان را موقتا متوقف کرده است.
+@iranintltv
+</div>
+
+## FarsiVOA — post 221888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پیت هگست در مورد کمک‌رسانی به مناطق زلزله‌زده ونزوئلا: «وقتی جان دوستان ما در خطر است، آمریکا اقدام می‌کند»
+
+◾️پیت هگست وزیر جنگ آمریکا، روز پنجشنبه گفت که ایالات متحده پس از زلزله ویرانگر یک روز قبل، در کنار مردم ونزوئلا ایستاده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164860.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائیل می‌گوید شش عضو حزب‌الله را در جنوب لبنان کشت
+
+◾️ارتش اسرائیل روز پنجشنبه ۴ تیر اعلام کرد نیروهای این کشور شش عضو حزب‌الله را که «تهدیدی برای نیروهای اسرائیلی» در منطقه امنیتی جنوب لبنان بودند، هدف قرار دادند و کشتند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164857.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ضرب‌الاجل ۳۰ سپتامبر؛ نخست‌وزیر عراق می‌گوید پرونده «مقاومت» را می‌بندد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺شمار کشته‌شدگان دو زمین‌لرزه ونزوئلا به ۱۸۸ نفر رسید؛ روبیو از اعزام نیروهای امداد و نجات از آمریکا خبر داد
+
+◾️بر اساس تازه‌ترین آمار اعلام‌شده از زمین‌لرزه ونزوئلا، تا عصر پنجشنبه دست‌کم ۱۸۸ نفر در پی دو زمین‌لرزه شدید در این کشور کشته و ۱۵۲۰ نفر نیز زخمی شده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164854.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221884
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221884_1782422313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جشن شادی هواداران فوتبال در شهر ونکوور
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حمله ناشناس به یک کشتی در دریای عمان؛ آژانس کشتیرانی سازمان ملل طرح تخلیه شناور‌ها از تنگه هرمز را متوقف کرد
+
+◾️خبرگزاری رویترز گزارش داد که آژانس کشتیرانی سازمان ملل متحد از روز پنجشنبه ۴ تیر در پی «حمله ناشناس» به یک کشتی در دریای عمان، طرح تخلیه صدها شناور سرگردان و هزاران دریانورد از تنگه هرمز را متوقف کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/un-says-paused-hormuz-ship-evacuation-after-vessel-attacked/8164845.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دستگاه قضایی عراق استفاده از پهپاد و مالکیت غیرقانونی آن را «اقدام تروریستی» اعلام کرد
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18039
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18039_1782422315.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇹🇷
+🤥ترامپ: اردوغان می‌خواست کنار ایران وارد جنگ شود؛ من جلویش را گرفتم.
+
+
+🦾 ترامپ در دیدار با مارک روته، دبیرکل ناتو، در کاخ سفید (۲۴ ژوئن) در پاسخ به خبرنگار ترکی گفت: «اردوغان یکی از کاندیداهای اصلی برای ورود به جنگ با ایران بود، شاید حتی در کنار ایران، چون طرفدار اسرائیل نیست. از او خواستم کنار بماند و ماند.»
+
+ترامپ اردوغان را «دوست» خود خواند و گفت: «هر چیزی که تا به حال از او خواسته‌ام، انجام داده است.»
+
+🇨🇳 ترامپ در همین نشست شی جین‌پینگ را هم ستود و گفت رهبر چین نیز می‌توانست وارد جنگ شود اما از او خواست که نشود.
+
+
+✈️ ترامپ همچنین اشاره کرد که به زودی در نشست ناتو در آنکارا شرکت خواهد کرد و احتمالاً «کاری خواهد کرد که اردوغان را بسیار خوشحال کند» — اشاره‌ای پوشیده به فروش احتمالی جنگنده‌های اف-۳۵ به ترکیه.
+
+📰
+📰
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی)
+</div>
+
+## Persian_Trend_Official — post 18038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://persiantrend.com/live/
+</div>
+
+## Persian_Trend_Official — post 18037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/G4VqnoGyxXA?feature=share
+</div>
+
+## Persian_Trend_Official — post 18036
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18036_1782422315.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل: امروز شش عضو حزب‌الله در جنوب لبنان کشته شدند.
+
+به گفته ارتش، پنج نفر از آن‌ها در نزدیکی نیروهای تیپ گولانی در منطقه زوطر الشرقیه شناسایی شدند و یک فرد مسلح دیگر نیز توسط نیروهای کماندویی در رشته‌ارتفاعات علی طاهر شناسایی شد.
+
+همچنین ارتش مدعی شد که حدود 30 نیروی حزب‌الله همچنان در یک شبکه بزرگ تونل زیرزمینی در زیر ارتفاعات علی طاهر حضور دارند.
+
+در بیانیه ارتش آمده است: ما اجازه نخواهیم داد عناصر حزب‌الله از شبکه تونل‌های زیرزمینی خارج شوند یا در این منطقه فعالیت کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18035
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18035_1782422316.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حضور ذوالقدر دبیر شورای‌عالی امنیت ملی و سردار قاآنی در مراسم عزاداری امشب در جوار محل کشته شدن آیت الله خامنه ای
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود 20 دقیقه دیکه لایو امشب آغاز میشه
+</div>
+
+## RadioFarda — post 158759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ویدئوهای منتشرشده در شبکه‌های اجتماعی از مراسم محرم، عزادارانی را در شهرهای مختلف ایران نشان می‌دهد که تصنیف «از خون جوانان وطن لاله دمیده» را همخوانی می‌کنند.
+
+🔸برخی کاربران این عزاداری با این تصنیف را با کشته‌شدگان و رویدادهای ۱۸ و ۱۹ دی‌ماه مرتبط دانسته و آن را بازتابی از آن وقایع توصیف کرده‌اند.
+
+🔸اعتراضات سراسری ۱۸ و ۱۹ دی‌ماه ۱۴۰۴ که در پی چند روز ناآرامی در شهرهای مختلف ایران شکل گرفت، با سرکوب گسترده به یکی از خونبارترین اعتراضات ایران تبدیل شد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاشورا در سایه سیاست؛ چرا بحرین محدودیت‌ها را تشدید کرد؟
+
+
+🔸 با فرارسیدن مهمترین روزهای عزاداری مذهبی شیعیان، دولت بحرین محدودیت‌هایی را در این زمینه برای شیعیان این کشور وضع کرده است. بر اساس گزارش‌ها، وضع این محدودیت‌ها از پیامدهای جنگ اخیر ایران است.
+
+
+🔸 دولت بحرین امسال قوانین سخت‌گیرانه‌ای را برای نحوه برگزاری مراسم موسوم به «عاشورا»، عزاداری مهم مذهبی شیعیان، اعمال کرد و این تصمیم بازتاب‌دهندهٔ افزایش تنش‌های فرقه‌ای و مذهبی در پی جنگ آمریکا و اسرائیل علیه ایران ارزیابی شده است.
+
+🔸 بحرین در کنار عراق، دو کشور جهان عرب هستند که اکثریت جمعیت‌شان را شیعیان تشکیل می‌دهند. در بحرین حدود۷۰ درصد جمعیت، شیعه هستند و این کشور از این نظر در شبه‌جزیرهٔ عربستان یک استثنا به شمار می‌رود.
+
+
+🔸 با این حال، بحرین توسط یک پادشاهی سنی‌مذهب اداره می‌شود.
+
+🔸 خاندان آل خلیفه که از قرن هجدهم بر بحرین حکومت می‌کنند، در دیگر موقعیت‌ها نیز کنترل‌هایی را بر جمعیت شیعه اعمال می‌کنند. به عنوان نمونه، شیعیان چندان نمی‌توانند به مشاغل دولتی سطح بالا دست یابند.
+
+گزارش کامل را در وب‌سایت رادیو فردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23291
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23291_1782422316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 23290
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23290_1782422317.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چین رسما اینترنت 10G راه‌اندازی کرد
+
+این فناوری جهشی عظیم در پهنای باند محسوب می‌شود و امکان دانلود یک فیلم کامل را تنها در چند ثانیه فراهم می‌کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23289
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23289_1782422318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک طرفدار حکومت :
+
+میان میگن شما میاید پول مردم رو خرج مراسم های مذهبی میکنید ، خب من میگم دوس داریم میکنیم چه گوهی مثلا میخواید بخورید ؟
+
+تو همین مراسم ۱۰۰ میلیارد فقط خرج کوبیده و غذا کردیم دوس داریم میکنیم اصلا بشه کل حساباتونم خالی میکنیم خرج اباعبدالله میکنیم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 285048
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285048_1782422319.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جی دی ونس، معاون رئیس‌جمهور آمریکا، می‌گوید واشنگتن و تهران توافق کرده‌اند برای کاهش خطر درگیری‌های بیشتر، یک کانال ارتباطی مستقیم با سپاه پاسداران انقلاب اسلامی ایجاد کنند.
+
+آقای ونس در گفت‌وگو با وب‌سایت خبری محافظه‌کار بریتانیایی انهرد - UnHerd - گفت این سازوکار شامل دیدار مقام‌های نظامی ایران و آمریکا در دوحه - قطر - خواهد بود تا اختلافات و تنش‌های احتمالی را مدیریت کنند.
+
+او در توصیف گفت‌وگوهای انجام‌شده با مقام‌های ایرانی گفت: «آنها گفتند: "بسیار خوب، ما فردی از سپاه پاسداران را به دوحه می‌فرستیم تا با فردی از فرماندهی مرکزی آمریکا (سنتکام) در آنجا مستقر شود" و به این ترتیب قرار است بسیاری از این اختلافات را حل‌وفصل کنیم.»
+
+معاون دونالد ترامپ همچنین به انهرد گفت امارات متحده عربی کانال‌های ارتباطی جدیدی با ایران ایجاد کرده که پیش از این وجود نداشت؛ از جمله ارتباطاتی با سپاه پاسداران.
+
+«امارات در حال انجام گفت‌وگوهایی با ایرانی‌هاست که پیش از این هرگز انجام نشده بود؛ از جمله با سپاه پاسداران، درباره انواع مختلفی از مشوق‌های اقتصادی.»
+
+📷Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 285047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دیوان عالی آمریکا به ترامپ اجازه داد تا وضعیت «حمایت موقت» هزاران مهاجر از هائیتی و سوریه را لغو کند
+
+دیوان عالی آمریکا حکم داده است که دولت دونالد ترامپ می‌تواند وضعیت « حمایت موقت» صدها هزار مهاجر اهل هائیتی و سوریه را لغو کند.
+
+این وضعیت به ۳۵۰ هزار نفر مهاجر از هائیتی و ۶۱۰۰ نفر از سوریه اجازه می‌داد که سال‌ها در آمریکا بمانند.
+
+تصمیم روز پنجشنبه دیوان عالی آمریکا احتمالاً پیامدهایی برای دارندگان این وضعیت از کشورهای دیگر هم خواهد داشت.
+
+در حکمی جداگانه، دیوان عالی آمریکا رای داد که مهاجرانی که به مرز آمریکا و مکزیک می‌رسند، تا زمانی که پا به خاک این کشور نگذارند، حق درخواست پناهندگی ندارند و این یک پیروزی دیگر برای دولت دونالد ترامپ محسوب می‌شود.
+
+وضعیت «حمایت موقت» توسط دولت آمریکا به افراد متولد خارج از این کشور اعطا می‌شود که کشورهای مبدا آنها به دلیل جنگ، بلایای طبیعی یا سایر فجایع قادر به پذیرش آنها نیستند. دریافت‌کنندگان این وضعیت می‌توانند به طور قانونی تا ۱۸ ماه در آمریکا زندگی و کار کنند، و امکان تمدید آن هم وجود دارد.
+
+در این مدت، مقامات نمی‌توانند آنها را بر اساس وضعیت مهاجرتی‌شان از کشور خارج یا بازداشت کنند.
+
+آمریکا برای اولین بار پس از زلزله بزرگ سال ۲۰۱۰ به مهاجران هائیتی و پس از جنگ داخلی سوریه در سال ۲۰۱۲، به آنها وضعیت «حمایت موقت»ارائه داد.
+
+https://bbc.in/4vxgceA
+@BBCPersian
+</div>
+
+## BBCPersian — post 285041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های منطقه‌ای و داخلی جهان عرب اظهارات متناقض ایران و آمریکا درباره وضعیت تنگه هرمز را به‌طور گسترده پوشش دادند.
+
+شبکه‌های تلویزیونی مهم پان‌عربی مستقر در کشورهای حوزه خلیج فارس، بولتن‌های خبری خود را با تحولات مربوط به تنگه هرمز آغاز کردند و برخی از آنها به «نبرد بر سر نفوذ» در این گذرگاه راهبردی اشاره کردند.
+برخی دیگر نیز بر اعلام اخیر عمان مبنی بر ایجاد یک کریدور دریایی موقت برای کشتی‌هایی که قصد عبور از تنگه هرمز را دارند، و همچنین ادامه هماهنگی میان عمان و ایران درباره مدیریت این آبراه، تمرکز داشتند.
+
+آلبوم را ورق بزنید و برای خواندن مطلب کامل به لینک زیر مراجعه کنید:
+
+https://bbc.in/4vvdaHI
+📸GettyImages/ Anadolu via Getty Images/ maps4media via Getty Images/ ISNA/WANA/Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 285040
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_285040_1782422319.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️آخرین خبرهای پنج‌شنبه ۴ تیر ۱۴۰۵
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393108
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393108_1782422321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه فردی که در تاریخ ایران مجلس رو تعطیل کردن؛ محمدعلی شاه مجلس رو به توپ بست؛ مصدق مجلس رو منحل کرد و باقر خالیباف کلا درشو گل گرفت و حکومتو بدست گرفت و با قاتل رهخر توافق کرد :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393107
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393107_1782422322.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه حکومتی مادرقحبه:
+
+میان میگن شما میاید پول مردم رو خرج مراسم های مذهبی میکنید ، خب من میگم دوس داریم میکنیم چه گوهی مثلا میخواید بخورید؟
+تو همین مراسم ۱۰۰ میلیارد فقط خرج کوبیده و غذا کردیم دوس داریم میکنیم اصلا بشه کل حساباتونم خالی میکنیم خرج اباعبدالله میکنیم!
+
++ از این موجودات حرومزاده‌تر تو تاریخ وجود نداشته!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393106
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393106_1782422323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی فرانسه یه افغانی حشر به مغزش سرایت کرده بوده و به ۴ تا بز سفید تجاوز کرده😂😂😂😂😂لاشیو حالا انداختن گوشه زندان ۳۰ ماه حبس هم بهش دادن.
+توی اظهاراتش گفته که خانومای لخت زیادی دیده بوده و واسه اینکه به اونا تجاوز نکنه با بز وارد رابطه شده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بگایی جدید توی هیئت کاشان😂
+
+توی هیئت کاشان به خاطر کیفیت داغون نذری تقریبا ۱۰۰ نفر راهی بیمارستان شدن😂😂😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393104
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393104_1782422324.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیا اینجوری زخم خوردن؟ :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393102
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393102_1782422325.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این پسره که تو اینستاگرام میگه ای کُثثثثث و بخاطر دندونش و کسخل بودنش خیلی معروف شده رو که میشناسید؟
+
+ماشینی که سوار میشه رو نگاه کنید تا متوجه بشید کسخل اصلی کیه :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393101
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393101_1782422326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متجاوزه؟کوکائینیه؟خایه ماله؟وسط بازه؟مادربخطاست؟به کسی چه دلش میخواد این ده روز رو امام حسینی باشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393100
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393100_1782422327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امینم❌ سید امین✅
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393099
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه دونه چوب کبریت، می‌تونه هزار درختو بسوزونه، اما یه درخت، می‌تونه هزار تا چوب کبریت بسازه.
+
+چیزی که می‌خوام بگم اینه: میشه بهم نود بدی؟
+
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دعوا امروز همدان سر غذا نذری سر این که چرا به خانوما میدی فقط به ما مردا نمیدی 😂😂😂😂😂 عجب ابرو ریزیه😂😂😂 امام حسین بزنه به کمرتون با این عزاداریتون
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130253
+
+<div align="center">
+  <a href="telegram/content/alonews_130253_1782422327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما برداشته یه آخوند که تنها رزرومه‌اش افتتاح شلتر(خونه صیغه یابی) هست رو هر شب میاره راجع به مذاکرات نظر کارشناسی بده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130252
+
+<div align="center">
+  <a href="telegram/content/alonews_130252_1782422328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلمی از رهگیری موشک‌های بالستیک اسکندر روسی بر فراز کیف توسط موشک‌های پاتریوت در جریان حمله دیروز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130251
+
+<div align="center">
+  <a href="telegram/content/alonews_130251_1782422328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وحید اشتری: واقعیت اینه شکست خوردیم و تسلیم شدیم و توان انتقام نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130249
+
+<div align="center">
+  <a href="telegram/content/alonews_130249_1782422330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محاکمه شیخ "احمد بدرالدین حسون" روحانی و مفتی سوریه در زمان دولت بشار اسد در دمشق شروع شد. او متهم به حمایت و توجیه سرکوب مخالفان بشار اسد است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130248
+
+<div align="center">
+  <a href="telegram/content/alonews_130248_1782422330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 شبکه المنار گزارش داد که توپخانه ارتش اسرائیل مناطقی بین دو شهرک بیت‌یاحون و برعشیت‌ را مورد حمله قرار داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130246
+
+<div align="center">
+  <a href="telegram/content/alonews_130246_1782422331.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️حداد عادل:
+آقای جدید گفت برید مذاکره کنید
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130245
+
+<div align="center">
+  <a href="telegram/content/alonews_130245_1782422331.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل: ۶ عضو حزب‌الله رو در جنوب لبنان ترور کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130244
+
+<div align="center">
+  <a href="telegram/content/alonews_130244_1782422331.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 روته از ناتو: این بهار، با مهندسان جوان و بااستعداد در شرکت ASELSAN، بزرگ‌ترین شرکت الکترونیک دفاعی ترکیه صحبت کردم.
+
+
+🔴آن‌ها انقلاب صنعتی دفاعی ترکیه را هدایت می‌کنند که به نفع هر عضو اتحاد ما خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130243
+
+<div align="center">
+  <a href="telegram/content/alonews_130243_1782422333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هزینه تجربه کردن GTA VI در ایران، در اقتصادی ترین حالت ممکن: پلی استیشن 5 اسلیم 1 ترا - 112.000 میلیون تومان
+
+
+🔴تلویزیون سام 32 اینچ - 26.300 میلیون تومان
+
+
+🔴اکانت آلتیمیت GTAVI ظرفیت سوم - 5.500 میلیون تومان
+
+
+🔴جمعا 143.800 میلیون تومان
+﻿
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130242
+
+<div align="center">
+  <a href="telegram/content/alonews_130242_1782422334.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈افزایش قیمت نفت پس از حمله به یک کشتی در تنگه هرمز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130241
+
+<div align="center">
+  <a href="telegram/content/alonews_130241_1782422334.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دو سالی که برای پزشکیان یک عمر گذشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130240
+
+<div align="center">
+  <a href="telegram/content/alonews_130240_1782422335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف در سفر خارجی با هیئت مذاکره‌کننده بدون نقاب حاضر شد اما شب عاشورا در هیئت «ریحانه نبی» با نقاب حضور یافت.
+
+
+🤔کجا احساس امنیت دارد؟
+
+
+✅@AloNews
+</div>
+
+## alonews — post 130239
+
+<div align="center">
+  <a href="telegram/content/alonews_130239_1782422336.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 چین رسما اینترنت 10G رو راه‌اندازی کرده؛ فناوری جدیدی که سرعت دانلود و آپلود رو چندین برابر می‌کنه و می‌تونه یه فیلم کامل با کیفیت بالا رو تو چند ثانیه دانلود کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130238
+
+<div align="center">
+  <a href="telegram/content/alonews_130238_1782422337.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراق پس از بحران مالی شدید مرتبط با اختلالات صادرات در تنگه هرمز، هشدار داده که اگر گروه صادرکنندگان نفت سهمیه تولید خود را به طور قابل توجهی افزایش ندهند، ممکن است اوپک را ترک کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/04 23:02
 ---
 
