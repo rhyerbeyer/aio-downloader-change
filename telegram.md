@@ -7,6 +7,369 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/05 03:49
+---
+
+## VahidOOnLine — post 247359
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247359_1782433140.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنجشنبه چهارم تیرماه، در جریان ضیافت شام با کشاورزان آمریکایی در باغ رز کاخ سفید در واشنگتن اعلام کرد ایالات متحده به‌زودی با استفاده از دارایی‌های مسدودشده ایران، از کشاورزان آمریکایی گندم، سویا و ذرت خریداری خواهد کرد.
+به گزارش رویترز، ترامپ در ادامه درباره ایران گفت: «ضربه سختی به آن‌ها وارد کردیم و اکنون از موضع قدرت، قدرت محض، مذاکره می‌کنیم. آن‌ها این را می‌دانند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247358
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247358_1782433141.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ همچنین گفت تنگه هرمز باز است و روز گذشته ۱۹ میلیون بشکه نفت از این مسیر خارج شده؛ رقمی که به گفته او «بالاترین میزان در تاریخ» بوده است.
+
+رئیس‌جمهوری آمریکا افزود قیمت نفت «به‌شدت و به‌طور قابل توجهی» کاهش یافته و افت قیمت نفت به کاهش قیمت سایر کالاها نیز منجر خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247357
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247357_1782433142.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی تاکید کرد که ایالات متحده به‌زودی با استفاده از دارایی‌های ایران که تحت تحریم‌های آمریکا مسدود شده‌اند، از کشاورزان آمریکایی گندم، سویا و ذرت خواهد خرید.
+ترامپ در بخش دیگری از سخنانش گزارش‌هایی را که می‌گویند وضعیت جمهوری اسلامی امروز بهتر شده است، «اخباری جعلی» خواند و گفت کسانی که چنین گزارش‌هایی منتشر می‌کنند «دیوانه‌اند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247356
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247356_1782433143.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فیفا اعلام کرد تماشاگران می‌توانند در دیدار تیم‌های ملی ایران و مصر در مرحله گروهی جام جهانی ۲۰۲۶ که روز جمعه پنجم تیرماه در سیاتل برگزار می‌شود، پرچم‌های رنگین‌کمان را به ورزشگاه وارد کنند.
+به گزارش رویترز، این مسابقه هم‌زمان با «هفته افتخار» (Pride Week) برگزار می‌شود و کمیته محلی برگزاری جام جهانی در سیاتل آن را «بازی افتخار» (Pride Match) نام‌گذاری کرده است. ایران و مصر پس از قرعه‌کشی مسابقات با این عنوان مخالفت کرده بودند همجنس‌گرایی در هر دو کشور جرم‌انگاری شده و قوانین کیفری برای آن وجود دارد.
+فیفا در بیانیه‌ای تاکید کرد جام جهانی رویدادی فراگیر است و پرچم‌های رنگین‌کمان و دیگر نمادهای مرتبط با گرایش جنسی و هویت جنسیتی، به‌عنوان نمادهای حقوق بشر، اجازه ورود به ورزشگاه را دارند.
+پیش‌تر، فدراسیون فوتبال ایران از فیفا خواسته بود در دیدار ایران و مصر که از سوی کمیته محلی جام جهانی در سیاتل با عنوان «بازی افتخار» (Pride Match) معرفی شده است، از برگزاری هرگونه مراسم یا فعالیت تبلیغاتی مرتبط با گرایش جنسی و هویت جنسیتی جلوگیری کند
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343440
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343440_1782433144.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Does anybody here not like their children? Please raise your hand.”
+
+President Trump joked with a crowd of farmers while touting the elimination of the federal estate tax on family farms and small businesses under the One Big Beautiful Bill.
+
+Trump said the change will allow farming families to pass their land on to the next generation without facing what he described as the burden of the “death tax.”
+</div>
+
+## FoxNewsTwitter — post 343439
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343439_1782433145.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"They caught them."
+
+President Trump says the vandals accused of damaging the Lincoln Memorial Reflecting Pool have been caught, alleging they used a box cutter or other sharp object to slash the newly restored pool and dumped fertilizer into the water.
+
+Speaking during the White House Rose Garden Club Dinner with American farmers, Trump said the suspects "have some problems ahead of them" and described them as "sick people."
+
+Trump praised crews for quickly restoring the Reflecting Pool, saying it “looks beautiful.”
+</div>
+
+## FoxNewsTwitter — post 343438
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343438_1782433145.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump hosts Rose Garden Club Dinner with American farmers https://twitter.com/i/broadcasts/1nJOLLYWEeExR
+</div>
+
+## IranIntlTV — post 344378
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344378_1782433146.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ همچنین گفت تنگه هرمز باز است و روز گذشته ۱۹ میلیون بشکه نفت از این مسیر خارج شده؛ رقمی که به گفته او «بالاترین میزان در تاریخ» بوده است.
+
+رئیس‌جمهوری آمریکا افزود قیمت نفت «به‌شدت و به‌طور قابل توجهی» کاهش یافته و افت قیمت نفت به کاهش قیمت سایر کالاها نیز منجر خواهد شد.
+https://iranintl.com/202606259339
+</div>
+
+## IranIntlTV — post 344377
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344377_1782433147.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی تاکید کرد که ایالات متحده به‌زودی با استفاده از دارایی‌های ایران که تحت تحریم‌های آمریکا مسدود شده‌اند، از کشاورزان آمریکایی گندم، سویا و ذرت خواهد خرید.
+ترامپ در بخش دیگری از سخنانش گزارش‌هایی را که می‌گویند وضعیت جمهوری اسلامی امروز بهتر شده است، «اخباری جعلی» خواند و گفت کسانی که چنین گزارش‌هایی منتشر می‌کنند «دیوانه‌اند.»
+
+https://iranintl.com/202606255618
+</div>
+
+## IranIntlTV — post 344376
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344376_1782433148.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امیر قلعه‌نویی، سرمربی تیم ملی و علیرضا بیرانوند، دروازه‌بان تیم، پیش از حرکت به سمت محل کنفرانس خبری بازی ایران و مصر در سیاتل، سوال علیرضا مدیری، خبرنگار ایران اینترنشنال درباره قتل‌عام مردم ایران توسط جمهوری اسلامی، را با بی‌تفاوتی بدون پاسخ گذاشتند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344375
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344375" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی | وقتی ایران حقیقت را پاره‌پاره بر خاک دید
+</div>
+
+## IranIntlTV — post 344374
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344374_1782433151.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا محدث در «برنامه»
+گزارش از حال‌وهوای شهر سیاتل پیش از بازی ایران و مصر در جام جهانی
+
+رضا محدث در «برنامه با کامبیز حسینی»، از حال‌وهوای شهر سیاتل پیش از بازی ایران و مصر در جام جهانی گزارش می‌دهد؛ روایتی از فضای شهر، حضور تماشاگران و حاشیه‌های پیش از این دیدار.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/H7Qp9Cy_jHU
+@iranintltv
+</div>
+
+## IranIntlTV — post 344373
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاشورا و تاسوعای ما؛ ۱۸ و ۱۹ دی‌ماه
+
+برای بسیاری از ایرانیان، عاشورا و تاسوعا دیگر فقط یادآور واقعه‌ای تاریخی نیست. امسال، این روزها به هجدهم و نوزدهم دی‌ماه گره خورد؛ روزهایی که مردم ایران داغ، فقدان و سوگ عزیزانشان را با تمام وجود زندگی کردند.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/H7Qp9Cy_jHU
+@iranintltv
+</div>
+
+## IranIntlTV — post 344372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی ایران حقیقت را پاره‌پاره بر خاک دید
+
+روایت سوگ، خون، حقیقت و حافظهٔ جمعی مردمی که عاشورا را نه فقط در تاریخ، که در تجربهٔ زیستهٔ امروز خود دیده‌اند؛ از داغ فرزندان ایران تا زخمی که هنوز بر جان این سرزمین مانده است.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/H7Qp9Cy_jHU
+@iranintltv
+</div>
+
+## FarsiVOA — post 221899
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221899_1782433154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس جمهوری آمریکا، پنجشنبه عصر به کشاورزان آمریکایی گفت که «ما یک بازار جدید در راه داریم که اسمش «کشور دوست‌داشتنی ایران» است. جای خیلی قشنگی است. کسی دوست دارد به آنجا برود؟»
+آقای ترامپ به کشاورزان آمریکایی گفت: «جمهوری اسلامی ایران، آنها برای [تامین] غذا مشکل زیادی دارند و ما قرار است مقداری از پولشان را بگیریم و هزینه کنیم و گندم، سویا و ذرت، مقدار زیادی از آن را بخریم [و تحویل آنها بدهیم] و این روند به زودی شروع می‌شود. قرار است بزرگ باشد.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221898
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221898_1782433155.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هواداران برزیل امیدوار شدند؛ گفت‌وگو با کوشا دلشاد مری فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از دی ماه خونین تا محرم دادخواهی؛ مظلومانی که نامشان «حسین» و «عباس» بود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221896
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221896_1782433156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آخرین حال‌وهوای سیاتل پیش از نبرد ایران و مصر در گزارش صدف حبیب‌پناه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افغانستان؛ «بدترین» کشور جهان برای حقوق کودکان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221894
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221894_1782433158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ادعای تاج در رابطه با اجرایی کردن شریعت اسلامی در سیاتل
+
+@FarsiVOA
+</div>
+
+## BBCPersian — post 285051
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285051_1782433159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مقام‌های آمریکایی که نام آنها منتشر نشده به رسانه‌های آمریکایی گفته‌اند حمله روز پنجشنبه به یک نفتکش در حوالی تنگه هرمز، از سوی نیروی دریایی سپاه پاسداران بوده است.
+
+ایران واکنشی به این ادعا نشان نداده است اما نیروی دریایی سپاه چهارشنبه شب هشدار داده بود که هرگونه ترددی از تنگه هرمز تنها از طریق مسیرهای اعلام شده صورت پذیر است و کشتی‌ها باید با هماهنگی نیروهای ایران از این تنگه عبور کنند.
+
+امروز - پنجشنبه ۴ تیر - هم نهاد تازه تاسیس مدیریت تنگه هرمز هشدار داده است که: «تبعات عبور از مسیرهای غیرمجاز» بر عهده کشتی‌ها است.
+
+خبرگزاری‌های داخل ایران پنجشنبه شب نوشتند: «نهاد مدیریت آب‌راه خلیج فارس در پاسخ به استعلام‌های مکرر اعلام کرده است که هرگونه تردد از مسیرهای خارج از چارچوب تعیین‌شده این نهاد، مشمول تضمین عبور ایمن نبوده و از پوشش بیمه و مسئولیت‌های مرتبط برخوردار نخواهد بود.»
+
+در اطلاعیه این نهاد همچنین تاکید شده است که: «تبعات ناشی از تردد از مسیرهای غیرمجاز، برعهده مالک، بهره‌بردار و فرمانده شناور خواهد بود.»
+
+
+📷Reuters
+https://bbc.in/4alzQBS
+@BBCPersian
+</div>
+
+## alonews — post 130263
+
+<div align="center">
+  <a href="telegram/content/alonews_130263_1782433160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: باید علیه ایران اقدام میکردیم چون داشتن سلاح هستهای به معنای نابودی اسرائیل و خاورمیانه و به خطر انداختن جهان است‌‌
+
+
+🔴اگر ایران سلاح هستهای داشت ، ظرف یک ساعت اول از آن استفاده میکرد و ما هرگز اجازه نخواهیم داد که این اتفاق بیفتد‌‌
+
+
+🔴ایران سلاح هسته ای نخواهد داشت و به آن موافقت کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130262
+
+<div align="center">
+  <a href="telegram/content/alonews_130262_1782433160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران خیلی می خواهد با ما توافق کند و فکر می کنم احتمالا با آنها توافق خواهیم کرد‌‌
+
+
+🔴ضربه بسیار سنگینی به ایران زدیم و اکنون از موضع قدرت مطلق با آنها مذاکره میکنیم‌‌
+
+
+🔴قیمت نفت به شدت و به طور قابل توجهی در حال کاهش است و کاهش قیمت نفت با کاهش قیمت تمام محصولات دیگر همراه است‌‌
+
+
+🔴تنگه هرمز باز است و دیروز شاهد خروج 19 میلیون بشکه نفت بود که بالاترین رقم در تاریخ آن است‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130261
+
+<div align="center">
+  <a href="telegram/content/alonews_130261_1782433161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: 159 کشتی ایرانی را کاملا غرق کردیم و همه در قعر دریا هستند‌‌
+
+
+🔴تنها در یک هفته و نیم ارتش ، فرماندهی ، هواپیما و نیروی دریایی ایران را 100 درصد نابود کردیم‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130260
+
+<div align="center">
+  <a href="telegram/content/alonews_130260_1782433161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: روند خرید محصولات کشاورزی برای ایران خیلی زود آغاز خواهد شد و من انتظار دارم که حجم آن بسیار زیاد باشد.
+
+
+🔴ما پول ایران رو گرفتیم و بجاش ذرت و سویا خودمان را دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130259
+
+<div align="center">
+  <a href="telegram/content/alonews_130259_1782433161.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف امشب با روسری در هیئت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/05 02:28
 ---
 
