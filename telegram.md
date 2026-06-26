@@ -7,6 +7,2059 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/06 01:14
+---
+
+## VahidOOnLine — post 247500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار خبرگزاری صداوسیما در هرمزگان، بامداد شنبه، ششم تیرماه، با تایید جزئیات انفجارهای جمعه‌شب در سواحل جنوبی ایران اعلام کرد: «یک منبع آگاه نظامی اصابت دو پرتابه به دکل مخابراتی در محدوده شهرستان سیریک را تایید کرده است.» او با اشاره به تحرکات قبلی در منطقه افزود که نیروهای دریایی سپاه پیش از این به کشتی‌های متخلف «شلیک اخطار» داشته‌اند. او در پایان گفت در حال حاضر آرامش به منطقه بازگشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247499
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247499_1782510251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سپاه پاسداران، بامداد شنبه، ششم تیرماه، با انتشار بیانیه‌ای از رویارویی نظامی با نیروهای ایالات متحده در سواحل جنوبی خبر داد و اعلام کرد: «ما مقابله با حمله‌ای که توسط نیروهای آمریکایی به جزیره سیریک انجام شد را اعلام می‌کنیم.» در این بیانیه آمده است: «نیروهای دریایی و هوایی ما موفق شدند این حمله را خنثی کرده و نیروهای مهاجم را وادار به عقب‌نشینی کنند. این تهاجم بدون پاسخ نخواهد ماند و پاسخ ما در زمان و مکانی که انتخاب می‌کنیم، سریع و قاطع خواهد بود. هرگونه حماقت جدید با پاسخی سخت مواجه خواهد شد که توهمات مهاجمان در منطقه را در هم خواهد شکست.»
+پیش از این، ستاد فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار بیانیه‌ای رسمی در اکس، اعلام کرد که جنگنده‌های آمریکایی، جمعه‌شب، در «پاسخی قاطع» به حمله روز گذشته ایران به یک کشتی تجاری در تنگه هرمز، انبارها و محوطه‌های نگهداری موشک و پهپاد و همچنین سایت‌های راداری ساحلی ایران را بمباران کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247498
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247498_1782510252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رسانه‌های ایران، سپاه پاسداران در بیانیه‌ای درباره حمله آمریکا به اهدافی در منطقه تنگه هرمز نوشت: «نیروهای دریایی و هوایی ما موفق شدند این حمله را خنثی کرده و نیروهای مهاجم را وادار به عقب‌نشینی کنند تا از حاکمیت ایران بر خاک و آب‌های خود محافظت کنند.»
+
+سپاه پاسداران افزود: «ما تاکید می‌کنیم که این تهاجم بدون پاسخ نخواهد ماند و پاسخ ما در زمان و مکانی که انتخاب می‌کنیم، سریع و قاطع خواهد بود.»
+
+در بیانیه سپاه آمده است: «هشدار می‌دهیم که هرگونه حماقت جدید با پاسخی سخت مواجه خواهد شد که توهمات مهاجمان در منطقه را در هم خواهد شکست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247497
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247497_1782510253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران گزارش داد در حمله افراد مسلح به ایست بازرسی در شهرستان بانه در شامگاه جمعه، دو نفر از نیروهای انتظامی کشته و پنج نفر دیگر مجروح شدند.
+
+خبرگزاری تسنیم گزارش داد که در جریان این حمله، یک نفر از نیروهای سپاه پاسداران نیز مجروح شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247496
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247496_1782510253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال فرانسه روز جمعه با درخشش و هت‌تریک عثمان دمبله در نیمه اول، تیم دوم نروژ را با نتیجه ۴ بر ۱ شکست داد تا به عنوان صدرنشین گروه ۹ (I) راهی مرحله حذفی جام جهانی ۲۰۲۶ شود. قهرمان جام جهانی ۲۰۱۸ مسابقه را طوفانی آغاز کرد و شوت سهمگین کیلیان امباپه در ثانیه ۲۵ به تیرک دروازه برخورد کرد؛ اما تنها چند دقیقه بعد، روی پاس تماشایی امباپه، عثمان دمبله گل اول بازی را در دقیقه هفتم به ثمر رساند. دمبله ۲۹ ساله کمی بعد با یک شوت زاویه‌دار عالی گل دوم خود و فرانسه را وارد دروازه کرد. نروژ که پیش از این صعودش به عنوان تیم دوم قطعی شده بود و در این دیدار به ۱۰ بازیکن اصلی خود از جمله ارلینگ هالند استراحت داده بود، بلافاصله توسط تلو آسگاردِ بدون محافظ یکی از گل‌ها را جبران کرد.
+با این حال، دمبله در دقیقه ۳۲ با یک ضربه دقیق، اولین هت‌تریک خود در تاریخ جام جهانی را کامل کرد. در نیمه دوم نیز یورگن استراند لارسن، مهاجم نروژ، یک ضربه پنالتی را از دست داد و در نهایت دزیره دوئه در وقت‌های تلف‌شده گل چهارم فرانسوی‌ها را به ثمر رساند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247495
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247495_1782510255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن رضایی، عضو مجمع تشخیص مصلحت نظام و مشاور نظامی مجتبی خامنه‌ای، روز جمعه گفت: «ایران صاحب تنگه هرمز است و اجازه دخالت آمریکا را نمی‌دهد. ما به اصرار آمریکا و عبور و مرورشان در تنگه هرمز مشکوک هستیم.» او گفت: «مسائل زیست محیطی، امنیت تنگه و بیمه‌ها هزینه‌هایی برای ایران دارد و کسانی که از این تنگه منتفع هستند باید آن را بپردازند.» رضایی در ادامه گفت: «هر تهدیدی علیه ایران پاسخ می‌گیرد. اگر کوچکترین تهدیدی علیه ایران از سوی آمریکا یا اسرائیل صورت بگیرد، همانطور که در جنگ رمضان توانایی‌های جدیدی رونمایی و جنگنده‌ها و پهپادهای دشمن را سرنگون کردیم، با تمام توان آمادگی ادامه نبرد داریم.» او همچنین در پاسخ به شایعات اخیر درباره وضعیت مجتبی خامنه‌ای گفت: «رهبر انقلاب در سلامت کامل هستند. سازمان‌های حفاظتی و امنیتی، در پی کشته‌شدن علی خامنه‌ای، محدودیت‌هایی اعمال کرده‌اند. مجتبی خامنه‌ای مسائل راهبردی و منافع ملی کشور را حتما نظارت می‌کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247494
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247494_1782510255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صداوسیما پس از اعلام خبر شنیده شدن صدای انفجار در اسکله طاهرویی سیریک در ساعت ۲۳:۱۵ جمعه‌، به نقل از «یک منبع آگاه نظامی» علت این حادثه را «اصابت پرتابه به محدوده اسکله طاهرویی سیریک» بیان کرد. این منبع نظامی همچنین با اشاره به تحرکات چند ساعت قبل از حادثه گفت: «حدود ۵ ساعت پیش چند شلیک اخطار از شهرستان سیریک به شناورهای متخلف‌ در تنگه هرمز پرتاب شد». همزمان گزارش‌های محلی و شنیده‌ها نیز از «شلیک دو موشک اخطار ساعاتی پیش از حوالی کرپان به سمت تنگه هرمز» حکایت دارند که نشان‌دهنده وضعیت ملتهب در تنگه هرمز است.
+پیش از این، ستاد فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار بیانیه‌ای رسمی در اکس، اعلام کرد که  جنگنده‌های آمریکایی، جمعه‌شب، در «پاسخی قاطع» به حمله روز گذشته ایران به یک کشتی تجاری در تنگه هرمز، انبارها و محوطه‌های نگهداری موشک و پهپاد و همچنین سایت‌های راداری ساحلی ایران را بمباران کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247493
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247493_1782510257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صدا و سیمای جمهوری اسلامی، به نقل از یک منبع آگاه نظامی اعلام کرد که دلیل انفجارها در محدوده شهرستان سیریک، اصابت پرتابه به محدوده اسکله طاهرویی بوده است.
+
+این منبع آگاه نظامی افزود: «حدود پنج ساعت پیش چند شلیک اخطار از شهرستان سیریک به شناورهای متخلف در تنگه هرمز پرتاب شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247492
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247492_1782510257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد که در تاریخ ۲۶ ژوئن، ششم تیر، نیروهای این فرماندهی «در واکنشی قدرتمند به حمله روز گذشته به یک کشتی تجاری که در حال عبور از تنگه هرمز بود، علیه ایران حملاتی انجام دادند.»
+
+در بیانیه سنتکام آمده است: «پس از آنکه ایران در ۲۵ ژوئن (پنجم تیر) کشتی اِم/وی اور لاولی را با یک پهپاد انتحاری هدف قرار داد، هواپیماهای آمریکایی محل‌های ذخیره موشک‌ها و پهپادهای ایران و همچنین سایت‌های راداری ساحلی را هدف قرار دادند. این کشتی باری با پرچم سنگاپور در زمان حمله ایران در حال خروج از تنگه هرمز و حرکت در امتداد سواحل عمان بود.»
+
+سنتکام افزود: «این اقدام تجاوزکارانه غیرموجه علیه کشتیرانی تجاری توسط نیروهای ایرانی به‌طور آشکار آتش‌بس را نقض کرد. علاوه بر این، رفتار خطرناک ایران آزادی ناوبری را تضعیف می‌کند. این در حالی است که جریان تجارت به‌طور فزاینده‌ از این گذرگاه حیاتی بین‌المللی عبور می‌کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247491
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247491_1782510258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار بیانیه‌ای رسمی در اکس، اعلام کرد که نیروهای آمریکایی، جمعه‌شب، در «پاسخی قاطع» به حمله روز گذشته ایران به یک کشتی تجاری در تنگه هرمز، حملاتی را علیه مواضعی در ایران انجام داده‌اند.
+بر اساس این بیانیه، پس از آنکه ایران روز شنبه کشتی باری «ام‌وی اور لاولی» (M/V Ever Lovely) را با یک پهپاد انتحاری هدف قرار داد، جنگنده‌های آمریکایی انبارها و محوطه‌های نگهداری موشک و پهپاد و همچنین سایت‌های راداری ساحلی ایران را بمباران کردند. این کشتی باربری که با پرچم سنگاپور فعالیت می‌کند، در زمان حمله ایران در حال خروج از تنگه هرمز در امتداد سواحل عمان بود.
+سنتکام این اقدام نیروهای ایرانی را «تجاوز بی‌دلیل» به کشتیرانی تجاری و نقض آشکار آتش‌بس توصیف کرده و افزوده است که این رفتار خطرناک، آزادی کشتیرانی را به خطر می‌اندازد. در پایان بیانیه تأکید شده است که نیروهای سنتکام به هماهنگی و پشتیبانی از عبور امن کشتی‌های تجاری ادامه می‌دهند و ارتش آمریکا برای تضمین پایبندی به تمامی بندهای توافق با ایران، در منطقه حاضر و هوشیار خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247490
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247490_1782510259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش آکسیوس، ارتش ایالات متحده در منطقه تنگه هرمز حملاتی انجام داده است.
+بر اساس این گزارش، یک مقام آمریکایی اعلام کرد ارتش ایالات متحده اهدافی در ایران را در منطقه تنگه هرمز هدف قرار داده است.
+پیش‌تر رسانه‌های ایران از شنیده شدن صدای چند انفجار در سیریک خبر داده بودند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247489
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247489_1782510260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار آکسیوس به نقل از یک مقام آمریکایی، جمعه‌شب، پنجم تیرماه، گزارش داد: «ارتش ایالات متحده حملاتی را در منطقه تنگه هرمز انجام داده است». پیش از این، صداوسیما از شنیده‌شدن سه انفجار در طاهرویه سیریک خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247488
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247488_1782510261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه با انتقاد شدید از اقدام اخیر تهران در هدف قرار دادن یک کشتی تجاری، نسبت به پیامدهای این رفتار هشدار داد و گفت: «من اصلا از این واقعیت که آنها دیروز به یک کشتی شلیک کردند خوشم نمی‌آید. آنها نباید چنین کارهایی انجام دهند.» ترامپ با اشاره به اینکه چهار پهپاد شلیک شده و نیروهای آمریکایی موفق به سرنگونی سه مورد از آن‌ها شده‌اند، تأکید کرد که این کشتی بسیار گران‌قیمت آسیب چندانی ندیده است. او در پاسخ به پرسش‌های مکرر خبرنگاران درباره نوع واکنش واشنگتن و پیامدهای احتمالی برای ایران، با لحنی قاطع اظهار داشت: «به‌زودی متوجه خواهید شد. اگر پاسخ بدهیم، خودتان خواهید دید.»
+پیش از این، ترامپ با انتشار پیامی در اکس به حادثه روز گذشته در تنگه هرمز اشاره کرد و آن را «نقض احمقانه» تفاهم‌نامه ایران و آمریکا دانست. ترامپ نوشت: «جمهوری اسلامی ایران دست‌کم چهار پهپاد انتحاری به سمت کشتی‌هایی که از تنگه هرمز عبور می‌کردند، شلیک کرد. یکی از پهپادها به عرشه بالایی یک کشتی باری بزرگ و بسیار گران‌قیمت برخورد کرد. خسارت وارد شد اما کشتی توانست به مسیر خود ادامه دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247487
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247487_1782510262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان جمعه پنجم تیرماه مقابل محل اقامت اعضای تیم فوتبال ایران در سیاتل آمریکا تجمع کرده و علیه جمهوری اسلامی شعار می‌دهند.
+بازی فوتبال میان ایران و مصر بامداد شنبه ساعت ۶:۳۰ به وقت تهران در جام‌جهانی انجام خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247486
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247486_1782510265.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صداوسیمای جمهوری اسلامی از «شنیده شدن صدای انفجار در سیریک» خبر داد.
+
+بر اساس این گزارش، منشا صدا هنوز مشخص نیست.
+
+پیش‌تر دونالد ترامپ اعلام کرده بود جمهوری اسلامی با شلیک پهپاد به یک کشتی باری، آتش‌بس را نقض کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247485
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247485_1782510265.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صداوسیما جمعه‌شب، پنجم تیرماه، از شنیده‌شدن سه انفجار در طاهرویه سیریک خبر داد. براساس این گزارش، «منشأ صدا هنوز مشخص نیست».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز جمعه پنجم تیر، اعلام کرد نیروهای اسرائیلی تا زمان خلع سلاح حزب‌الله و رفع تهدیدهای امنیتی، در منطقه امنیتی جنوب لبنان باقی خواهند ماند.
+او گفت توافق به‌دست‌آمده میان اسرائیل، لبنان و ایالات متحده، به ارتش لبنان اجازه می‌دهد به‌تدریج کنترل برخی مناطق را در دست بگیرد، اما اسرائیل حضور خود را در منطقه امنیتی حفظ خواهد کرد و اجازه بازگشت نیروهای حزب‌الله به این مناطق را نخواهد داد.
+نتانیاهو همچنین این توافق را «ضربه‌ای به ایران» توصیف کرد و مدعی شد تهران دیگر نقشی در تحولات لبنان نخواهد داشت.
+این اظهارات پس از آن مطرح شد که مذاکره‌کنندگان ایالات متحده، اسرائیل و لبنان، روز جمعه پنجم تیر، پس از پنجمین دور گفت‌وگوهای دیپلماتیک، چارچوبی سه‌جانبه را با هدف کاهش تنش در جنوب لبنان امضا کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247483
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247483_1782510266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید، در جمع خبرنگاران، درباره نقض آتش‌بس از سوی جمهوری اسلامی گفت: «از اتفاقی که پنج‌شنبه رخ داد خوشم نیامد. آن‌ها چهار بار شلیک کردند. ما سه مورد را که یک کشتی هدف قرار داده بودند، سرنگون کردیم. یکی از پهپادها به یک کشتی باری بسیار گران‌قیمت اصابت کرد و هرچند خسارتی به آن وارد شد، اما توانست به مسیر خود ادامه دهد.»
+
+او افزود: «نباید چنین کاری انجام می‌دادند، بنابراین خواهید فهمید. منظورم این است که اگر پاسخ بدهم، خواهید فهمید.»
+
+ترامپ پیش‌تر در شبکه تروث‌سوشال نوشت: «جمهوری اسلامی دست‌کم چهار پهپاد تهاجمی را به سمت کشتی‌هایی که در حال عبور از تنگه هرمز بودند پرتاب کرده. یکی از این پهپادها مستقیما به یک کشتی باری بزرگ و گران‌قیمت برخورد کرده و به آن خسارت وارد شده، اما کشتی توانسته به مسیر خود ادامه دهد.»
+
+ترامپ همچنین عنوان کرد که ما سه پهپاد را سرنگون کردیم و افزود: «این اقدام نقض احمقانه توافق آتش‌بس است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی ان ان: حملات ارتش آمریکا به ایران پایان یافت.
+@withyashar
+</div>
+
+## WithYashar — post 15900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه سنتکام : امروز حملاتی را به سایت‌های ذخیره موشک و پهپادهای ایرانی و تأسیسات رادار ساحلی انجام داده است تا به تلافی حمله پهپادی ایران در 25 ژوئن به کشتی باری M/V Ever Lovely با پرچم سنگاپور در هنگام خروج از تنگه هرمز در امتداد سواحل عمان. سنتکام این…
+</div>
+
+## WithYashar — post 15899
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به ایست بازرسی بانه سقز حمله شد و ۲ نفر کشته و ۵ نفر زخمی شدن @withyashar 🚨
+</div>
+
+## WithYashar — post 15898
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15898_1782510267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز ششم تیرماه، روز جشن نیلوفر، (نیلوپر) روز دختر در ایران باستانه
+@withyashar
+یاشار: این روز رو صمیمانه به تمام دختران سرزمینم تبریک میگم، مخصوصاً خواهران عزیزم در اتاق جنگ که واقعاً من را حمایت کردند. مرسی
+</div>
+
+## WithYashar — post 15897
+
+
+
+
+## WithYashar — post 15896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا به یک مکان در مسن قشم بخش شهاب جزیره قشم حمله موشکی کرد 🚨🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 15895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به ایست بازرسی بانه سقز حمله شد و ۲ نفر کشته و ۵ نفر زخمی شدن @withyashar 🚨
+</div>
+
+## WithYashar — post 15894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به ایست بازرسی بانه سقز حمله شد و ۲ نفر کشته و ۵ نفر زخمی شدن
+@withyashar 🚨
+</div>
+
+## WithYashar — post 15893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات طرفداران حزب الله به امضا صلح با اسرائیل‌
+
+درگیری شدید و ارتش لبنان به سمت معترضان در جاده فرودگاه بیروت گاز اشک‌آور پرتاب می‌کند.
+@withyashar
+</div>
+
+## WithYashar — post 15892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار و جنگنده در مراغه
+@withyashar
+</div>
+
+## WithYashar — post 15891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران: «ما تأکید می‌کنیم که این حملات بی‌پاسخ نخواهد ماند و پاسخی سریع و قاطع در زمان و مکانی که ما انتخاب می‌کنیم، داده خواهد شد.»
+@withyashar
+</div>
+
+## WithYashar — post 15890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما:ساعت ۲۳:۱۵ امشب صدای انفجار در اسکله طاهرویی سیریک شنیده شد.یک منبع آگاه نظامی علت این انفجارها را برخورد یک فروند موشک در محدوده اسکله طاهرویی سیریک اعلام کرد.
+
+این منبع آگاه نظامی گفت: حدود ۵ ساعت پیش، چندین تیر هشدار از شهرستان سیریک به سمت شناورهای متخلف در تنگه هرمز شلیک شد.همچنین گزارش‌ها حاکی از شلیک دو موشک هشدار دهنده چند ساعت پیش از اطراف کارپان به سمت تنگه هرمز است.
+@withyashar
+</div>
+
+## WithYashar — post 15889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام آمریکایی به فاکس نیوز: حملات همچنان ادامه دارد
+
+@withyashar
+</div>
+
+## WithYashar — post 15888
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15888_1782510269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه سنتکام :
+
+امروز حملاتی را به سایت‌های ذخیره موشک و پهپادهای ایرانی و تأسیسات رادار ساحلی انجام داده است تا به تلافی حمله پهپادی ایران در 25 ژوئن به کشتی باری M/V Ever Lovely با پرچم سنگاپور در هنگام خروج از تنگه هرمز در امتداد سواحل عمان.
+
+سنتکام این حمله را نقض آشکار آتش بس و تهدیدی برای آزادی ناوبری خواند.
+
+نیروهای ایالات متحده به هماهنگی عبور امن برای کشتی های تجاری ادامه می دهند و می گویند که برای اطمینان از رعایت کامل توافق، هوشیار هستند.
+@withyashar
+</div>
+
+## WithYashar — post 15887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار آکسیوس : یک مقام آمریکایی به من گفت که ارتش ایالات متحده حملاتی را در منطقه تنگه هرمز انجام داده است.
+@withyashar
+</div>
+
+## WithYashar — post 15886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : همین فرمون بیداریم تا بازی رژیم با مصر … 💥 زارتان زورتانه گویا
+</div>
+
+## WithYashar — post 15885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع آگاه : سپاه قصد دارد اهدافی در منطقه را در پاسخ به حمله آمریکا مورد هدف قرار دهد
+@withyashar
+</div>
+
+## WithYashar — post 15884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: به دستور دونالد ترامپ عملیات محدود ما در ایران آغاز شد در جواب شکست آتش بس توسط جمهوری اسلامی @withyashar
+</div>
+
+## WithYashar — post 15883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : سه انفجار فوق سنگین همین الان سیریک احتمالا اسکله سپاه سیریک یا اسکله طاهرویی(چون تو یه خطن از این زاویه نمیشه تشخیص داد کدومه احتمال ۹۰ درصد جواب اون پهپاد های ج ا رو دادن @withyashar
+</div>
+
+## WithYashar — post 15882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: به دستور دونالد ترامپ عملیات محدود ما در ایران آغاز شد در جواب شکست آتش بس توسط جمهوری اسلامی
+@withyashar
+</div>
+
+## mwarmonitor — post 11570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰فاکس نیوز: گفته می‌شود برخی آمریکایی‌ها بدون اینکه خودشان بدانند در طرح «اوباماکر» ثبت‌نام شده‌اند.
+
+
+🔴دولت ترامپ می‌گوید کارگزاران بیمه با ثبت‌نام افراد بدون اطلاع آن‌ها، اقدام به ایجاد «ثبت‌نام‌های خیالی» کرده‌اند، در حالی که برخی دیگر نیز ظاهراً درآمد افراد را به‌اشتباه اعلام کرده یا یارانه‌هایی دریافت کرده‌اند که واجد شرایط آن نبوده‌اند.
+
+
+🔴مقامات تخمین می‌زنند این تقلب ادعایی بین سال‌های ۲۰۲۱ تا ۲۰۲۴ حدود ۱۰ میلیارد دلار برای مالیات‌دهندگان هزینه داشته است، در حالی که تعداد ثبت‌نام در اوباماکر در دوران دولت بایدن از ۱۰ میلیون به ۲۲ میلیون نفر افزایش یافته است.
+
+
+🔴وزارت بهداشت و خدمات انسانی آمریکا (HHS) می‌گوید نزدیک به ۳ میلیون ثبت‌نام مشکوک تاکنون حذف شده و میلیون‌ها مورد دیگر همچنان در حال بررسی است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه اعلام کرده است که به‌طور «سریع و قاطع» به آنچه آن را حمله جدید آمریکا به جزیره سیریک می‌نامد، پاسخ خواهد داد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢نیویورک تایمز به نقل از یک مقام آمریکایی: حملات در پاسخ به حمله ایران به یک کشتی تجاری بوده و به معنای ازسرگیری عملیات نظامی گسترده نیست.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فشاری شدن حزب‌الله @mwarmonitor
+</div>
+
+## mwarmonitor — post 11566
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11566_1782510269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: ​« شهروندان اسرائیل، پیش از آغاز شبات (شنبه)، می‌خواهم شما را از یک دستاورد بزرگ برای کشور اسرائیل مطلع کنم. شما می‌دانید که ما در واشینگتن در حال پیش‌بردن مذاکراتی میان نمایندگان اسرائیل، لبنان و ایالات متحده هستیم. این یک مذاکره طولانی‌مدت بود…
+</div>
+
+## mwarmonitor — post 11565
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11565_1782510271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨عراق مورد تجاوز قرار گرفته
+سنگال 5 عراق 0
+</div>
+
+## mwarmonitor — post 11564
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11564_1782510271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+USAF نیروی هوایی ایالات متحده – عملیات ایران
+
+✈️۳ فروند سوخت‌رسان Boeing KC-46 Pegasus
+
+AE574D 19-46007 - MOJO 13
+AE63BC 20-46080 - MOJO 14
+AE5FA8 19-46061 - MOJO 22
+
+
+✈️۲ فروند سوخت‌رسان Boeing KC-135 Stratotanker
+
+AE065C 59-1507 - شناسه نامشخص
+AE04DF 58-0088 - شناسه نامشخص
+
+
+✈️
+🚨شب شلوغی است؛ پنج هواپیمای سوخت‌رسان نیروی هوایی آمریکا در حال ردیابی در Flightradar24 دیده شده‌اند، سه فروند KC-46 با نام عملیات MOJO و دو KC-135 با شناسه نامشخص.
+
+✈️شماره‌های بالای پروازهای MOJO نشان می‌دهد ممکن است هواپیماهای بیشتری هم در منطقه فعال باشند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11563
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11563_1782510271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک مقام ارشد دفاعی آمریکا به من گفته است که حملات به اهداف ایرانی «در حال حاضر در جریان است و ادامه دارد». خبرنگار فاکس نیوز
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11562
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11562_1782510272.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 به نقل از Axios از یک مقام آمریکایی: ارتش ایالات متحده در منطقه تنگه هرمز حملاتی را انجام داده است. @mwarmonitor
+</div>
+
+## mwarmonitor — post 11561
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11561_1782510272.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شنیده شدن صدای ۳ انفجار در سیریک، استان هرمزگان .
+</div>
+
+## FoxNewsTwitter — post 343477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more 👉
+</div>
+
+## FoxNewsTwitter — post 343476
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343476_1782510272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+EXCLUSIVE: Some Americans were allegedly enrolled in Obamacare without ever knowing it.
+
+The Trump administration says insurance brokers created "phantom enrollments" by signing people up without their knowledge, while others allegedly misstated their incomes or received subsidies they weren't eligible for.
+
+Officials estimate the alleged fraud cost taxpayers about $10 billion between 2021 and 2024 as Obamacare enrollment surged from 10 million to 22 million people during the Biden administration.
+
+HHS says nearly 3 million alleged fraudulent enrollments have already been removed, with millions more still under review.
+</div>
+
+## FoxNewsTwitter — post 343475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. strikes Iranian missile and drone storage locations and coastal radar sites as "powerful response" to yesterday’s attack on a commercial ship in Strait of Hormuz, CENTCOM says.
+</div>
+
+## FoxNewsTwitter — post 343474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+GOP Rep. @realBrandonGill spars with a SNAP policy advocate, pressing her to answer whether Americans really "need Coca-Cola to survive" and whether taxpayer-funded food benefits should pay for sugary sodas.
+</div>
+
+## pm_afshaa — post 94860
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94860_1782510273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرکوب اغتشاشات در لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درگیری فیزیکی ارتش لبنان با اغتشاشگران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اغتشاشات در بیروت 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94855
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94855_1782510275.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اغتشاشات در بیروت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94853
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پس از توافق لبنان و اسرائیل، اغتشاشات توسط طرفداران حزب الله در بیروت آغاز شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام اعلام کرد در پاسخ به حمله دیروز به یک کشتی تجاری که در حال عبور از تنگه هرمز بود، به تأسیسات ذخیره‌سازی موشک و پهپاد و سایت‌های رادار ساحلی ایران حمله کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94851
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: نیروهای نظامی ایالات متحده در منطقه تنگه هرمز حملاتی انجام دادن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوانفجار در اسکله طاهرویی سیریک 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94849
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندر عباس صدا جنگنده میاد
+</div>
+
+## pm_afshaa — post 94848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز چندین تانکر سوخت رسان ارتش آمریکا بر فراز تنگه هرمز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94847
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:به دستور دونالد ترامپ عملیات محدود ما در ایران آغاز شد در جواب شکست آتش بس توسط جمهوری اسلامی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5993
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5993_1782510277.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی، اپیزود شانزدهم
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## VahidOnline — post 76701
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76701_1782510278.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رسانه‌های داخلی در ایران از درگیری مسلحانه میان نیروهای حکومتی و گروه‌های مخالف مسلح در «ایست بازرسی بانه - سقز» خبر دادند. گزارش‌های اولیه آنها حاکی از آن است که دو نفر از نیروهای حکومتی کشته‌ شده‌اند. همچنین گزارش شده است که پنج نفر دیگر نیز مجروح شده‌اند. جزئیات بیشتری منتشر نشده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76700
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76700_1782510278.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: انبارهای موشک و پهپاد ایران و سایت‌های راداری ساحلی را هدف قرار دادیم
+
+ترجمه ماشین:
+حملات آمریکا به ایران در پاسخ به حمله به کشتی تجاری
+
+تامپا، فلوریدا — نیروهای فرماندهی مرکزی آمریکا (CENTCOM) در ۲۶ ژوئن، در واکنشی قدرتمند به حمله دیروز به یک کشتی تجاری که در حال عبور از تنگه هرمز بود، حملاتی علیه ایران انجام دادند.
+
+هواپیماهای آمریکایی پس از آن‌که ایران در ۲۵ ژوئن با یک پهپاد تهاجمی یک‌طرفه به کشتی M/V Ever Lovely حمله کرد،
+انبارهای موشک و پهپاد ایران و سایت‌های راداری ساحلی را هدف قرار دادند.
+این کشتی باری با پرچم سنگاپور، هنگام حمله ایران، در امتداد ساحل عمان در حال خروج از تنگه هرمز بود.
+
+این تجاوز بی‌دلیل نیروهای ایرانی علیه کشتیرانی تجاری، آشکارا آتش‌بس را نقض کرد. افزون بر این، رفتار خطرناک ایران آزادی کشتیرانی را تضعیف کرد؛ آن هم در حالی که جریان تجارت به‌طور فزاینده‌ای از این کریدور حیاتی تجارت بین‌المللی عبور می‌کند.
+
+نیروهای CENTCOM همچنان هماهنگی و پشتیبانی برای عبور امن کشتی‌های تجاری از این تنگه را فراهم می‌کنند. ارتش آمریکا همچنان حاضر و هوشیار است تا اطمینان حاصل کند که همه جنبه‌های توافق با ایران رعایت و اجرا می‌شود و کاملاً به قوت خود باقی است.
+CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76699
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76699_1782510279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما:
+دقایقی قبل ؛ شنیده شدن صدای انفجار در طاهرویه سیریک
+منشأ صدا هنوز مشخص نمی‌باشد.
+اطلاعات تکمیلی متعاقبا اعلام می‌گردد.
+
+من ساعت ۲۳:۳۰ این پیام‌ها رو دریافت کرده بودم:
+
+اسکله طاهرو رو زد ۳ ،۴ بار
+زده بطرف تنگه
+
+سیریک گروگ سه تا صدای انفجار
+
+آپدیت:
+تکمیلی| به گزارش خبرنگار صداوسیما در سیریک:
+ساعت ۲۳ و پانزده دقیقه امشب صدای انفجار در اسکله طاهرویی سیریک شنیده شد.
+یک منبع آگاه نظامی علت این انفجارها را اصابت پرتابه به محدوده اسکله طاهرویی سیریک بیان کرد.
+این منبع آگاه نظامی گفت: حدود ۵ ساعت پیش چند شلیک اخطار از شهرستان سیریک به شناورهای متخلف‌ در تنگه هرمز پرتاب شد.
+همچنین شنیده ها از شلیک دو موشک اخطار ساعاتی پیش از حوالی کرپان به سمت تنگه هرمز حکایت دارد.
+و
+خبرنگار آکسیوس به نقل از یک مقام آمریکایی، جمعه‌شب، پنجم تیرماه، گزارش داد: «ارتش ایالات متحده حملاتی را در منطقه تنگه هرمز انجام داده است». پیش از این، صداوسیما از شنیده‌شدن سه انفجار در طاهرویه سیریک خبر داده بود.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام ایالات متحده تأیید کرد که در پاسخ به حمله دیروز به یک کشتی تجاری که در حال عبور از تنگه هرمز بود، به تأسیسات ذخیره‌سازی موشک و پهپاد و سایت‌های رادار ساحلی ایران حمله کرده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88192
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88192_1782510279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی قبل-خبرنگار آکسیوس
+
+یک مقام آمریکایی به من گفت که ارتش ایالات متحده حملاتی را در منطقه تنگه هرمز انجام داده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88191
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88191_1782510280.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی قبل دو انفجار در اسکله طاهرویی سیریک
+‎ https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88190
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88190_1782510280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عصبانیت شدید کریم باقری در رختکن پرسپولیس پس از بازی تحقیرآمیز :
+
+شما بازیکن ها لیاقت آسیا ندارید
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 344515
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344515_1782510282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با ادامه واکنش‌ها به تفاهم ایران و آمریکا، امامان جمعه تبریز و مشهد از مذاکره با آمریکا انتقاد کردند. در مقابل، امام جمعه ارومیه سخنان مجتبی خامنه‌ای را فصل‌الخطاب دانست و تندروی علیه توافق را محکوم کرد. همزمان، حسین یکتا و حسن رحیم‌پور ازغدی نیز از توافق انتقاد کردند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344514
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344514_1782510284.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنش بر سر تنگه هرمز شدت گرفته است. دونالد ترامپ شلیک پهپادهای ایرانی به سمت کشتی‌های عبوری را نقض آتش‌بس خواند و گفت یک پهپاد به یک کشتی باری اصابت کرده و سه فروند دیگر سرنگون شده‌اند. همزمان، تهران هشدار داده امنیت عبور کشتی‌ها بدون در نظر گرفتن ملاحظات ایران، تضمین‌شده نیست.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344513
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344513_1782510285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رسانه‌های ایران، سپاه پاسداران در بیانیه‌ای درباره حمله آمریکا به اهدافی در منطقه تنگه هرمز نوشت: «نیروهای دریایی و هوایی ما موفق شدند این حمله را خنثی کرده و نیروهای مهاجم را وادار به عقب‌نشینی کنند تا از حاکمیت ایران بر خاک و آب‌های خود محافظت کنند.»
+
+سپاه پاسداران افزود: «ما تاکید می‌کنیم که این تهاجم بدون پاسخ نخواهد ماند و پاسخ ما در زمان و مکانی که انتخاب می‌کنیم، سریع و قاطع خواهد بود.»
+
+در بیانیه سپاه آمده است: «هشدار می‌دهیم که هرگونه حماقت جدید با پاسخی سخت مواجه خواهد شد که توهمات مهاجمان در منطقه را در هم خواهد شکست.»
+https://iranintl.com/202606263692
+</div>
+
+## IranIntlTV — post 344512
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344512_1782510286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران گزارش داد در حمله افراد مسلح به ایست بازرسی در شهرستان بانه در شامگاه جمعه، دو نفر از نیروهای انتظامی کشته و پنج نفر دیگر مجروح شدند.
+
+خبرگزاری تسنیم گزارش داد که در جریان این حمله، یک نفر از نیروهای سپاه پاسداران نیز مجروح شده است.
+https://iranintl.com/202606261136
+</div>
+
+## IranIntlTV — post 344511
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344511_1782510287.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال فرانسه با پیروزی چهار بر یک برابر نروژ با ۹ امتیاز به‌عنوان صدرنشین گروه I راهی مرحله یک‌شانزدهم نهایی جام جهانی شد تا در این مرحله با یکی از تیم‌های برتر سوم راه‌یافته از گروه‌های D یا F یا G روبرو شود. نروژ نیز با قرار گرفتن در رده دوم، حریف ساحل عاج شد.
+
+🔹همچنین سنگال با پیروزی پنج بر صفر برابر عراق، از شانس بالایی برای صعود به مرحله حذفی به عنوان یکی از هشت تیم برتر سوم مسابقات برخوردار شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344510
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344510_1782510288.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که دونالد ترامپ و جی‌دی ونس از آغاز قریب‌الوقوع بازرسی‌های آژانس از تاسیسات هسته‌ای ایران خبر داده‌اند، خبرگزاری فارس، نزدیک به سپاه، این موضوع را رد کرده و گفته دسترسی بازرسان فعلا محدود به بوشهر و تهران است. رافائل گروسی اما می‌گوید توافق موقت ایران و آمریکا امکان راستی‌آزمایی قوی را فراهم می‌کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موضع‌گیری‌ها در ایران درباره تفاهم جمهوری اسلامی با آمریکا، در غیاب حضور علنی مجتبی خامنه‌ای، در روزهای اخیر شدت گرفته و در خطبه‌های نماز جمعه چند شهر ادامه یافته است.
+
+امام جمعه مشهد خطاب به تیم مذاکره‌کننده گفت: «با قاتل امام شهیدمان معامله نکنید.» حسین یکتا، از فرماندهان سپاه، نیز گفت نباید تجربه پذیرش قطعنامه از سوی روح‌الله خمینی تکرار شود.
+
+گفت‌وگو با علم صالح، دانشیار روابط بین‌الملل دانشگاه ملی استرالیا، و جابر رجبی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 344508
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344508_1782510290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرشته پزشک، کارشناس روابط بین‌الملل، گفت: «دونالد ترامپ دست‌کم تا انتخابات ماه نوامبر تمایلی به درگیری نظامی ندارد و راهکار فعلی او، کش دادن روند سیاسی و مدیریت بحران است. »
+
+او افزود: «به نظر می‌رسد جمهوری اسلامی این احتمال را در نظر گرفته که پس از نوامبر شرایط تغییر کند و دوباره خطر درگیری افزایش یابد. به همین دلیل تلاش می‌کند در کوتاه‌مدت حداکثر امتیازهای ممکن را به دست آورد و هم‌زمان برای دوره پس از انتخابات آمریکا خود را بازسازی کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344507
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344507_1782510292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صدا و سیمای جمهوری اسلامی، به نقل از یک منبع آگاه نظامی اعلام کرد که دلیل انفجارها در محدوده شهرستان سیریک، اصابت پرتابه به محدوده اسکله طاهرویی بوده است.
+
+این منبع آگاه نظامی افزود: «حدود پنج ساعت پیش چند شلیک اخطار از شهرستان سیریک به شناورهای متخلف در تنگه هرمز پرتاب شد.»
+https://iranintl.com/202606262918
+</div>
+
+## IranIntlTV — post 344506
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344506_1782510293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد که در تاریخ ۲۶ ژوئن، ششم تیر، نیروهای این فرماندهی «در واکنشی قدرتمند به حمله روز گذشته به یک کشتی تجاری که در حال عبور از تنگه هرمز بود، علیه ایران حملاتی انجام دادند.»
+
+در بیانیه سنتکام آمده است: «پس از آنکه ایران در ۲۵ ژوئن (پنجم تیر) کشتی اِم/وی اور لاولی را با یک پهپاد انتحاری هدف قرار داد، هواپیماهای آمریکایی محل‌های ذخیره موشک‌ها و پهپادهای ایران و همچنین سایت‌های راداری ساحلی را هدف قرار دادند. این کشتی باری با پرچم سنگاپور در زمان حمله ایران در حال خروج از تنگه هرمز و حرکت در امتداد سواحل عمان بود.»
+
+سنتکام افزود: «این اقدام تجاوزکارانه غیرموجه علیه کشتیرانی تجاری توسط نیروهای ایرانی به‌طور آشکار آتش‌بس را نقض کرد. علاوه بر این، رفتار خطرناک ایران آزادی ناوبری را تضعیف می‌کند. این در حالی است که جریان تجارت به‌طور فزاینده‌ از این گذرگاه حیاتی بین‌المللی عبور می‌کند.»
+https://iranintl.com/202606264421
+</div>
+
+## IranIntlTV — post 344505
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344505_1782510293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنش بر سر تنگه هرمز پس از حمله جمهوری اسلامی به یک کشتی باری وارد مرحله تازه‌ای شده است. دونالد ترامپ این اقدام را نقض آتش‌بس و «اقدامی احمقانه» توصیف کرد.
+
+در مقابل، معاون وزیر خارجه جمهوری اسلامی هشدار داد عبور ایمن کشتی‌ها بدون در نظر گرفتن ملاحظات ایران تضمین‌شده نیست.
+
+گفت‌وگو با علیرضا نامور حقیقی، تحلیل‌گر سیاسی، و فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## IranIntlTV — post 344504
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344504_1782510296.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش آکسیوس، ارتش ایالات متحده در منطقه تنگه هرمز حملاتی انجام داده است.
+بر اساس این گزارش، یک مقام آمریکایی اعلام کرد ارتش ایالات متحده اهدافی در ایران را در منطقه تنگه هرمز هدف قرار داده است.
+پیش‌تر رسانه‌های ایران از شنیده شدن صدای چند انفجار در سیریک خبر داده بودند.
+https://iranintl.com/202606260440
+</div>
+
+## IranIntlTV — post 344503
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344503" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: تهران آتش‌بس را احمقانه نقض کرده
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344502
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344502_1782510297.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد گروهی از ایرانیان جمعه پنجم تیرماه مقابل محل اقامت اعضای تیم فوتبال ایران در سیاتل آمریکا تجمع کرده و علیه جمهوری اسلامی شعار می‌دهند.
+بازی فوتبال میان ایران و مصر بامداد شنبه ساعت ۶:۳۰ به وقت تهران در جام‌جهانی انجام خواهد شد.
+</div>
+
+## IranIntlTV — post 344501
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344501_1782510301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صداوسیمای جمهوری اسلامی از «شنیده شدن صدای انفجار در سیریک» خبر داد.
+
+بر اساس این گزارش، منشا صدا هنوز مشخص نیست.
+
+پیش‌تر دونالد ترامپ اعلام کرده بود جمهوری اسلامی با شلیک پهپاد به یک کشتی باری، آتش‌بس را نقض کرده است.
+https://iranintl.com/202606264973
+</div>
+
+## IranIntlTV — post 344500
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344500_1782510301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید، در جمع خبرنگاران، درباره نقض آتش‌بس از سوی جمهوری اسلامی گفت: «از اتفاقی که پنج‌شنبه رخ داد خوشم نیامد. آن‌ها چهار بار شلیک کردند. ما سه مورد را که یک کشتی هدف قرار داده بودند، سرنگون کردیم. یکی از پهپادها به یک کشتی باری بسیار گران‌قیمت اصابت کرد و هرچند خسارتی به آن وارد شد، اما توانست به مسیر خود ادامه دهد.»
+
+او افزود: «نباید چنین کاری انجام می‌دادند، بنابراین خواهید فهمید. منظورم این است که اگر پاسخ بدهم، خواهید فهمید.»
+
+ترامپ پیش‌تر در شبکه تروث‌سوشال نوشت: «جمهوری اسلامی دست‌کم چهار پهپاد تهاجمی را به سمت کشتی‌هایی که در حال عبور از تنگه هرمز بودند پرتاب کرده. یکی از این پهپادها مستقیما به یک کشتی باری بزرگ و گران‌قیمت برخورد کرده و به آن خسارت وارد شده، اما کشتی توانسته به مسیر خود ادامه دهد.»
+
+ترامپ همچنین عنوان کرد که ما سه پهپاد را سرنگون کردیم و افزود: «این اقدام نقض احمقانه توافق آتش‌بس است.»
+https://iranintl.com/202606264926
+</div>
+
+## Shin_Persian — post 7228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 21:20:23 UTC
+
+Official update:
+2 police officers KIA, 5 WIA, 1 IRGC WIA.
+Baneh, Kurdistan Province, Iran
+
+ترجمه خودکار فارسی (ویرایش شده توسط خودم، شین)
+
+به‌روزرسانی رسمی:
+۲ مامور پلیس کشته شدند (KIA)، ۵ تاشون مجروح (WIA)، ۱ نفر از اعضای سپاه پاسداران انقلاب اسلامی (IRGC) مجروح (WIA).
+بانه، استان کردستان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 20:55:40 UTC
+
+IRGC terror organization on CENTCOM strikes on Sirik, Hormozgan Province:
+
+"We assert that this aggression will not go unanswered, and a swift and decisive response will be delivered at a time and place of our choosing."
+
+ترجمه خودکار فارسی
+
+سازمان تروریستی سپاه پاسداران انقلاب اسلامی (IRGC) در مورد حملات سنتکام (CENTCOM - فرماندهی مرکزی ایالات متحده) به سیریک در استان هرمزگان:
+
+«ما تأکید می‌کنیم که این تجاوز بی‌پاسخ نخواهد ماند و پاسخی سریع و قاطع در زمان و مکانی که ما انتخاب می‌کنیم، داده خواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7226
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7226_1782510302.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 26 Jun 2026 18:51:59 UTC Clashes between Kurdish militants (unclear which group) and regime forces at a joint checkpoint at Baneh city’s entrance. Kurdistan Province, Iran ↩️ توییت نقل‌قول شده — برای پاسخ، پست…
+</div>
+
+## Shin_Persian — post 7225
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7225_1782510303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 18:51:59 UTC
+
+Clashes between Kurdish militants (unclear which group) and regime forces at a joint checkpoint at Baneh city’s entrance.
+Kurdistan Province, Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+درگیری بین شبه‌نظامیان کرد (گروه نامشخص) و نیروهای رژیم در یک ایست بازرسی مشترک در ورودی شهر بانه.
+استان کردستان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7224
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7224_1782510303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 20:44:19 UTC
+
+It's raining tankers in the region
+
+ترجمه خودکار فارسی
+
+بارانی از هواپیماهای سوخت‌رسان در منطقه در حال باریدن است
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 20:37:27 UTC
+
+CENTCOM confirms:
+
+"U.S. Central Command (CENTCOM) forces conducted strikes against Iran, June 26, as a powerful response to yesterday’s attack on a commercial ship that was transiting the Strait of Hormuz.
+U.S. aircraft struck Iranian missile and drone storage locations and coastal radar sites after Iran hit M/V Ever Lovely on June 25 with a one-way attack drone. The Singapore-flagged cargo ship was exiting the Strait of Hormuz along the Omani coast at the time of Iran’s attack.
+The unwarranted aggression against commercial shipping by Iranian forces clearly violated the ceasefire. Furthermore, Iran’s dangerous behavior undermined freedom of navigation as commerce increasingly flows through the vital international trade corridor.
+CENTCOM forces continue to provide safe passage coordination and support to commercial vessels transiting the strait. The U.S. military remains present and vigilant to ensure all aspects of the agreement with Iran are adhered to, obeyed, and in full force and effect."
+
+ترجمه خودکار فارسی
+
+سنتکام (ستاد فرماندهی مرکزی ایالات متحده) تایید می‌کند:
+
+«نیروهای ستاد فرماندهی مرکزی ایالات متحده (CENTCOM) در ۲۶ ژوئن، در پاسخی قاطع به حمله دیروز به یک کشتی تجاری که در حال عبور از تنگه هرمز بود، حملاتی را علیه ایران انجام دادند.
+پس از آنکه ایران در ۲۵ ژوئن با یک پهپاد تهاجمی یک‌طرفه به کشتی ام/وی اِوِر لاولی (M/V Ever Lovely) حمله کرد، هواپیماهای آمریکایی انبار موشک‌ها و پهپادهای ایران و سایت‌های راداری ساحلی را مورد هدف قرار دادند. این کشتی باری با پرچم سنگاپور در زمان حمله ایران، در حال خروج از تنگه هرمز در امتداد سواحل عمان بود.
+تجاوز بی‌دلیل نیروهای ایرانی علیه کشتیرانی تجاری، آشکارا آتش‌بس را نقض کرد. علاوه بر این، رفتار خطرناک ایران، آزادی دریانوردی را در حالی که تجارت به‌طور فزاینده‌ای از این کریدور حیاتی تجاری بین‌المللی جریان دارد، تضعیف کرد.
+نیروهای سنتکام به ارائه هماهنگی و پشتیبانی برای عبور امن شناورهای تجاری در حال عبور از تنگه ادامه می‌دهند. ارتش ایالات متحده برای اطمینان از اینکه تمامی جوانب توافق با ایران رعایت، اطاعت و با قدرت کامل اجرا شود، در صحنه حاضر و هوشیار باقی می‌ماند.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 20:32:50 UTC
+
+Yup, it WAS the Americans.
+
+ترجمه خودکار فارسی
+
+بله، کار آمریکایی‌ها بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 26 Jun 2026 20:05:17 UTC 3 blasts in Sirik, Hormozgan Province, Iran ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. ترجمه خودکار فارسی ۳ انفجار در سیریک، استان هرمزگان، ایران 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 20:05:17 UTC
+
+3 blasts in Sirik, Hormozgan Province, Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+۳ انفجار در سیریک، استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7219
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7219_1782510304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 26 Jun 2026 20:14:55 UTC
+
+Several #USAF 🇺🇸 Tankers and a Poseidon up over the region
+
+ترجمه خودکار فارسی
+
+چندین تانکر USAF (نیروی هوایی ایالات متحده) 🇺🇸 و یک پوزیدون بر فراز منطقه حضور دارند #USAF
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221977
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221977_1782510305.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش آمریکایی‌ها به صعود تیم ملی ایالات متحده بعد از بازی با ترکیه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221976
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221976_1782510307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رسانه‌های داخلی در ایران از درگیری مسلحانه میان نیروهای حکومتی و گروه‌های مخالف مسلح در «ایست بازرسی بانه - سقز» خبر دادند. گزارش‌های اولیه آنها حاکی از آن است که دو نفر از نیروهای حکومتی کشته‌ شده‌اند. همچنین گزارش شده است که پنج نفر دیگر نیز مجروح شده‌اند. جزئيات بیشتری منتشر نشده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221975
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221975_1782510307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مارک کارنی، نخست وزیر کانادا، می گوید اتاوا باید به سمت بازگشایی سفارت‌های خود در ایران و ونزوئلا پیش برود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221974
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221974_1782510309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام اعلام کرد که نیروهای آمریکایی در پاسخ به حمله جمهوری اسلامی به یک کشتی تجاری دست به انجام حملاتی به عنوان «پاسخی قدرتمند» زدند.
+سنتکام گفت پس از آنکه جمهوری اسلامی در روز پنجشنبه با یک پهپاد تهاجمی یک طرفه به کشتی «اور لاولی» حمله کرد، هواپیماهای آمریکایی به محل‌های نگهداری موشک و پهپاد و سایت‌های رادار ساحلی در ایران حمله کردند.
+کشتی باری با پرچم سنگاپور در زمان حمله جمهوری اسلامی در حال خروج از تنگه هرمز در امتداد ساحل عمان بود.
+
+سنتکام افزود «تجاوز بی‌دلیل نیروهای [جمهوری اسلامی] ایران به کشتی‌های تجاری به وضوح آتش‌بس را نقض کرد. علاوه بر این، رفتار خطرناک [جمهوری اسلامی] ایران، آزادی ناوبری را در حالی که تجارت به طور فزاینده‌ای از طریق کریدور حیاتی تجارت بین‌المللی جریان دارد، تضعیف می‌کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165247.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اولین تابستان بعد از جنگ؛ نظرات کاربران شبکه‌های اجتماعی از جام جهانی تا معیشت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221972
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221972_1782510309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تلویزیون حکومتی در ایران از شنیده شدن صدای انفجار در سیریک خبر داد. رسانه‌های حکومتی گزارش دادند منشأ صدا هنوز مشخص نیست.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺مارکو روبیو: آمریکا، اسرائیل و لبنان چارچوب سه‌جانبه برای صلح را امضا کردند؛ این سند مسیری برای خلع سلاح حزب‌الله است
+
+▪️مارکو روبیو، وزیر امورخارجه آمریکا، روز جمعه ۵ تیر گفت «امروز، دولت‌های اسرائیل و لبنان تصمیم جسورانه‌ای گرفتند تا بر سر چارچوبی توافق کنند که مسیری واقع‌بینانه برای خروج از درگیری بی‌پایان ایجاد می‌کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165238.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18138
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18138_1782510310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش در حال متفرق کردن معترضان در جاده منتهی به فرودگاه بیروت است.
+</div>
+
+## Persian_Trend_Official — post 18136
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18136_1782510311.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش لبنان خودروهای زرهی را به سمت ضاحیه فرستاد؛ تشدید تنش در بیروت
+
+نیروهای ارتش لبنان دقایقی پیش با استقرار خودروهای زرهی و تجهیزات سنگین در محور جاده فرودگاه و ورودی‌های ضاحیه جنوبی بیروت، عملاً کنترل این منطقه را در دست گرفتند. این اقدام در واکنش به تجمعات گسترده هواداران حزب‌الله و مسدود شدن جاده کوکودی (مسیر قدیمی فرودگاه) صورت گرفته است.
+
+منابع محلی از پیشروی یگان‌های نظامی به سمت میدان «سلیم سلام» و خیابان‌های منتهی به منطقه «شویفات» خبر می‌دهند؛ مناطقی که در ساعات گذشته صحنه تردد کاروان‌های موتورسواران معترض بود.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18135
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/KZocbb9Milw?feature=share
+</div>
+
+## Persian_Trend_Official — post 18134
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان این اعتراضات یا اغتشاشات؟؟
+</div>
+
+## Persian_Trend_Official — post 18133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزیده خبرها
+
+
+خبرنگار صداوسیما در سیریک: ساعت ۲۳ و پانزده دقیقه امشب صدای انفجار در اسکله طاهرویی سیریک شنیده شد
+
+🔹یک منبع آگاه نظامی علت این انفجارها را اصابت پرتابه به محدوده اسکله طاهرویی سیریک بیان کرد.
+
+🔹این منبع آگاه نظامی گفت: حدود ۵ ساعت پیش چند شلیک اخطار از شهرستان سیریک به شناورهای متخلف‌ در تنگه هرمز پرتاب شد.
+
+🔹همچنین شنیده ها از شلیک دو موشک اخطار ساعاتی پیش از حوالی کرپان به سمت تنگه هرمز حکایت دارد.
+
+
+سنتکام اعلام کرد که امروز حملاتی را به سایت‌های ذخیره موشک و پهپادهای ایرانی و تأسیسات راداری ساحلی انجام داده است
+
+🔹در واکنش به حمله پهپادی ایران در ۲۵ ژوئن به کشتی باری با پرچم سنگاپور M/V Ever Lovely که هنگام خروج از تنگه هرمز در سواحل عمان بود.
+
+🔹سنتکام این حمله را نقض آشکار آتش‌بس و تهدیدی برای آزادی ناوبری خواند.
+
+🔹نیروهای آمریکایی همچنان هماهنگی‌های عبور ایمن برای کشتی‌های تجاری را ادامه می‌دهند و می‌گویند که هوشیار باقی می‌مانند تا اطمینان حاصل کنند که توافق به طور کامل رعایت می‌شود.
+
+
+
+نایا:
+
+🔹ایران پاسخ خواهد داد و این بار این پاسخ به شیوه‌ای خواهد بود که دشمن را غافلگیر کند.
+
+
+
+فاکس نیوز: حملات آمریکا به اهداف ایرانی هم‌اکنون در جریان است
+</div>
+
+## Persian_Trend_Official — post 18132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیر رسمی/گزارشات از جابجایی لانچرهای سپاه در غرب کشور
+</div>
+
+## Persian_Trend_Official — post 18128
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18128_1782510313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیروت قفل شد؛ معترضان جاده فرودگاه را بستند و موتورسواران به خیابان‌ها ریختند ساعت‌ها پس از اعلام توافق میان لبنان و اسرائیل، هواداران حزب‌الله با تجمع در ضاحیه جنوبی و مسدود کردن جاده ساحلی «کوکودی» (مسیر قدیمی فرودگاه بیروت)، مخالفت خود را با این توافق…
+</div>
+
+## Persian_Trend_Official — post 18127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله مسلحانه به ایست بازرسی بانه؛ ۲ کشته و ۵ مجروح
+
+ساعاتی قبل افراد مسلح با حمله به ایست و بازرسی در شهرستان بانه (استان کردستان)، ۲ نفر از نیروهای انتظامی را کشته و ۵ تن دیگر را مجروح کردند. بر اساس گزارش خبرگزاری تسنیم، در میان مجروحان ۲ نفر از نیروهای انتظامی، یک نفر از نیروهای سپاه پاسداران و دو غیرنظامی حضور دارند و حال یکی از مجروحان وخیم گزارش شده است .
+
+این درگیری در جاده سقز به بانه رخ داده و منابع محلی از ادامه درگیری‌های مسلحانه در این منطقه خبر می‌دهند . تا لحظه تنظیم این خبر، جزییات بیشتری درباره هویت عاملان حمله منتشر نشده و بررسی‌ها برای تکمیل اطلاعات ادامه دارد .
+
+پ.ن: بانه در ماه‌های اخیر صحنه چندین درگیری مسلحانه میان نیروهای امنیتی و مخالفان مسلح بوده است . این حمله در شرایطی رخ می‌دهد که تنش‌های امنیتی در مناطق مرزی غرب کشور افزایش یافته و نیروهای انتظامی و سپاه در حالت آماده‌باش کامل به سر می‌برند.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیروت قفل شد؛ معترضان جاده فرودگاه را بستند و موتورسواران به خیابان‌ها ریختند
+
+ساعت‌ها پس از اعلام توافق میان لبنان و اسرائیل، هواداران حزب‌الله با تجمع در ضاحیه جنوبی و مسدود کردن جاده ساحلی «کوکودی» (مسیر قدیمی فرودگاه بیروت)، مخالفت خود را با این توافق به نمایش گذاشتند. همزمان، کاروان‌های سنگین موتورسواران در داخل بیروت به راه افتاده و گزارش‌ها از بسته شدن خیابان‌ها در منطقه «سلیم سلام» حکایت دارد .
+
+معترضان با سردادن شعارهایی علیه «امتیازدهی به اسرائیل»، بر حفظ سلاح‌های مقاومت تأکید کرده‌اند و برخی منابع محلی از تهدید به گسترش اعتراض‌ها به دیگر نقاط پایتخت خبر می‌دهند.
+
+پ.ن: حرکت موتورسواران و بستن جاده فرودگاه، یادآور الگوی اعتراضات سال ۲۰۰۸ در لبنان است؛ تاکتیکی که فشار حداکثری بر دولت و کاخ بعبدا را در کوتاه‌ترین زمان ممکن ممکن می‌کند.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18125
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18125_1782510315.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو میزارم
+منتظر یه خبر مهمم
+</div>
+
+## Persian_Trend_Official — post 18123
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18123_1782510315.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لبنان؛ تظاهرات هواداران حزب‌الله در بیروت و تهدید به محاصره کاخ بعبدا
+
+همزمان با تشدید تنش‌ها بر سر تصمیم دولت لبنان برای مذاکره مستقیم با اسرائیل، هواداران حزب‌الله و جنبش امل امروز در مرکز بیروت دست به تظاهرات زدند. معترضان با سردادن شعارهایی علیه «امتیازدهی به اسرائیل» بر حفظ سلاح‌های مقاومت تأکید کرده و تهدید کردند که در صورت ادامه روند مذاکرات، کاخ ریاست‌جمهوری در بعبدا را محاصره خواهند کرد .
+
+ارتش لبنان با صدور بیانیه‌ای ضمن هشدار شدید به معترضان درباره اقدامات تهدیدکننده آرامش داخلی، اعلام کرد که با هر گونه اقدام علیه امنیت عمومی یا اموال عمومی و خصوصی قاطعانه برخورد خواهد شد و ثبات داخلی یک «خط قرمز» است. همزمان، نخست‌وزیر نواف سلام سفر خود به آمریکا را لغو کرده و جلسات امنیتی با حضور فرماندهان نظامی برای مدیریت اوضاع در پایتخت برگزار شده است .
+
+پ.ن: این تحولات، لحظه‌ای حساس در سیاست داخلی لبنان را رقم زده؛ جایی که اختلاف بر سر انحصار سلاح و سیاست خارجی به‌شدت میان کاخ بعبدا و حزب‌الله بالا گرفته است.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18122
+
+
+
+
+## Persian_Trend_Official — post 18121
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18121_1782510317.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز سوخترسان های آمریکایی در نزدیکی خلیج فارس
+</div>
+
+## Persian_Trend_Official — post 18120
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18120_1782510318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار نیروی دریایی سپاه در کانال ۱۶ دریایی
+
+صبح امروز نیروی دریایی سپاه پاسداران در کانال ۱۶ دریایی به شناورهایی که قصد عبور از تنگه هرمز را دارند هشدار داد
+
+در این اطلاعیه تأکید شده است هماهنگی برای عبور از تنگه هرمز از طریق کانال ۱۶ با نیروی دریایی سپاه الزامی بوده و با شناورهای متخلف برخورد خواهد شد
+
+همچنین اعلام شده تردد خارج از مسیرهای تعیین‌شده ممنوع و بسیار خطرناک است و از تمامی شناورها خواسته شده به‌طور کامل از دستورالعمل‌های ابلاغی تبعیت کنند
+
+متن ترجمه‌شده هشدار:
+
+عبور و مرور در تنگه هرمز تنها با اجازه نیروی دریایی سپاه و در مسیرهای تعیین‌شده امکان‌پذیر است
+اگر هر شناوری بدون اجازه ما، با سیستم شناسایی خودکار خاموش یا خارج از مسیر تعیین شده اقدام به عبور کند، مسئولیت هرگونه عواقبی بر عهده آن شناور خواهد بود
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18119
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18119_1782510320.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه سنتکام:
+
+حمله آمریکا به ایران در پاسخ به حمله به کشتی تجاری
+تامپا، فلوریدا - نیروهای فرماندهی مرکزی ایالات متحده (CENTCOM) در ۲۶ ژوئن، حملاتی را علیه ایران انجام دادند که پاسخی قوی به حمله دیروز به یک کشتی تجاری بود که در حال عبور از تنگه هرمز بود.
+
+هواپیماهای آمریکایی پس از آنکه ایران در ۲۵ ژوئن با یک پهپاد تهاجمی یک‌طرفه به کشتی M/V Ever Lovely حمله کرد، به محل‌های نگهداری موشک و پهپاد و سایت‌های رادار ساحلی ایران حمله کردند. این کشتی باری با پرچم سنگاپور در زمان حمله ایران در حال خروج از تنگه هرمز در امتداد ساحل عمان بود.
+
+تجاوز بی‌دلیل نیروهای ایرانی به کشتی‌های تجاری به وضوح آتش‌بس را نقض کرد. علاوه بر این، رفتار خطرناک ایران، آزادی ناوبری را تضعیف کرد، زیرا تجارت به طور فزاینده‌ای از طریق کریدور حیاتی تجارت بین‌المللی جریان دارد.
+
+نیروهای فرماندهی مرکزی ایالات متحده همچنان هماهنگی و پشتیبانی عبور ایمن را برای کشتی‌های تجاری که از تنگه عبور می‌کنند، فراهم می‌کنند. ارتش ایالات متحده همچنان حضور دارد و هوشیار است تا اطمینان حاصل کند که تمام جنبه‌های توافق با ایران رعایت، رعایت و با تمام قدرت و به طور کامل اجرا می‌شود.
+</div>
+
+## Persian_Trend_Official — post 18118
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_18118_1782510321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواگردهای زیر از ساعاتی قبل در حال فعالیت بوده‌اند:
+
+🔹 ۲ فروند هواپیمای سوخت‌رسان KC-46A Pegasus
+🔹 ۲ فروند هواپیمای سوخت‌رسان KC-135R/T Stratotanker
+🔹 ۱ فروند هواپیمای گشت دریایی Boeing P-8A Poseidon
+</div>
+
+## IranianMinds — post 23346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما:
+۲ پرتابه به یک دکل مخابراتی در محدوده سیریک اصابت کرده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23345
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23345_1782510322.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات شبانه حزب‌الله در بیروت، در پی امضای توافق اولیه میان دولت لبنان و اسرائیل
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمال دیس بک جمهوری اسلامی در ساعات آینده بالاست
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار فاکس نیوز:
+
+یک مقام ارشد دفاعی آمریکا به من گفته که حملات به اهداف جمهوری اسلامی «در حال حاضر در جریانه و ادامه داره.»
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23342
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23342_1782510324.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیفا تأیید کرد که پرچم‌های رنگین‌کمان (پرچم‌های LGBT) داخل استادیوم بازی مصر مقابل ایران در سیاتل اجازه ورود خواهند داشت، با وجود اعتراض شدید هر دو تیم به برگزاری برنامه‌های همجنسگرایی در اطراف بازی.
+
+فیفا تأکید کرد که این جشن‌ها توسط کمیته محلی سیاتل برگزار می‌شود و بخشی از جام جهانی نیست.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام :
+
+نیروهای فرماندهی مرکزی آمریکا (سنتکام) در پاسخ به حمله روز گذشته به یک کشتی تجاری در تنگه هرمز، حملاتی رو علیه مواضعی در ایران انجام دادند.
+
+جنگنده‌های آمریکایی پس از حمله پهپادی روز گذشته ایران به کشتی باربری «M/V Ever Lovely»، انبارها و مواضع موشکی، پهپادی و سایت‌های راداری ساحلی ایران رو هدف قرار دادند. این کشتی باربری با پرچم سنگاپور، در زمان حمله در امتداد سواحل عمان در حال خروج از تنگه هرمز بود.
+
+این اقدام و تعرض به کشتیرانی تجاری، نقض آشکار آتش‌بس به حساب میاد. علاوه‌بر این، رفتارهای خطرناک ایران آزادی کشتیرانی و جریان تجارت رو در این آبراه بین‌المللی و حیاتی به خطر انداخته.
+
+نیروهای سنتکام همچنان به هماهنگی و حمایت امنیتی از کشتی‌های تجاری در حال عبور از این تنگه ادامه میدن. ارتش آمریکا برای تضمین پایبندی کامل به تمام مفاد توافق با ایران، کاملاً آماده و هوشیاره.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تموم شد ؟ این چه زدنی بود کصکشا
+</div>
+
+## IranianMinds — post 23339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس:
+
+ارتش آمریکا حملاتی رو در منطقه تنگه هرمز انجام داد.
+
+@iranianMinds
+</div>
+
+## IranianMinds — post 23338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طی گزارش های محلی بندر عباس صدا جنگنده میاد
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدایا شکرت توافق عالیه صدای امضاها تا کیلومتر ها شنیده میشه🙏
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23335
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23335_1782510325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پرواز چندین تانکر سوخت رسان ارتش آمریکا
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23334
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا چیزی نیست دارن یونجه هارو دراپ میکنن
+</div>
+
+## IranianMinds — post 23333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+شنیده شدن صدای انفجار تو منطقه طاهریه سیریک بوده ؛ هنوز علت و منشأ این انفجار مشخص نیست.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 285130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گزارش صداوسیمای ایران از حمله به اسکله طاهرویی سیریک
+
+🔻خبرنگار صداوسیمای ایران در سیریک گزارش داد که ساعت ۲۳:۱۵ جمعه‌شب به وقت محلی، صدای انفجاری در محدوده اسکله طاهرویی شنیده شده است.
+
+او به نقل از یک منبع آگاه نظامی گفت این صدا ناشی از اصابت یک پرتابه به محدوده اسکله طاهرویی بوده است. جزئیات بیشتری درباره خسارات یا تلفات احتمالی منتشر نشده است.
+
+همزمان، فرماندهی مرکزی ارتش آمریکا، سنتکام، اعلام کرد که هواپیماهای آمریکایی انبارهای موشک و پهپاد و همچنین تأسیسات راداری ساحلی ایران را هدف قرار داده‌اند.
+
+صداوسیمای ایران همچنین گزارش داد که حدود پنج ساعت پیش از این حمله، از منطقه سیریک چند شلیک اخطار به سوی شناورهایی انجام شده بود که «متخلف» خوانده شدند.
+
+بر اساس این گزارش، دو پرتابه هشداردهنده از حوالی کرپان به سمت تنگه هرمز شلیک شده بود.
+
+شهرستان سیریک در حدود ۱۷۰ کیلومتری شرق بندرعباس قرار دارد.
+
+https://bbc.in/440UjbD
+@BBCPersian
+</div>
+
+## BBCPersian — post 285129
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285129_1782510325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻فرماندهی مرکزی ارتش آمریکا، سنتکام، اعلام کرد که نیروهای آمریکایی روز جمعه در واکنش به حمله ایران به یک کشتی تجاری در تنگه هرمز، مواضعی را در ایران هدف قرار دادند.
+
+بر اساس بیانیه سنتکام، هواپیماهای آمریکایی انبارهای موشک و پهپاد و همچنین تأسیسات راداری ساحلی ایران را بمباران کردند.
+
+فرماندهی مرکزی ارتش آمریکا، سنتکام کمی بعد جزئیات بیشتری از حملات به ایران را منتشر کرد.
+
+سنتکام گفت که هواپیماهای آمریکایی انبارهای موشک و پهپاد و همچنین تأسیسات راداری ساحلی ایران را هدف قرار دادند.
+
+بر اساس این بیانیه، کشتی «اور لاولی» با پرچم سنگاپور روز ۲۵ ژوئن، هنگام خروج از تنگه هرمز در امتداد سواحل عمان، با یک پهپاد انتحاری یک‌طرفه هدف حمله قرار گرفت.
+
+سنتکام این حمله را کار ایران و نقض آشکار آتش‌بس توصیف کرد و گفت که چنین اقدامی آزادی کشتیرانی در یکی از مهم‌ترین مسیرهای تجارت جهانی را به خطر انداخته است.
+
+لینک خبر کامل:
+
+https://bbc.in/4wgvEfi
+@BBCPersian
+</div>
+
+## BBCPersian — post 285128
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285128_1782510326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻دونالد ترامپ، رئیس‌جمهور آمریکا، در پاسخ به پرسشی درباره پیامدهای حمله ایران به یک کشتی باری گفت: «خواهید دید.»
+
+او گفت از اینکه ایران روز گذشته به یک کشتی شلیک کرده خشنود نیست و افزود که این کشتی، با وجود آسیب‌دیدن، به حرکت خود ادامه داده است.
+
+برن دبوزمن، خبرنگار بی‌بی‌سی، از آقای ترامپ پرسید چرا ایران در حالی دست به این حمله زده که او بارها گفته است مذاکرات به‌خوبی پیش می‌رود و انگیزه تهران از حمله به کشتی چه بوده است.
+
+آقای ترامپ پاسخ روشنی به این پرسش نداد و بار دیگر گفت: «خواهید دید.»
+
+📷Getty Images
+https://bbc.in/4exyYN6
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 285127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گزارش‌ها از شنیده‌شدن صدای انفجار در سیریک؛ علت هنوز مشخص نیست
+
+🔻رسانه‌های ایران روز جمعه از شنیده‌شدن صدای انفجار در سیریک، در جنوب کشور، خبر دادند. علت این صدا هنوز مشخص نیست.
+
+به گزارش رویترز این گزارش‌ها اندکی پس از آن منتشر شد که دونالد ترامپ، رئیس‌جمهور آمریکا، تلویحا از احتمال واکنش واشنگتن به حمله ایران به یک کشتی باری سخن گفت.
+
+وقتی از آقای ترامپ پرسیده شد آیا این حمله برای تهران پیامدی خواهد داشت، پاسخ داد: «خواهید دید.»
+
+https://bbc.in/3QIROHK
+@BBCPersian
+</div>
+
+## BBCPersian — post 285126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هشدار سازمان بین‌المللی دریانوردی به کشتی‌ها درباره استفاده از مسیرهای غیرمجاز در تنگه هرمز
+
+🔻رئیس سازمان بین‌المللی دریانوردی، وابسته به سازمان ملل، از کشتی‌ها خواسته است برای عبور از تنگه هرمز، خطر استفاده از مسیرهای غیرمجاز را نپذیرند؛ در حالی که عملیات خروج کشتی‌ها از منطقه همچنان متوقف است.
+
+آرسنیو دومینگز گفت که گفت‌وگوها با همه طرف‌های درگیر، از جمله ایران، برای تضمین امنیت کشتی‌ها ادامه دارد. این اظهارات پس از حمله روز پنجشنبه به یک کشتی باری مطرح شد.
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، این حمله را «نقض احمقانه» آتش‌بس میان آمریکا و ایران توصیف کرده است.
+
+آقای دومینگز همچنین گفت که در چهار روز گذشته ۱۵۰ کشتی با مجموع چهار هزار دریانورد از منطقه خارج شده‌اند.
+
+https://bbc.in/4oSIqxV
+@BBCPersian
+</div>
+
+## BBCPersian — post 285124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حسین محبی، سخنگوی سپاه، خبر برقراری خط مستقیم میان ایران و آمریکا را «دروغ محض» خواند.
+
+او در شبکه ایکس نوشت که «ادعاهای مقامات آمریکایی مبنی بر برقرار شدن خط مستقیم بین ایران و آمریکا در خصوص تنگه هرمز، دروغ محض است و به شدت تکذیب می‌گردد.»
+
+پیشتر جی دی ونس، معاون رئیس‌جمهور آمریکا، گفته بود که واشنگتن و تهران توافق کرده‌اند برای کاهش خطر درگیری‌های بیشتر، یک کانال ارتباطی مستقیم با سپاه پاسداران ایجاد کنند.
+
+آقای ونس گفته بود که این سازوکار شامل دیدار مقام‌های نظامی ایران و آمریکا در قطر خواهد بود تا اختلافات و تنش‌های احتمالی را مدیریت کنند.
+
+اما سخنگوی سپاه پاسداران می‌گوید که «این اتفاق نیفتاده و نخواهد افتاد.»
+
+این در حالی است که خبرگزاری میزان به نقل از پرس‌تی وی، شاخه برون‌مرزی صداوسیمای ایران خبر داد که به منظور «جلوگیری از حوادث در تنگه هرمز که ممکن است منجر به درگیری نظامی شود» خط مستقیمی میان ایران و آمریکا برقرار شده است.
+
+https://bbc.in/4v1qByf
+📷IRNA
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش بس ایران و آمریکا، مثل ایناس که تو فیلم سوپر خوابن و میان زنشونو میکنن، هیچ جوره نقض نمیشه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393181
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393181_1782510327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌ها این یاسه
+یاس میمیره و از غلات امریکایی نمیخوره، ولی پول میده به امریکایی‌ها تیک آبی میخره تا بتونه به این واسطه نون بخوره از گرسنگی نمیره :)))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز :
+حملات آمریکا به اهدافی در ایران همچنان ادامه دارد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393179
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393179_1782510327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام رسما حمله به ایران رو به عهده گرفت و گفت این حمله، در جواب حمله ایران به یه کشتی تجاری بوده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏چیزی ک مردم عادی میبینن vs چیزی ک فیلمبازا میبینن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏حوصله‌مون سر رفت. نمی‌شه خامنه‌ای رو دوباره بکشن؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از نتایج سفر روبیو به خاورمیانه:
+
+۱.نقض آتش‌بس توسط ج.ا
+۲.اصرار سپاه بر گرفتن عوارض در تنگه هرمز
+۳.باقی ماندن اسرائیل در جنوب لبنان تا خلع سلاح حزب الله
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130430
+
+<div align="center">
+  <a href="telegram/content/alonews_130430_1782510328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سرکوب اغتشاشات در لبنان شروع شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130429
+
+<div align="center">
+  <a href="telegram/content/alonews_130429_1782510329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برخی منابع عربی در خبری فوری از آماده‌باش در پایگاه‌های آمریکا در بحرین، کویت، قطر و عربستان خبر داده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130428
+
+<div align="center">
+  <a href="telegram/content/alonews_130428_1782510330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور لبنان:
+اغتشاشگر را باید سرجایش نشاند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130427
+
+<div align="center">
+  <a href="telegram/content/alonews_130427_1782510330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای ارتش لبنان برای سرکوب اغتشاشات وارد عمل شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130425
+
+<div align="center">
+  <a href="telegram/content/alonews_130425_1782510330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویری از اغتشاشات در لبنان
+
+
+🔴اغتشاشگران اموال عمومی را آتش زدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130424
+
+<div align="center">
+  <a href="telegram/content/alonews_130424_1782510332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش لبنان به سمت اغتشاشگران در جاده فرودگاه بیروت گاز اشک‌آور پرتاب می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130423
+
+<div align="center">
+  <a href="telegram/content/alonews_130423_1782510333.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار فاکس‌نیوز به‌نقل از مقامات ارشد دفاعی بیان می‌کند حملات هوایی آمریکا همچنان در جریان است که باتوجه به حجم تحرکات هوایی در جنوب کشور ادامه‌دار بودن آن قابل انتظار است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130422
+
+<div align="center">
+  <a href="telegram/content/alonews_130422_1782510333.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سپاه پاسداران: ما مقابله با حمله‌ای که توسط نیروهای آمریکایی به جزیره سیریک انجام شد را اعلام می‌کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130420
+
+<div align="center">
+  <a href="telegram/content/alonews_130420_1782510333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اغتشاش و کودتا هواداران حزب الله در بیروت در پی امضای توافق اولیه میان دولت لبنان و اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130419
+
+<div align="center">
+  <a href="telegram/content/alonews_130419_1782510335.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشات از جابجایی لانچرها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130418
+
+<div align="center">
+  <a href="telegram/content/alonews_130418_1782510336.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم:
+نقض آتش‌بس و تفاهمنامه توسط آمریکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130417
+
+<div align="center">
+  <a href="telegram/content/alonews_130417_1782510336.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرفوری/ حمله به تهران
+⁉️ برخی منابع خبر دادند در صورت گسترش حملات، به تهران نیز حملاتی میشود 
+⭕️ @Akhbr_Fourii
+</div>
+
+## alonews — post 130415
+
+<div align="center">
+  <a href="telegram/content/alonews_130415_1782510337.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز به نقل از منابع آگاه: حملات آمریکا به اهداف ایرانی ادامه دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130413
+
+<div align="center">
+  <a href="telegram/content/alonews_130413_1782510337.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی آمریکا: ایالات متحده در پاسخ به حمله‌ای که یک کشتی تجاری را هدف قرار داده بود، ضرباتی علیه ایران انجام داد.
+
+
+🔴هواپیماهای ما حملاتی را انجام دادند که سایت‌های ذخیره‌سازی موشک و پهپادهای ایرانی و مواضع راداری ساحلی را هدف قرار داده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130412
+
+<div align="center">
+  <a href="telegram/content/alonews_130412_1782510337.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا یک دکل مخابراتی در سیریک مورد حمله قرار گرفته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووری/بریزید اینجا
+⬇️
+
+https://t.me/+1RDlZFB3XPtlNzg0
+https://t.me/+1RDlZFB3XPtlNzg0
+</div>
+
+---
 📅 بروزرسانی: 1405/04/05 23:43
 ---
 
