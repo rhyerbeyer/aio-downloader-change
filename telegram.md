@@ -7,6 +7,1072 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/06 23:43
+---
+
+## VahidOOnLine — post 247620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیروهای امداد اضطراری ارتش اسپانیا، روز شنبه ششم تیر، ویدیویی از نجات یک زن سالمند منتشر کردند که به گفته آن‌ها، نزدیک به ۷۲ ساعت زیر آوار در منطقه لاگوایرا، یکی از آسیب‌دیده‌ترین مناطق زلزله ونزوئلا، گرفتار مانده بود.
+
+این عملیات بخشی از تلاش‌های بین‌المللی برای جست‌وجو و نجات بازماندگان است. مقام‌های ونزوئلا اعلام کرده‌اند تاکنون بیش از هزار و ۶۰۰ نیروی امداد و نجات خارجی برای کمک به عملیات امدادرسانی وارد این کشور شده‌اند.
+
+منطقه لاگوایرا از جمله مناطقی است که بیشترین خسارت را در زمین‌لرزه‌های اخیر متحمل شده و دست‌کم ۱۰۰ ساختمان در آن تخریب شده یا آسیب دیده‌اند. ساکنان این منطقه همچنین از کمبود تجهیزات سنگین برای آواربرداری خبر داده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247619
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247619_1782591181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعضای مجلس خبرگان در بیانیه‌ای اعلام کردند: «بنابر رهنمود واجب‌الاتباع رهبری، حقوق هسته‌ای نباید مورد بحث و مناقشه قرار گیرد و بایستی از دایره گفت‌وگوها خارج شود.»
+
+در این بیانیه تاکیده شده که پس از اطلاع از نظر قطعی ولی‌فقیه، هیچ مسئولی نمی‌تواند و نباید بر خلاف نظر او اقدام کند.
+
+اعضای مجلس خبرگان افزودند: «هرگونه سهل‌انگاری در تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه، قطعا با عکس‌العمل ملت مواجه خواهد شد.»
+
+اعضای مجلس خبرگان اضاقه کردند: «بر اساس شواهد فراوان دشمن به دنبال کسب فرصت برای تجدید قوا و خرید زمان برای برخی برنامه‌های خود از جمله انتخابات آینده است و پس از آن احتمال حمله مجدد بسیار خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247618
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247618_1782591181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اسماعیل بقایی در واکنش به سخنان جورجیا ملونی، نخست‌وزیر ایتالیا، در شبکه اجتماعی ایکس، گفته‌های او مبنی بر مشارکت نداشتن ایتالیا در جنگ علیه ایران را «تناقضی آشکار» و «استدلالی مغلطه‌آمیز» خواند.
+
+ملونی در یک نشست مطبوعاتی مشترک با امانوئل مکرون، ادعای مارک روته، رئیس ناتو، مبنی بر کمک ایتالیا به حملات آمریکا علیه ایران را رد کرده و گفته بود که ایتالیا هرگز در این درگیری مشارکت نداشته و تنها حمایت‌های «فنی و لجستیکی» به ارتش آمریکا ارائه داده است.
+
+بقایی در پاسخ به این اظهارات تاکید کرد که انکار عمومی هرگونه کمک به متجاوزان در کنار اعتراف به ارائه حمایت‌های «فنی و لجستیکی»، تلاشی برای فرار از مسئولیت همدستی در یک عمل متخلفانه بین‌المللی است. او ارائه چنین حمایت‌هایی را مصداق «مشارکت مستقیم در ارتکاب یک جنگ غیرقانونی و نقض جدی حقوق بین‌الملل» دانست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247617
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247617_1782591182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۶۶ نفر از اعضای مجلس خبرگان، در بیانیه‌ای، با اشاره به مذاکرات میان جمهوری اسلامی و آمریکا، اعلام کردند: «رعایت خطوط قرمز رهبری واجب شرعی است و تخطی از آن‌ها به هیچ وجه جایز نیست.»
+
+اعضای مجلس خبرگان، دونالد ترامپ و بنیامین نتانیاهو را «مهدورالدم» خواندند و افزودند: «مجازات آن‌ها و انتقام خون امام شهید به هیچ‌وجه مورد اغماض و بی‌توجهی قرار نگیرد و بر هر مکلفی که به آن‌ها دسترسی پیدا کند، واجب است که آن‌ها را به قتل برساند.»
+
+در بخش دیگری از بیانیه اعضای مجلس خبرگان، با اشاره به‌ عدم خروج نیروهای اسرائیل از جنوب لبنان، تاکید شده: «بازگشایی تنگه هرمز خلاف تعهدات مسئولان است و خطایی راهبردی شمرده می‌شود و دشمن را در ادامه پیمان‌شکنی‌ها و نقض تعهداتش گستاخ‌تر خواهد کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247616
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247616_1782591183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ بنیامین نتانیاهو، روز شنبه ششم تیرماه، در سخنرانی تلویزیونی خود ضمن اشاره به توافق اخیر با لبنان، آن را دستاوردی «بسیار بزرگ» توصیف کرد. او با تاکید بر اینکه اسرائیل در «منطقه امنیتی زرد» باقی می‌ماند و این مسئله ضامن امنیت این کشور است، خاطرنشان کرد که فشارهای مختلف برای خروج اسرائیل از این منطقه به نتیجه نرسیده است.
+
+نخست‌وزیر اسرائیل با قدردانی از نقش دونالد ترامپ، رئیس‌جمهوری آمریکا و مارکو روبیو، وزیر امور خارجه این کشور، در تحقق این توافق، تصریح کرد که اسرائیل نه تنها «محور تروریسم ایرانی»، بلکه «محور سیاسی ایران» را نیز در هم شکسته است. او در این باره افزود: «ما به دلیل ساده‌ای به چارچوب این تفاهمات رسیدیم: چون حزب‌الله را به شدت در هم کوبیدیم و حزب‌الله که منتظر کمک ایران بود، آن را دریافت نکرد».
+
+بر اساس طرح پیشنهادی آمریکا که چارچوب توافق لبنان و اسرائیل بر آن بنا شده، نیروهای اسرائیل به‌صورت مرحله‌ای، کنترل مناطق مختلف را به ارتش لبنان واگذار می‌کنند و ارتش لبنان نیز مسئولیت جلوگیری از ورود اعضای مسلح حزب‌الله به این مناطق را برعهده می‌گیرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247615
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247615_1782591186.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سیارک ۱۹۹۷ ان‌سی۱، روز شنبه ششم تیر، از فاصله‌ای حدود ۲.۶ میلیون کیلومتری زمین، معادل ۶.۶ برابر فاصله زمین تا ماه، عبور کرد.
+
+این سیارک که از برج ایفل بزرگ‌تر است، با سرعتی نزدیک به ۳۲ هزار کیلومتر بر ساعت از صورت فلکی مارافسای گذشت. رصد این جرم آسمانی با چشم غیرمسلح امکان‌پذیر نبود، اما علاقه‌مندان به نجوم توانستند آن را با تلسکوپ‌های کوچک و دوربین‌های دوچشمی نجومی مشاهده کنند.
+
+ناسا این جرم را در رده «سیارک بالقوه خطرناک» قرار داده است، اما این طبقه‌بندی تنها به دلیل اندازه بزرگ و نزدیکی نسبی مدار آن به زمین است و کارشناسان تاکید کرده‌اند این سیارک در گذر اخیر خود هیچ خطری برای زمین نداشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247614
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247614_1782591187.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسکات بسنت، وزیر خزانه‌داری آمریکا، در نشست اقتصادی باشگاه اقتصاددانان نیویورک با اشاره به آنچه «اطلاعات نادرست» درباره ایران خواند، گفت این موضوع از چند عامل نشات می‌گیرد.
+او گفت که جمهوری اسلامی در حوزه تبلیغات بسیار حرفه‌ای عمل می‌کند و همین مسئله باعث شکل‌گیری روایت‌های متفاوت می‌شود.
+بسنت همچنین با اشاره به ساختار حکومت ایران گفت تیم مذاکره‌کننده از بخش دولت می‌آید، اما همزمان باید به جریان‌های تندرو در داخل کشور نیز پاسخگو باشد.
+به گفته او، همان‌طور که در سیستم سیاسی آمریکا جریان‌های تندرو وجود دارند، در ایران نیز این جریان‌ها نقش تأثیرگذاری در تصمیم‌گیری‌ها دارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکر کنم تنگه دعوا شد 🚨🚨🚨🚨 @withyashar
+</div>
+
+## WithYashar — post 15978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار حسن‌زاده: در مصلای تهران بر پیکر رهبر شهید انقلاب نماز اقامه خواهد شد
+@withyashar
+</div>
+
+## WithYashar — post 15977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فکر کنم تنگه دعوا شد 🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 15976
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15976_1782591188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف : اینایی که سوپرانقلابی و تندرون؛ هیچ غلطی برای این انقلاب نکردن. پس حق ندارن حرف بزنن و طلبکار باشن. دهنشونو باز نکنن و سرشون تو کار خودشون باشه. @withyashar عرزشی 🤣
+</div>
+
+## WithYashar — post 15975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف : اینایی که سوپرانقلابی و تندرون؛ هیچ غلطی برای این انقلاب نکردن. پس حق ندارن حرف بزنن و طلبکار باشن. دهنشونو باز نکنن و سرشون تو کار خودشون باشه.
+@withyashar عرزشی 🤣
+</div>
+
+## WithYashar — post 15974
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : کیفر خواست رضا پهلوی و چندتا از عوامل منوتو و اینترنشنال صادر شده به جرم دست داشتن در اتفاقات دی ماه و باید برن دادگاه
+@withyashar
+</div>
+
+## WithYashar — post 15973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس: قیمت نفت الان به ۷۳ دلار در هر بشکه بازگشته، در حالی که تا ۱۲۶ دلار رسیده بود؛ این نشانه‌ای است که یک اتفاق واقعی دارد می‌افتد
+@withyashar
+</div>
+
+## WithYashar — post 15972
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15972_1782591190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر کانال صعودی بشکند، در پولبک، ما میتوانیم قهرمان شویم.
+@withyashar 😂
+</div>
+
+## mwarmonitor — post 11601
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11601_1782591192.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨زمین‌لرزه‌ای به بزرگی ۵.۵ ریشتر سواحل آراگوا در ونزوئلا را لرزاند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📂انتقاد پیشنهاد دارید دایرکت بفرمایید خوشحال میشم بشنوم 
+👥
+</div>
+
+## FoxNewsTwitter — post 343506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🐶EXTRAORDINARY RESCUE: While responding to a collapsed home in Venezuela after two deadly earthquakes struck, firefighters heard a bark, prompting them to start searching for a dog trapped beneath the rubble. Video shows the Caracas Fire Department finding the pup and giving it water before pulling it out of the debris. @foxweather
+</div>
+
+## FoxNewsTwitter — post 343505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The wheel everyone's talking about. 🎡🇺🇸
+
+One of the biggest attractions at the Great American State Fair is making history as the first-ever Ferris wheel on the National Mall.
+
+Standing 110 feet tall, Talley Amusements' signature ride gives fairgoers panoramic views of the U.S. Capitol, the Washington Monument, and the sprawling National Mall from above for free.
+</div>
+
+## pm_afshaa — post 94929
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94929_1782591193.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔞
+🔞فیلم س ک س لایو همسر سوم سردار آبرومند
+مهتاب ج ن د ه حکومتی که چندی پیش نیز به جوانان انقلاب ملی ایران توهین کرد.
+
+مشاهده فیلم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: یه عده هیچ غلطی برای این انقلاب نکردن فاز سوپر انقلابی برداشتن هی از ما ایراد میگیرنو طلبکارن شما که هیچ غلطی نکردید دهنتونو ببندید ایراد نگیرید 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94927
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94927_1782591193.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: یه عده هیچ غلطی برای این انقلاب نکردن فاز سوپر انقلابی برداشتن هی از ما ایراد میگیرنو طلبکارن شما که هیچ غلطی نکردید دهنتونو ببندید ایراد نگیرید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی:زمانی که شرایط عینی برای تلفات حداقلی فراهم شود فراخوان خواهم داد.
+‏توازن قوا باید به سمت مردم باشد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 6019
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6019_1782591196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+شنبه ۶ تیر ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## VahidOnline — post 76713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران بیانیه‌ای با امضای جمعی از اعضای مجلس خبرگان را منتشر کردند که در آن می‌گویند بازگشایی تنگه هرمز «خلاف تعهدات مسئولان است و خطایی راهبردی شمرده می‌شود».
+
+بر اساس این بیانیه که خبرگزاری‌های تسنیم و فارس، نزدیک به سپاه، آن را منتشر کرده‌اند، ۶۳ نفر از اعضای مجلس خبرگان تداوم حملات اسرائیل در لبنان و «عدم عقب‌نشینی»‌ ارتش این کشور از مناطق جنوبی لبنان را «نقض آشکار» تفاهم‌نامه ایران و آمریکا خوانده و نوشته‌اند بر این اساس بازگشایی تنگه هرمز «خلاف تعهد مسئولان است».
+
+در بخش دیگری از این بیانیه نیز آمده است «بر هر ملکفی» که به دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «دسترسی پیدا کند، واجب است آن‌ها را به درک واصل کند».
+
+این گروه از اعضای مجلس خبرگان همچنین «تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه» را از مطالبات رهبر جمهوری اسلامی برشمرده و هشدار داده‌اند که «هرگونه سهل انگاری در این زمینه» با واکنش مواجه خواهد شد.
+
+این بیانیه در حالی منتشر می‌شود که اختلاف‌ها در درون طیف‌های سیاسی طرفدار حکومت بر سر تفاهم‌نامه در روزهای اخیر بالا گرفته تا جایی که روز شنبه، نمایندهٔ رهبر جمهوری اسلامی در سپاه، از منتقدان این توافق خواست با «ایجاد اختلاف و لغزش» باعث «سوءاستفادهٔ دشمن» نشوند.
+تفاهم‌نامه ایران و آمریکا به‌گفتهٔ مسعود پزشکیان، رئیس‌جمور ایران، با رأی «بیش از ۹۰ درصد» اعضای شورای عالی امنیت ملی کشور شامل شماری از فرماندهان ارشد سپاه پاسداران تأیید و تصویب شده و مذاکرات برای اجرای آن آغاز شده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76712
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76712_1782591198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر اسرائیل در سخنرانی تلویزیونی خود ضمن اشاره به توافق اخیر با لبنان، آن را دستاوردی «بسیار بزرگ» توصیف کرد.
+
+بنیامین نتانیاهو با تاکید بر اینکه اسرائیل در «منطقه امنیتی زرد» باقی می‌ماند و این مسئله ضامن امنیت این کشور است، خاطرنشان کرد که فشارهای مختلف برای خروج اسرائیل از این منطقه به نتیجه نرسیده است.
+
+او با قدردانی از نقش دونالد ترامپ، رئیس‌جمهوری آمریکا و مارکو روبیو، وزیر امور خارجه این کشور، در تحقق این توافق، تصریح کرد که اسرائیل نه تنها "محور تروریسم ایرانی"، بلکه "محور سیاسی ایران" را نیز در هم شکسته است و افزود: «ما به دلیل ساده‌ای به چارچوب این تفاهمات رسیدیم: چون حزب‌الله را به شدت در هم کوبیدیم و حزب‌الله که منتظر کمک ایران بود، آن را دریافت نکرد».
+
+بر اساس طرح پیشنهادی آمریکا که چارچوب توافق لبنان و اسرائیل بر آن بنا شده، نیروهای اسرائیل به‌صورت مرحله‌ای، کنترل مناطق مختلف را به ارتش لبنان واگذار می‌کنند و ارتش لبنان نیز مسئولیت جلوگیری از ورود اعضای مسلح حزب‌الله به این مناطق را برعهده می‌گیرد.
+
+خواسته اولیه لبنان، خروج کامل نیروهای اسرائیل از مناطق جنوبی این کشور بود.
+حزب‌الله لبنان، این توافق را «تحقیرآمیز» توصیف کرده و آن را فاقد اعتبار دانسته است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88210
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88210_1782591199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سعید لیلاز: آمریکا در بهمن ماه مجدداً به ایران حمله می‌کند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سردار حسن‌زاده:
+روزهای ۱۳-۱۴-۱۵ تیر تعطیل رسمی در تهران است
+
+مسیر اصلی مراسم تشییع در تهران،
+خیابان دماوند-خیابان انقلاب-خیابان آزادی-اتوبان شهید لشگری-اتوبان آزادگان است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88208
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88208_1782591202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیلم منتشر شده از لحظه کشته شدن چندین نیروی نظامی در بانه-شب گذشته
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 344678
+
+
+
+
+## IranIntlTV — post 344677
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344677_1782591203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعضای مجلس خبرگان در بیانیه‌ای اعلام کردند: «بنابر رهنمود واجب‌الاتباع رهبری، حقوق هسته‌ای نباید مورد بحث و مناقشه قرار گیرد و بایستی از دایره گفت‌وگوها خارج شود.»
+
+در این بیانیه تاکیده شده که پس از اطلاع از نظر قطعی ولی‌فقیه، هیچ مسئولی نمی‌تواند و نباید بر خلاف نظر او اقدام کند.
+
+اعضای مجلس خبرگان افزودند: «هرگونه سهل‌انگاری در تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه، قطعا با عکس‌العمل ملت مواجه خواهد شد.»
+
+اعضای مجلس خبرگان اضاقه کردند: «بر اساس شواهد فراوان دشمن به دنبال کسب فرصت برای تجدید قوا و خرید زمان برای برخی برنامه‌های خود از جمله انتخابات آینده است و پس از آن احتمال حمله مجدد بسیار خواهد بود.»
+https://iranintl.com/202606278471
+</div>
+
+## IranIntlTV — post 344676
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344676_1782591204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال ایران پس از سه تساوی در مرحله گروهی و کسب سه امتیاز، در حال حاضر در رده ششم جدول بهترین تیم‌های سوم قرار دارد و همچنان شانس بالایی برای صعود به مرحله یک‌شانزدهم نهایی دارد.
+
+🔹شاگردان امیر قلعه‌نویی اکنون باید منتظر نتایج سایر دیدارهای مرحله گروهی باشند تا تکلیف صعودشان مشخص شود. سرنوشت ایران به نتایج سه مسابقه دیگر گره خورده و در صورت رقم خوردن هر یک از این سناریوها، تیم ملی راهی مرحله حذفی خواهد شد.
+
+🔹نخستین سناریو به گروه L مربوط می‌شود؛ جایی که کرواسی سه امتیازی به مصاف غنا می‌رود. اگر کرواسی این دیدار را واگذار کند و امتیازی نگیرد، ایران صعود خواهد کرد.
+
+🔹سناریوی دوم در گروه K رقم می‌خورد. کنگو که اکنون یک امتیاز دارد، در آخرین مسابقه خود مقابل ازبکستان قرار می‌گیرد. اگر کنگو نتواند این بازی را ببرد و چهار امتیازی نشود، ایران به مرحله بعد صعود می‌کند.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344673
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344673_1782591205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۶۶ نفر از اعضای مجلس خبرگان، در بیانیه‌ای، با اشاره به مذاکرات میان جمهوری اسلامی و آمریکا، اعلام کردند: «رعایت خطوط قرمز رهبری واجب شرعی است و تخطی از آن‌ها به هیچ وجه جایز نیست.»
+
+اعضای مجلس خبرگان، دونالد ترامپ و بنیامین نتانیاهو را «مهدورالدم» خواندند و افزودند: «مجازات آن‌ها و انتقام خون امام شهید به هیچ‌وجه مورد اغماض و بی‌توجهی قرار نگیرد و بر هر مکلفی که به آن‌ها دسترسی پیدا کند، واجب است که آن‌ها را به قتل برساند.»
+
+در بخش دیگری از بیانیه اعضای مجلس خبرگان، با اشاره به‌ عدم خروج نیروهای اسرائیل از جنوب لبنان، تاکید شده: «بازگشایی تنگه هرمز خلاف تعهدات مسئولان است و خطایی راهبردی شمرده می‌شود و دشمن را در ادامه پیمان‌شکنی‌ها و نقض تعهداتش گستاخ‌تر خواهد کرد.»
+https://iranintl.com/202606272358
+</div>
+
+## IranIntlTV — post 344672
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344672_1782591206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرش آرامش، حقوقدان و کارشناس امنیت ملی، گفت: «الان وضعیت دقیقا معکوس راهبردی است که علی خامنه‌ای سال‌ها بر آن تاکید می‌کرد؛ راهبردی که با شعار "نه جنگ، نه مذاکره" شناخته می‌شد. حالا سپاه پاسداران که امروز در راس قدرت قرار دارد، هم با ترامپ مذاکره می‌کند، هم از او امتیاز و پول می‌خواهد و هم هم‌زمان جنگ می‌کند. یعنی شده "هم جنگ، هم مذاکره".»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344671
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344671" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: درگیری مجدد آمریکا و سپاه در هرمز؛ آیا جنگ واقعا خاتمه یافته؟!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344670
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344670_1782591209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان امنیت دریایی بریتانیا اعلام کرد یک نفت‌کش در تنگه هرمز بر اثر اصابت پرتابه آسیب دیده و به اتاق فرمان آن خسارت وارد شده است.
+
+جزییات بیشتر در گفت‌وگو با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 344669
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344669_1782591211.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درگیری مجدد آمریکا و سپاه در هرمز؛ آیا جنگ واقعا خاتمه یافته؟!
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/F6WbP2pAR7w
+@iranintltv
+</div>
+
+## FarsiVOA — post 222049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو: توافق اسرائیل و لبنان «دستاوردی تاریخی» و ضربه‌ای به جمهوری اسلامی و حزب‌الله است
+
+▪️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، شامگاه شنبه ششم تیر ۱۴۰۵، توافق میان اسرائیل و لبنان را «دستاوردی تاریخی» برای کشورش و «ضربه‌ای بزرگ» به جمهوری اسلامی و حزب‌الله لبنان توصیف کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/netanyahu-lebanon-deal-weakens-hezbollah/8165505.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126578
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126578_1782591213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶محسن رضایی: پاسخ ایران به نقض هر بند تفاهم‌نامه، سریع و قاطع خواهد بود
+
+محسن رضایی، عضومجمع تشخیص مصلحت نظام، در واکنش به آنچه نقض مفاد یادداشت تفاهم از سوی آمریکا خواند، اعلام کرد پاسخ جمهوری اسلامی به نقض هر یک از بندهای این تفاهم‌نامه "سریع و قاطع" خواهد بود. او در پیامی در شبکه ایکس نوشت آمریکا با حمایت از اقدامات نیروهای نیابتی خود در منطقه و نیز با ادامه تنش‌آفرینی در تنگه هرمز، دو بند از این تفاهم‌نامه را نقض کرده است.
+
+رضایی گفت آمریکا با حمایت از اقدامات "نیروهای نیابتی" خود در منطقه، بند نخست یادداشت تفاهم را نقض کرده است.
+
+او همچنین افزود ادامه ایجاد تنش در تنگه هرمز از سوی آمریکا، به معنای نقض بند پنجم این تفاهم‌نامه است.
+
+بر اساس متن ارسالی، به نظر می‌رسد رضایی در بخش نخست سخنان خود به حملات اسرائیل در لبنان علیه حزب‌الله اشاره داشته است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 18201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/OpvuBWkgNV4?feature=share
+</div>
+
+## Persian_Trend_Official — post 18200
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18200_1782591214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس خبرگان خط قرمزهای مذاکره با آمریکا را اعلام کرد؛ تأکید بر عدم بازگشایی تنگه هرمز تا اجرای تعهدات مجلس خبرگان رهبری در بیانیهای، خطوط قرمز و الزامات راهبردی مذاکرات با آمریکا را در ۱۰ بند اعلام کرد. بر اساس این بیانیه، مذاکرهکنندگان موظف به پایبندی کامل…
+</div>
+
+## Persian_Trend_Official — post 18199
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_18199_1782591214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس خبرگان خط قرمزهای مذاکره با آمریکا را اعلام کرد؛ تأکید بر عدم بازگشایی تنگه هرمز تا اجرای تعهدات
+
+مجلس خبرگان رهبری در بیانیهای، خطوط قرمز و الزامات راهبردی مذاکرات با آمریکا را در ۱۰ بند اعلام کرد. بر اساس این بیانیه، مذاکرهکنندگان موظف به پایبندی کامل به خطوط قرمز رهبری و پرهیز از تکرار تجربههای ناموفق گذشته هستند.
+
+در این بیانیه که لحنی صریح و قاطع دارد، بر موارد زیر تأکید شده است:
+
+· پیگیری تعیین متجاوز، مجازات عاملان جنگ و انتقام از مسئولان آن؛ با تأکید بر عدم اغماض در این موضوع
+· پاسخ به نقض تعهدات طرف مقابل و مخالفت قاطع با بازگشایی تنگه هرمز تا زمان اجرای کامل تعهدات از سوی آمریکا
+· خارج بودن حقوق هستهای ایران از موضوع مذاکره و ممنوعیت هرگونه بحث درباره آن
+· تحقق مطالبات اصلی شامل تثبیت مدیریت تنگه هرمز، دریافت غرامت، آزادسازی داراییهای بلوکهشده، رفع تحریمها و خروج آمریکا از منطقه
+· پرهیز مسئولان از اظهاراتی که موجب برداشت ضعف یا گستاخی دشمن شود
+· تأکید بر ولایتپذیری و فصلالخطاب بودن نظر رهبر انقلاب برای همه مسئولان
+· تعیین تکلیف تفاهمنامه در مهلتهای مقرر و جلوگیری از فرسایشی شدن مذاکرات
+· دعوت مردم به حفظ وحدت، حضور در صحنه و بیاعتنایی به سخنان تفرقهافکنانه
+· اعلام حمایت مجلس خبرگان از رهبری و ملت و تأکید بر پیگیری تحقق شروط و عمل به تکلیف در صورت لزوم
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18198
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18198_1782591215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله هوایی اسرائیل به مرکز نوار غزه؛ دهها کشته و زخمی در تازه‌ترین نقض آتش‌بس
+
+لحظاتی پیش نیروی هوایی ارتش اسرائیل اردوگاه النصیرات در منطقه دیر‌ البلح واقع در مرکز نوار غزه را هدف حمله قرار داد.
+
+. منابع محلی از دهها کشته و زخمی در این حمله خبر داده‌اند، در حالی که خبرگزاری‌ها از نقض گسترده آتش‌بس توسط ارتش اسرائیل در روزهای اخیر حکایت دارند .
+
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18197
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18197_1782591217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با منطق عرزشی ها !
+
+چون جمهوری اسلامی میخواسته ناو رو به قعر دریا بفرسته و نتونسته پس شکست خورده ! 😄
+</div>
+
+## Persian_Trend_Official — post 18196
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18196_1782591218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در لایو امشب در مورد چی صحبت کنیم ؟
+</div>
+
+## Persian_Trend_Official — post 18195
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18195_1782591218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های ایران بیانیه‌ای با امضای جمعی از اعضای مجلس خبرگان را منتشر کردند که در آن می‌گویند بازگشایی تنگه هرمز «خلاف تعهدات مسئولان است و خطایی راهبردی شمرده می‌شود». 🔸بر اساس این بیانیه که خبرگزاری‌های تسنیم و فارس، نزدیک به سپاه، آن را منتشر کرده‌اند،…
+</div>
+
+## RadioFarda — post 158838
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158838_1782591219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های ایران بیانیه‌ای با امضای جمعی از اعضای مجلس خبرگان را منتشر کردند که در آن می‌گویند بازگشایی تنگه هرمز «خلاف تعهدات مسئولان است و خطایی راهبردی شمرده می‌شود».
+
+🔸بر اساس این بیانیه که خبرگزاری‌های تسنیم و فارس، نزدیک به سپاه، آن را منتشر کرده‌اند، ۶۳ نفر از اعضای مجلس خبرگان تداوم حملات اسرائیل در لبنان و «عدم عقب‌نشینی»‌ ارتش این کشور از مناطق جنوبی لبنان را «نقض آشکار» تفاهم‌نامه ایران و آمریکا خوانده و نوشته‌اند بر این اساس بازگشایی تنگه هرمز «خلاف تعهد مسئولان است».
+
+🔸در بخش دیگری از این بیانیه نیز آمده است «بر هر ملکفی» که به دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «دسترسی پیدا کند، واجب است آن‌ها را به درک واصل کند».
+
+🔸این گروه از اعضای مجلس خبرگان همچنین «تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه» را از مطالبات رهبر جمهوری اسلامی برشمرده و هشدار داده‌اند که «هرگونه سهل انگاری در این زمینه» با واکنش مواجه خواهد شد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو توافق اسرائیل با لبنان را «تاریخی و ضربه‌ای به ایران و حزب‌الله» خواند
+
+🔸بنیامین نتانیاهو، نخست‌وزیر اسرائیل، توافق اصولی کشورش با لبنان با میانجی‌گری آمریکا را «دستاوردی تاریخی» برای اسرائیل و «ضربه‌ای به ایران و حزب‌الله» توصیف کرد.
+
+🔸هم‌زمان، یسرائیل کاتس، وزیر دفاع این کشور، هشدار داد که اگر جمهوری اسلامی برای جلوگیری از اجرای این توافق به اسرائیل حمله کند، این کشور با «قدرتی عظیم» پاسخ خواهد داد.
+
+🔸نتانیاهو روز شنبه ششم تیر در یک نشست خبری تلویزیونی گفت: «دیروز، پس از مذاکرات مستقیم میان اسرائیل و لبنان، به توافقی تاریخی برای کشور اسرائیل دست یافتیم. این توافق ضربه‌ای به ایران و حزب‌الله است.»
+
+🔸او بار دیگر تأکید کرد که نیروهای اسرائیلی در «منطقهٔ امنیتی» ایجادشده در داخل خاک لبنان باقی خواهند ماند و گفت این حضور تا زمانی ادامه خواهد داشت که حزب‌الله و دیگر گروه‌های مسلح خلع‌سلاح شوند.
+
+🔸نتانیاهو همچنین گفت که ایالات متحده و لبنان حق اسرائیل برای حفظ این منطقهٔ امنیتی را تا زمانی که برای تأمین امنیت این کشور لازم باشد، به رسمیت شناخته‌اند.
+
+🔸یسرائیل کاتس نیز در یک پیام ویدئویی گفت: «اگر ایران تلاش کند برای جلوگیری از اجرای این توافق به اسرائیل حمله کند، ما با قدرتی عظیم علیه آن اقدام خواهیم کرد.»
+
+🔸او نیز همچون نتانیاهو مدعی شد توافق با لبنان «ضربه‌ای راهبردی به محور ایران» وارد کرده است.
+
+🔸این اظهارات یک روز پس از امضای یک توافق اصولی سه‌جانبه میان لبنان، اسرائیل و ایالات متحده مطرح می‌شود که با میانجی‌گری واشینگتن و با هدف هموار کردن مسیر دستیابی به توافق صلح میان دو کشور امضا شده است.
+
+🔸جزئیات کامل این توافق هنوز منتشر نشده، اما حاصل پنج دور مذاکره در واشینگتن با هدف پایان دادن به درگیری‌های اسرائیل و حزب‌الله در جنوب لبنان است.
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23414
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23414_1782591219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 23413
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23413_1782591220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چی بود دیگه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23412
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23412_1782591221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف:
+
+اینایی که خودشونو انقلابی می‌دونند، خودشون‌ هیچ‌کاری برای انقلاب نکردند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دادستان تهران:
+
+کیفرخواست برای رضا پهلوی به جرم رهبری اعتراضات دی ماه صادر شده و به زودی در دادگاه به پروندش رسیدگی میشه.
+
+مثلا چیکار میخواید بکنید ؟
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 285223
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_285223_1782591223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین اخبار مهم شنبه ۶ تیر ۱۴۰۵
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393277
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393277_1782591226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+البته شما معلومه جيره خور رانت خوار كشوريد،با افتخار حق ملتو بخورين جى كلاس سوار بشين بعد به ريش مردم بخندين.
+اخرشم بگین ما نوکر این عمام و اون عمامیم🤢
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393276
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393276_1782591227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بربنید؛ پسره یه دخترو فالو کرده، و اما واکنش دوس دخترش:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393275
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393275_1782591228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناپولی-بایرن. مارادونا رو چمن. گفتن فقط گرم‌کردنه. اما یهو «Live Is Life» می‌پیچه. دیگو می‌رقصه. پا به توپ. چشم بسته. با کنترلِ محض. مغرور. با لبخندِ ناب.
+تماشاگرا شوکه شدند که یه ابراسطوره چنین رقصِ قدرت کرد و فریاد زد: من اینجام. فوتبال یعنی این💙
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393274
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393274_1782591230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳حرکت بشدت تاثیرگذار برای شکم حتما انجام بده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393273
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393273_1782591233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توییت یه عرزشی: گل ایران کاملا درست بود، ولی پهلوی به داورا پول داده بود تا گل مردود اعلام بشه و جلوی شادی مردم ایران رو بگیره😐😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393272
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393272_1782591233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رپ خوندن این پسر ایرانی در حال وایرال شدنه و واقعا شاهکاره🔥
+
+استعداد: 10/10
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادستانی تهران از صدور کیفرخواست برای شماری از فعالان سیاسی و رسانه ای ساکن خارج کشور خبر داد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– دادستانی تهران، در خبری کوتاه که توسط رسانه‌های نزدیک به نهادهای امنیتی منتشر شده، از صدور کیفرخواست برای شاهزاده رضا پهلوی، آخرین ولیعهد ایران و تعدادی از عوامل شبکه‌های ایران اینترنشنال و من‌وتو به اتهام زمینه‌سازی برای اعتراضات روزهای ۱۸ و ۱۹ دی‌ماه ۱۴۰۴، خبر داد.
+
+ادامه مطلب
+
+#صدور_کیفرخواست #رضا_پهلوی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردی با اجرای قسامه در پرونده قتل تبرئه شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– دادگاه کیفری تهران یک پرونده قتل را «لوث» تشخیص و حکم به اجرای قسامه داد. در پی ناتوانی اولیای دم در اجرای #قسامه، متهم ۵۰ بار بر بی‌گناهی خود سوگند یاد کرد و از اتهام #قتل مادرش تبرئه شد. قسامه یکی از ضعیف‌ترین راه‌های اثبات قتل، جراحات و صدمات بر اعضاء بدن است که با وجود لوث (عبارت از ظن قاضی به راستگویی مدعی است) قابل اجرا است.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 130590
+
+<div align="center">
+  <a href="telegram/content/alonews_130590_1782591234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان: فقط یک نفر از بین ۱۳ عضو شورای عالی امنیت، نظر رهبری را بدرستی تشخیص داد و آن فرد، جلیلی بود
+
+
+🔴افرادی که ادعا میکنند ولایی هستند فرمون رو برگردونن نسبت به این تفاهم.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130589
+
+<div align="center">
+  <img src="telegram/content/alonews_130589_1782591236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎁تا 3 گرم طلای واقعی رایگان فقط با ثبت‌نام
+
+
+🎁 هدیه ویژه برای کاربران جدید
+
+
+🔹 فقط کافیه:
+
+✔️ کد ملی
+
+✔️ شماره تلفن همراه
+رو وارد کنی و هدیه‌تو بگیری ✨
+
+
+🚫خیلی مهم:
+این هدیه محدوده و فقط به هزار نفر اول که ثبت‌نام کنن تعلق می‌گیره.
+
+👇👇 لینک شرکت در جشنواره دریافت طلا:
+
+🕛 MELIGOLD
+
+🕛 MELIGOLD
+
+کاملا مورد تایید
+✔️
+</div>
+
+## alonews — post 130588
+
+<div align="center">
+  <a href="telegram/content/alonews_130588_1782591236.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جان سینا : ظرف روزهای آینده برای امضای یک قرارداد اسپانسرینگ مهم با همسرم به ایران و شهر زیبای شیراز سفر می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130587
+
+<div align="center">
+  <a href="telegram/content/alonews_130587_1782591237.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونزوئلا دوباره زلزله ۵.۶ ریشتری اومد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130586
+
+<div align="center">
+  <a href="telegram/content/alonews_130586_1782591237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلم منتشر شده از لحظه حمله به چندین نیروی نظامی در بانه-شب گذشته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130585
+
+<div align="center">
+  <a href="telegram/content/alonews_130585_1782591238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله مجدد تندروها به جمهوری اسلامی
+
+
+🔴چرا روز تشییع آقا با روز استقلال آمریکا تو یک روز هست؟
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130584
+
+<div align="center">
+  <a href="telegram/content/alonews_130584_1782591241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرمانده سپاه تهران: برای مراسم تشییع رهبر سابق در تهران حضور حداقل بین ۱۲ تا ۱۵ میلیون نفر برآورده شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130583
+
+<div align="center">
+  <img src="telegram/content/alonews_130583_1782591241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو هر کشور باید چند روز کار کنی تا بتونی GTA6 بخری:
+
+[@AloTweet]
+</div>
+
+## alonews — post 130582
+
+<div align="center">
+  <a href="telegram/content/alonews_130582_1782591242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف به سیم آخر زد!
+
+
+🔴یه عده که اسمشونو گذاشتن انقلابی و سوپرانقلابی هیچ غلطی برای این انقلاب نکردن ولی طلبکار از همه هم هستن..
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130581
+
+<div align="center">
+  <a href="telegram/content/alonews_130581_1782591244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بنیامین نتانیاهو: ما وعده دادیم که غزه دیگر تهدیدی برای اسرائیل نخواهد بود.
+
+
+🔴حماس هنوز برخی از توانایی‌های غیرنظامی را در اختیار دارد.
+
+
+🔴ما هنوز کارهایی برای انجام داریم، اما این یک دستاورد بزرگ است. مقایسه وضعیت ما در ۷ اکتبر با وضعیت امروز غیرممکن است.
+
+
+🔴چه کسی اهمیت می‌دهد؟ چه یک گورستان سیاسی باشد یا نباشد، هر کاری که برای اطمینان از امنیت و پیروزی دولت اسرائیل لازم باشد، انجام خواهم داد.
+
+
+🔴اگر نیاز باشد وارد لبنان شویم، وارد لبنان می‌شویم. اگر نیاز باشد با نیرویی غوغا در آنجا عملیات انجام دهیم، این کار را انجام خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130580
+
+<div align="center">
+  <a href="telegram/content/alonews_130580_1782591244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سعید لیلاز: آمریکا در بهمن ماه مجدداً به ایران حمله می‌کند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130579
+
+<div align="center">
+  <a href="telegram/content/alonews_130579_1782591246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 لغو مذاکرات فنی در پی حمله آمریکا به سیریک؟
+
+
+🔴 تیم مذاکره کننده ایران در پی حمله بامداد آمریکا به سیریک درباره بررسی لغو مذاکرات فنی در حال مشورت هستند. یک منبع مطلع در این باره به جماران گفت: مذاکره کنندگان معتقدند نقض صریح ماده یک آتش بس باید واکنشی در سطح توقف مذاکره داشته باشد.
+
+
+🔴به گفته این منبع، تیم مذاکره کننده ایران همچنان در حال مشورت در این مورد هستند و رایزنی های خود را ادامه می دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130578
+
+<div align="center">
+  <a href="telegram/content/alonews_130578_1782591247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: قیمت نفت الان به ۷۳ دلار در هر بشکه بازگشته، در حالی که تا ۱۲۶ دلار رسیده بود؛ این نشانه‌ای است که یک اتفاق واقعی دارد می‌افتد
+
+
+🔴آتش‌بس وقتی با ایرانی‌ها طرفی، همیشه کمی آشفته خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130577
+
+<div align="center">
+  <a href="telegram/content/alonews_130577_1782591247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش اعتراضات و بستن یک جاده با لاستیک‌ های آتش‌ زده در مسیر بین شهرک ریاق و شهر بعلبک در منطقه بقاع لبنان توسط طرفداران حزب‌الله
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130575
+
+<div align="center">
+  <a href="telegram/content/alonews_130575_1782591247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خزانه‌داری آمریکا: ایرانی‌ها استادان تبلیغات هستند
+
+
+🔴تیم مذاکره‌کننده از دولت است و آن‌ها برای مخاطبان سخت‌گیر در تهران بازی می‌کنند.
+
+
+🔴 دقیقاً همانطور که در سیستم ما سخت‌ گیرانی وجود دارند، در آن‌ها نیز سخت‌گیرانی هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130574
+
+<div align="center">
+  <a href="telegram/content/alonews_130574_1782591250.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بنیامین نتانیاهو: از همان ابتدا گفتیم که ما طرف توافق بین ایالات متحده و ایران نیستیم.
+
+
+🔴اما این به معنای نداشتن منافع نیست. ما منافع خود را داریم و آن‌ها را اعلام خواهیم کرد.
+
+
+🔴این در مورد مسئله مرکزی—مسئله هسته‌ای—نیز صادق است. قصد دارم هیأتی به واشنگتن بفرستم تا منافع اسرائیل را توضیح دهم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/06 22:24
 ---
 
