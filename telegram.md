@@ -7,6 +7,877 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/07 01:03
+---
+
+## VahidOOnLine — post 247629
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247629_1782595999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صداوسیما، در نخستین ساعت بامداد یکشنبه، هفتم تیرماه، از شنیده شدن صدای «چند انفجار» در محدوده روستای طاهرویی سیریک خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247628
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247628_1782596000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صدا و سیما، بامداد یکشنبه از شنیده‌شدن صدای چند انفجار در شهرستان سیریک خبر داد.
+تاکنون دلیل این انفجارها اعلام نشده است.
+شامگاه جمعه نیز انفجارهایی در محدوده شهرستان سیریک رخ داد و سنتکام اعلام کرد نیروهای آمریکایی، در پاسخ به حمله جمهوری اسلامی به کشتی‌ها در تنگه هرمز، به اهدافی در جنوب ایران حمله کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247627
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247627_1782596001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رجبی‌مشهدی، معاون وزیر نیرو، بامداد یکشنبه، هفتم تیرماه، از رفع ۶ ساعته خاموشی‌های شرق تهران خبر داد. به گزارش فارس، برق مناطقی از تهران، از جمله بخش شرقی به‌دلیل «ایراد فنی» در یکی از پست‌ها، از ساعت ۱۹ شنبه قطع شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247626
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«شیر تعزیه» یکی از شناخته‌شده‌ترین نمادهای آیین‌های عاشورایی در ایران است؛ شخصیتی که سال‌ها در تعزیه‌ها و دسته‌های عزاداری حضور داشته و در برخی روایت‌های مردمی به شیر حاضر در صحرای کربلا نسبت داده می‌شود.
+با این حال، در سال‌های اخیر ویدیوهای مربوط به اجرای این سنت، از لباس‌ها و ماسک‌های شیر گرفته تا صحنه‌هایی مانند آرایش و شانه‌کردن «شیرها»، بارها در شبکه‌های اجتماعی دست‌به‌دست شده است.
+امسال نیز انتشار ویدیوهایی از «شیر تعزیه» بار دیگر موجی از واکنش‌ها، شوخی‌ها و طنز کاربران در شبکه‌های اجتماعی را به همراه داشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247625
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247625_1782596002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریاست‌جمهوری لبنان اعلام کرد جوزف عون در تماس تلفنی با دونالد ترامپ، تاکید کرده لبنان مسئولیت اجرای توافق چارچوبی با اسرائیل را بر عهده خواهد گرفت.
+بنا بر این گزارش، عون از آمریکا خواسته برای جلوگیری از نقض توافق کمک کند و بر اسرائیل برای خروج از مناطق جنوبی لبنان فشار وارد کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247624
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247624_1782596003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جمعی از اعضای مجلس خبرگان رهبری روز شنبه، ششم تیرماه، با انتشار بیانیه‌ای خواستار خارج شدن «حقوق هسته‌ای» از مذاکرات با آمریکا، براساس نظر مجتبی خامنه‌ای شدند. در بخشی از این بیانیه آمده است: «بنابر رهنمود واجب‌الاتباع رهبر، حقوق هسته‌ای نباید مورد بحث و مناقشه قرار گیرد و بایستی از دایره گفت‌وگوها خارج شود». در این بیانیه تاکیده شده است:‌ «پس از اطلاع از نظر قطعی ولی‌فقیه هیچ مسئولی نمی‌تواند و نباید بر خلاف نظر ایشان اقدام نماید.» اعضای مجلس خبرگان افزودند: «هرگونه سهل‌انگاری در تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه، قطعا با عکس‌العمل ملت مواجه خواهد شد.» اعضای مجلس خبرگان در ادامه گفتند: «تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه از مطالبات تخلف ناپذیر رهبری است و هرگونه سهل‌انگاری در این زمینه قطعا با عکس‌العمل ملت مواجه خواهد شد.» آنها در پایان نوشتند: «بر اساس شواهد فراوان، دشمن به دنبال کسب فرصت برای تجدید قوا و خرید زمان برای برخی برنامه‌های خود از جمله انتخابات آینده است و پس از آن احتمال حمله مجدد بسیار خواهد بود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247623
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247623_1782596004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس شورای اسلامی، روز شنبه، ششم تیرماه، با انتشار پیامی در اکس نوشت که برخی اصرار دارند صحن مجلس بازگشایی نشود. او نوشت: «قرار بود که این هفته صحن مجلس بازگشایی شود اما باز هم گویا برخی اصرار دارند که یک رکن مهم حکمرانی به وظیفه اصلی خود یعنی قانونگذاری عمل نکند، متاسفم. عاملان و بانیان پاسخگو باشند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247622
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247622_1782596005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش ایرنا، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، قرار است روز یکشنبه، هفتم تیرماه، به عراق سفر کند. اسماعیل بقایی، سخنگوی وزارت امور خارجه، ضمن اعلام این خبر گفت عراقچی در این سفر درباره تحولات منطقه‌ای و بین‌المللی و نیز مناسبات دوجانبه با مقام‌های ارشد عراق رایزنی خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247621
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مطیع‌الله صافی، یکی از شهروندان افغانستان، در «بند امیر»، پارک ملی افغانستان در ولایت/استان بامیان، غواصی کرد و ویدیوی بخشی از این غواصی را در شبکه‌های اجتماعی منتشر کرد.
+
+او گفت با اینکه تا عمق بیش از هشت متری فرورفته اما به دلیل شفافیت بسیار بالای آب، عمق آن کمتر از میزان واقعی به نظر می‌رسد؛ این در حالی است که تخمین زده می‌شود عمق آب در برخی نقاط بیش از ۶۰ متر است.
+
+مطیع‌الله صافی تاکید کرد که با تجهیزات ابتدایی غواصی که در اختیار داشته، پایین رفتن تا عمق هشت متری خطرناک بوده است. به همین دلیل، او از ادامه غواصی در عمق بیشتر خودداری کرده است.
+
+«بند امیر» یکی از مشهورترین جاذبه‌های گردشگری افغانستان است و هر سال شمار بسیاری از گردشگران خارجی از این منطقه دیدن می‌کنند.
+
+با این حال، طالبان محدودیت‌هایی را بر حضور زنان و دختران در بند امیر وضع کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار صداوسیما زنده از سیریک:
+
+دقایقی پیش صدای چندتا انفجار مهیب از حوالی روستای طاهرویی سیریک شنیده شد
+@withyashar 🚨🚨🚨
+</div>
+
+## WithYashar — post 15990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش مردمی : یکی طرف گز سیریک بود یکی دریابانی سیریک یکی هم طاهرویی
+@withyashar 🚨🚨🚨
+</div>
+
+## WithYashar — post 15989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش مردمی‌تایید نشده : شهرک صنعتی سرخور طاعرویی رو زدن
+@withyashar 🚨🚨🚨
+</div>
+
+## WithYashar — post 15988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مثل همیشه دقیقا ۱۵ دقیقه جلو هستیم ! 💥💥💥💥💥
+</div>
+
+## WithYashar — post 15987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: صدای انفجار در سیریک شنیده شد 🚨🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 15986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای پهباد در قشم
+@withyashar
+</div>
+
+## WithYashar — post 15985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان از سیریک ، قشم و بندر لنگه گزارش ۳-۶ صدای‌انفجار‌شدید
+میدند !!!! 🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 15984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنگه دعوا شد 🚨🚨 ۳ انفجار
+@withyashar
+</div>
+
+## WithYashar — post 15983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ امضای توافق با اسرائیل را به رئیس‌جمهور لبنان تبریک گفت
+@withyashar
+</div>
+
+## WithYashar — post 15982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: کلیه خاموشی‌های شرق تهران برطرف شد
+@withyashar
+</div>
+
+## WithYashar — post 15981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: توافق با لبنان ضربه ای به ایران و محور آن است
+@withyashar
+</div>
+
+## WithYashar — post 15980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه مجلس خبرگان رهبری:
+
+بنابه‌نظر مجتبی خامنه‌ای، موضوع هسته‌ای نباید سرش مذاکره بشه.
+باز شدن تنگه هرمز، خلاف تعهد مسئولان بوده.
+«تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه» از مطالبات رهبره و «هرگونه سهل انگاری در این زمینه» با واکنش مواجه میشه.
+«بر هر ملکفی» که به دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «دسترسی پیدا کند، واجب است آن‌ها را به درک واصل کند».
+@withyashar
+</div>
+
+## mwarmonitor — post 11605
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11605_1782596006.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨انفجار در سیریک
+</div>
+
+## mwarmonitor — post 11604
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11604_1782596006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 این انگل‌های دستگاه گوارش که سال‌ها میلیاردها دلار از جیب مردم دزدیدند و به شکم بشار اسد بستند تا با جفنگیاتِ «اگر در سوریه نجنگیم باید در تهران با داعش بجنگیم» غارتگری خود را توجیه کنند، حالا که سهم ارث بشار تمام شده، قلک جدیدی به نام نعیم قاسم و لبنان پیدا کرده‌اند؛ دکترینِ کثیف و بی‌سروتهِ این زالوها چنان وقیحانه به‌روزرسانی شده که رسماً ادعا می‌کنند لبنان عمق استراتژیک ماست و اگر حزب‌الله با اسرائیل نجنگد، باید در مرز کرمانشاه با آن‌ها بجنگیم، گویی جغرافیا هم مثل مغز تهی و طمع بی‌انتها‌ی‌شان کش می‌آید تا برای خالی کردن سفره ملت، بیروت را به خاکریز کرمانشاه بچسبانند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11603
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11603_1782596007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیلبوردهایی با شعار «لبنان اول» در مسیر فرودگاه بین‌المللی بیروت توسط هواداران حزب‌الله به آتش کشیده شد.
+
+
+⚪️این بیلبوردها پیش‌تر عبارت «متشکریم ایران» را نمایش می‌دادند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس به نقل از مقامات: دونالد ترامپ با رئیس‌جمهور لبنان، ژوزف عون، تماس تلفنی برقرار کرد و او را به‌دلیل امضای توافق چارچوب با اسرائیل تبریک گفت.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343508
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343508_1782596008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A tiny meow turned into a rescue mission.
+
+A Georgia police officer spotted two women stranded with their hood up after they heard a kitten crying from inside the engine compartment. Bodycam video shows Officer Nick Jackson carefully working to free the frightened kitten.
+
+The women told him they believed there were multiple kittens hiding inside the vehicle, turning an ordinary traffic stop into an unexpected animal rescue.
+</div>
+
+## FoxNewsTwitter — post 343507
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343507_1782596011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The U.S. is expanding its military response as earthquake relief efforts intensify in Venezuela.
+
+Additional aircraft, helicopters, search-and-rescue teams and military personnel are deploying to help restore airport operations, deliver lifesaving aid and support recovery efforts.
+
+Three days after the devastating twin earthquakes, the death toll has climbed to at least 920, with more than 3,300 injured and tens of thousands still missing.
+</div>
+
+## pm_afshaa — post 94941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+4 انفجار در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94940
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مثل اینکه سیریک خبری بود
+</div>
+
+## pm_afshaa — post 94939
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مثل اینکه سیریک خبری بود
+</div>
+
+## pm_afshaa — post 94935
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94935_1782596012.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: تا وقتی حزب‌الله سلاح‌هاش رو زمین نذاره، در لبنان خواهیم ماند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94934
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94934_1782596012.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیه اعضای مجلس خبرگان:
+موضوع هسته‌ای اصلاً نباید وارد مذاکرات بشه و بعد اینکه رهبر نظر نهایی خودشو اعلام کرد، هیچ مسئولی حق نداره برخلافش عمل کنه.
+
+گرفتن غرامت، آزاد شدن پول‌های بلوکه‌شده، رفع تحریم‌ها، حفظ مدیریت تنگه هرمز و خروج آمریکا از منطقه باید حتماً دنبال بشه و کوتاهی تو این مسائل با واکنش مردم روبه‌رو میشه.
+به نظر ما دشمن فقط دنبال وقت خریدنه تا دوباره خودش رو جمع‌وجور کنه و به احتمال زیاد به‌زودی دوباره به ما حمله میکنه.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94932
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94932_1782596013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اغتشاش گران حزب اللهی امشب تابلو ها و بنر های لبنان رو به اتش کشیدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جان سینا:بزودی با زنم میایم ایران، شهر زیبای شیراز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما:
+دقایقی پیش صدای چند انفجار در محدوده روستای طاهرویی سیریک شنیده شد
+
+پیام‌هایی که من دریافت کرده بودم:
+
+صدای چند انفجار.
+طبق معمول انگار دوباره نیروی دریایی سپاه سیریک رو زدند.
+
+سلام ساعت 12.41 صدای چند انفجار شدید بندرعباس
+
+همین دو دقیقه قبل پایگاه دریایی سیریک هدف حمله موشکی
+جوری زد که زمین لرزید
+پایگاه دریایی طاهرویی سیریک رو هم زد
+دوتا موشک صداش اومد رو دریابانی سیریک
+دکل اسکله سپاه سیریک بعد چهار ماه موشک خوردن مداوم بلاخره امشب کج شد
+
+قشم سمت سوزا صدای انفجار شنیده شد حدود ۱۲:۳۰
+
+سلام وحید جان تقریبا ساعت 00:45 صدای انفجار هرمزگان .قشم
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88213
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88213_1782596014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف به سیم آخر زد!
+
+یه عده که اسمشونو گذاشتن انقلابی و سوپرانقلابی هیچ غلطی برای این انقلاب نکردن ولی طلبکار از همه هم هستن..
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88212
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88212_1782596017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نبویان: فقط یک نفر از بین ۱۳ عضو شورای عالی امنیت، نظر رهبری را بدرستی تشخیص داد و آن فرد، جلیلی بود
+
+افرادی که ادعا میکنند ولایی هستند فرمون رو برگردونن نسبت به این تفاهم.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیه اعضای مجلس خبرگان :
+
+تداوم حملات اسرائیل در لبنان و «عدم عقب‌نشینی»‌ ارتش این کشور از مناطق جنوبی لبنان را «نقض آشکار» تفاهم‌نامه ایران و آمریکا خوانده و نوشته‌اند بر این اساس بازگشایی تنگه هرمز «خلاف تعهد مسئولان است
+
+«بر هر ملکفی» که به دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «دسترسی پیدا کند، واجب است آن‌ها را به درک واصل کند».
+
+همچنین «تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه» را از مطالبات رهبر جمهوری اسلامی برشمرده و هشدار داده‌اند که «هرگونه سهل انگاری در این زمینه» با واکنش مواجه خواهد شد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 344681
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344681_1782596020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صدا و سیما، بامداد یکشنبه از شنیده‌شدن صدای چند انفجار در شهرستان سیریک خبر داد.
+تاکنون دلیل این انفجارها اعلام نشده است.
+شامگاه جمعه نیز انفجارهایی در محدوده شهرستان سیریک رخ داد و سنتکام اعلام کرد نیروهای آمریکایی، در پاسخ به حمله جمهوری اسلامی به کشتی‌ها در تنگه هرمز، به اهدافی در جنوب ایران حمله کرده است.
+https://iranintl.com/202606275925
+</div>
+
+## IranIntlTV — post 344680
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344680_1782596021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریاست‌جمهوری لبنان اعلام کرد جوزف عون در تماس تلفنی با دونالد ترامپ، تاکید کرده لبنان مسئولیت اجرای توافق چارچوبی با اسرائیل را بر عهده خواهد گرفت.
+بنا بر این گزارش، عون از آمریکا خواسته برای جلوگیری از نقض توافق کمک کند و بر اسرائیل برای خروج از مناطق جنوبی لبنان فشار وارد کند.
+https://iranintl.com/202606273180
+</div>
+
+## IranIntlTV — post 344679
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344679_1782596022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی ایران در حالی با تساوی برابر مصر در سومین دیدار خود در جام جهانی، با ۳ امتیاز هنوز شانس صعود به مرحله یک شانزدهم نهایی را دارد که تیم تحت هدایت امیر قلعه‌نویی در هر سه بازی مرحله گروهی موفق به گلزنی شد اما سیستم کمک داور ویدیویی آن را رد کرد.
+
+🔹تیم ملی فوتبال ایران در پایان مرحله گروهی جام جهانی ۲۰۲۶، بیش از هر تیم دیگری تحت تأثیر تصمیمات سیستم کمک‌داور ویدئویی (VAR) قرار گرفت و از این حیث در صدر فهرست تیم‌های متضرر این رقابت‌ها ایستاد.
+
+🔹بر اساس آمار منتشرشده، سه گل ایران در مسابقات مرحله گروهی پس از بازبینی تصاویر توسط VAR مردود اعلام شد؛ آماری که در میان ۴۸ تیم حاضر در جام جهانی ۲۰۲۶ بی‌سابقه بوده و ایران را به تیمی با بیشترین گل مردودشده توسط این فناوری تبدیل کرده است.
+
+🔹با ثبت این آمار، تیم ملی ایران از آلمان نیز عبور کرد و رکورد بیشترین گل مردودشده به واسطه تصمیمات VAR در مرحله گروهی این دوره از جام جهانی را به نام خود ثبت کرد.
+
+🔹این آمار، ایران را در صدر تیم‌هایی قرار داد که تصمیمات کمک‌داور ویدئویی بیشترین تأثیر منفی را بر نتایج و امتیازات آن‌ها در مرحله گروهی گذاشته است.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 7239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 27 Jun 2026 21:29:12 UTC
+
+Sirik*
+
+ترجمه خودکار فارسی
+
+سیریک*
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 27 Jun 2026 21:27:56 UTC
+
+American attack on Siri
+Hormozgan province, Iran
+
+ترجمه خودکار فارسی
+
+حمله آمریکا به سیری
+استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 27 Jun 2026 21:23:35 UTC
+
+Explosion in Sirik, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+انفجار در سیریک، استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 222053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺چند روز بعد از «چراغ سبز» مجتبی خامنه‌ای به تفاهم‌نامه با واشنگتن؛ بیش از ۶۰ عضو «مجلس خبرگان» جان رئيس‌جمهوری آمریکا را تهدید کردند
+
+▪️در ایران تعدادی از اعضای نهاد موسوم به «مجلس خبرگان رهبری» شنبه ۶ تیر ۱۴۰۵ در نامه‌ای، دونالد ترامپ رئیس جمهوری آمریکا، و بنیامین نتانیاهو نخست وزیر اسرائیل، را «مهدورالدم» خواندند و عملا خواستار به قتل‌رسیدن سران این دو کشور شدند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165508.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ونس: آمریکا چه با توافق و چه بدون توافق با جمهوری اسلامی «برنده» است
+
+▪️جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، می‌گوید آمریکا چه به توافق نهایی با جمهوری اسلامی برسد و چه مذاکرات بدون توافق پایان یابد، در هر دو حالت «برنده» خواهد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/vance-america-wins-either-way/8165507.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا، روز شنبه تصویری از ملوانان آمریکایی را منتشر کرد که یک فروند ایی-۲ هاوک‌آی‌ را برای پرواز از روی ناو هواپیمابر آبراهام لینکلن آماده می‌کنند. نیروهای آمریکایی اخیرا در پاسخ به حملات جمهوری اسلامی به کشتی‌های تجاری، به اهداف نظامی در سواحل ایران حمله کردند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18203
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18203_1782596023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیلاز: تفاهم با آمریکا فقط یک وقفه است؛ حمله نظامی در بهمن یا اسفند تکرار میشود
+
+سعید لیلاز، فعال سیاسی و تحلیلگر مسائل بینالملل، درباره ماهیت تفاهم اخیر ایران و آمریکا هشدار داد و آن را صرفاً یک «وقفه موقت» در تنشها توصیف کرد. به گفته او، این تفاهم هیچ تضمینی برای پایان پایدار درگیریها ایجاد نمیکند و واشنگتن در یک بازه زمانی مشخص، بار دیگر گزینه نظامی را روی میز خواهد گذاشت.
+
+لیلاز با استناد به الگوی رفتاری آمریکا در مواجهه با ایران، پیشبینی کرد که حمله مجدد در بهمن یا اسفند ماه امسال رخ دهد؛ زمانی که آمریکا محاسبات سیاسی و نظامی خود را نهایی کرده و شرایط منطقه را برای یک اقدام جدید مهیا ببیند.
+
+‏Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18202
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18202_1782596026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️رئیسی، استاد دانشگاه و نماینده مردم قم :
+
+شماها از پشت‌پرده خبر ندارید، ولی من خبر دارم؛
+یه شخصیت خیلی مهم تو یکی از جلسات به فرمانده‌های نظامی گفته بود اگه اون چیزی که من میگم انجام نشه و باهاش موافقت نکنید، دیگه نمی‌مونم و میرم.
+فرمانده‌ها هم سر یه دوراهی سخت گیر کرده بودن؛ اگه با نظر اون شخص مخالفت می‌کردن، ممکن بود اون کنار بکشه و کشور وارد یه خلأ سیاسی بشه.
+آخرش هم بین بد و بدتر، تصمیم گرفتن همون گزینه بد (توافق و آتش بس) رو انتخاب کنن.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمریکا مجدد به سیریک حمله کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزیده بیانیه خبرگان:
+
+- بنابه‌نظر مجتبی خامنه‌ای، موضوع هسته‌ای نباید سرش مذاکره بشه.
+
+- باز شدن تنگه هرمز، خلاف تعهد مسئولان بوده.
+
+- «تثبیت مدیریت تنگه هرمز و دریافت غرامت خسارت‌ها و بازگشت اموال بلوکه شده و رفع تحریم‌ها و خروج امریکا از منطقه» از مطالبات رهبره و «هرگونه سهل انگاری در این زمینه» با واکنش مواجه میشه.
+
+- «بر هر ملکفی» که به دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، «دسترسی پیدا کند، واجب است آن‌ها را به درک واصل کند».
+
+- تأکید می‌شود که خون رهبر انتقام گرفته شود و مجازات‌ها برای ترامپ و نتانیاهو اعمال گردد.
+
+- مذاکره‌کنندگان تحت‌هیچ شرایطی از خطوط قرمز رهبری عبور نکنن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 285228
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285228_1782596029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بنیامین نتانیاهو، نخست‌وزیر اسرائیل، از توافق میان لبنان و کشورش که با میانجی‌گری آمریکا حاصل شد، استقبال کرد و آن را «دستاوردی تاریخی» خواند که به گفته او «ضربه‌ای به ایران و حزب‌الله» وارد کرده است.
+
+آقای نتانیاهو در یک سخنرانی تلویزیونی گفت: «دیروز، پس از مذاکرات مستقیم میان اسرائیل و لبنان، به یک توافق تاریخی برای دولت اسرائیل دست یافتیم. این توافق ضربه‌ای به ایران و حزب‌الله است.»
+
+او همچنین بار دیگر تاکید کرد که نیروهای اسرائیلی در «منطقه امنیتی» باقی خواهند ماند، منطقه‌ای که ارتش اسرائیل در عمق حدود ۱۰ کیلومتری خاک لبنان ایجاد کرده است.
+
+نخست وزیر اسرائیل گفت: «تا زمانی که حزب‌الله و دیگر گروه‌های تروریستی خلع سلاح نشوند، در این منطقه خواهیم ماند.»
+
+آقای نتانیاهو افزود: «هم ایالات متحده و هم لبنان، حق اسرائیل برای حفظ یک منطقه امنیتی در داخل خاک لبنان را تا زمانی که برای تأمین امنیت ما ضروری باشد، به رسمیت شناخته‌اند.»
+
+او ادامه داد: «ما به حضور در این منطقه امنیتی ادامه خواهیم داد تا زمانی که حزب‌الله و همه سازمان‌های تروریستی به‌طور کامل خلع سلاح شوند.»
+📷EPA
+@BBCPersian
+</div>
+
+## BBCPersian — post 285227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرانسه: آماده مشارکت در اجرای توافق لبنان و اسرائیل هستیم
+
+فرانسه اعلام کرد که «آماده همکاری» در اجرای توافق امضاشده میان لبنان و اسرائیل است و افزود این توافق باید زمینه را برای بازگشت «کامل حاکمیت» لبنان فراهم کند.
+
+وزارت خارجه فرانسه در بیانیه‌ای گفت: «فرانسه که به امنیت اسرائیل و همچنین لبنان متعهد است و در حفظ صلح در جنوب لبنان نقش دارد، آماده است در اجرای این توافق و تحقق همه اهداف آن مشارکت کند.»
+
+در بیانیه وزارت خارجه لبنان همچنین آمده است که این توافق باید مسیر بازگرداندن کامل حاکمیت لبنان را هموار کند.
+
+فرانسه همچنین از در اختیار داشتن انحصاری سلاح توسط دولت لبنان و خروج نیروهای ارتش اسرائیل از خاک لبنان حمایت کرد.
+
+لبنان از دوم مارس (چهار ماه پیش)، پس از آن که حزب‌الله در حمایت از ایران موشک‌هایی به سوی اسرائیل شلیک کرد، وارد جنگ شد.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285226
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل: جمهوری اسلامی و حزب‌الله، لبنان را گروگان منافع خود نگه داشته‌اند
+
+حساب رسمی وزارت امور خارجه اسرائیل به فارسی در شبکه ایکس با انتشار تصویری از مراسم امضای توافق دیروز اسرائیل و لبنان که با میانجیگری آمریکا انجام شد گفته است: «اسرائیل و لبنان درحال انتخاب مسیری به سوی صلح هستند.»
+
+«اما رژیم جمهوری اسلامی و حزب الله تلاش می کنند، لبنان را گروگان منافع رژیم نگه دارند و درگیری را طولانی تر کنند.»
+@BBCPersian
+</div>
+
+## BBCPersian — post 285225
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285225_1782596030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻اسماعیل بقایی، سخنگوی وزارت خارجه ایران، به اظهارات جورجا ملونی، نخست‌وزیر ایتالیا، درباره حمایت فنی و لجستیکی کشورش از ارتش آمریکا واکنش نشان داده است.
+
+آقای بقایی در شبکه ایکس، اظهارات خانم ملونی را «تناقضی آشکار و استدلالی سفسطه‌آمیز» توصیف کرد که به گفته او با هدف «شانه خالی کردن از مسئولیت همدستی در یک اقدام به‌شدت مغایر با حقوق بین‌الملل» مطرح شده است.
+
+او نوشت که ایتالیا از یک‌سو هرگونه کمک به «متجاوزان» را انکار می‌کند و از سوی دیگر، به ارائه حمایت «فنی و لجستیکی» اذعان دارد که به گفته او جنگ آمریکا و اسرائیل علیه ایران را ممکن و تسهیل کرده است.
+
+سخنگوی وزارت خارجه ایران افزود: «ارائه حمایت فنی و لجستیکی به متجاوزان، چیزی کمتر از مشارکت روشن و مستقیم در به‌راه‌انداختن یک جنگ غیرقانونی و انتخابی نیست.»
+
+او این اقدام را «تجاوزی آشکار و نقضی جدی از حقوق بین‌الملل» خواند.
+
+جورجا ملونی دیروز با رد اظهارات مارک روته، دبیرکل ناتو، گفت که حمایت ایتالیا از ارتش آمریکا صرفا به ارائه «پشتیبانی فنی و لجستیکی» محدود بوده است.
+ادامه از:
+https://bbc.in/3SACOfI
+📷AFP via Getty
+@BBCPersian
+</div>
+
+## BBCPersian — post 285224
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285224_1782596031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شامگاه شنبه ۶ تیر ساکنان تهران در شبکه‌های اجتماعی از قطعی برق در برخی مناطق شرق پایتخت خبر دادند.
+
+به گفته این شهروندان، مناطقی از جمله محله‌های پیروزی، نارمک، نظام‌آباد، رسالت و تهران‌نو در خاموشی فرو رفتند.
+
+این در حالی است که شرکت توانیر دقایقی پیش اعلام کرد که: «برق بخشی از مناطق شرقی تهران به دلیل بروز اشکال فنی به صورت موقت دچار اختلال و قطعی شده است.»
+
+در اطلاعیه شرکت توانیر آمده است که نیروهای عملیاتی «در حال رفع اختلال پیش آمده هستند.»
+📷NurPhoto via Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393281
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393281_1782596032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه دخترِ موبایلشو داده دست یه تعمیرکار، اونم با این صحنه مواجه شده😂
+
++ هندزفری لازم🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393280
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393280_1782596033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جواد خیابانی به زبان عربی از تیم الجزایر خواست که اتریش رو ببره تا بتونیم صعود کنیم🤣🤣🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393278
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایالت متحده کرج لباس شیر نداشتن به جاش پتو پلنگی پیچوندن و با نخ شیرینی جوری گره زدن که مثلا گوش هاشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130599
+
+<div align="center">
+  <a href="telegram/content/alonews_130599_1782596037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/هم اکنون حملات آمریکا به جنوب
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130598
+
+<div align="center">
+  <a href="telegram/content/alonews_130598_1782596037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/صداوسیما: صدای انفجار در سیریک شنیده شد
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130597
+
+<div align="center">
+  <a href="telegram/content/alonews_130597_1782596037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ امضای توافق با اسرائیل را به رئیس‌جمهور لبنان تبریک گفت
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130596
+
+<div align="center">
+  <a href="telegram/content/alonews_130596_1782596038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محارب‌های حزب الله در خیابان‌ها لاستیک و سطل آشغال سوزاندند
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130595
+
+<div align="center">
+  <a href="telegram/content/alonews_130595_1782596038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از اغتشاش امشب طرفداران حزب الله در بیروت
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو دنیایی زندگی میکنیم که برای یه وام ساده ضامن بالای ۷۰سال رو قبول نمیکنن اما سرنوشت ۹۰میلیون ایرانی رو پیرمردهای ۹۰ساله‌ای تعیین میکنن که تو رفع نیازهای روزانشون موندن
+
+[@AloTweet]
+</div>
+
+## alonews — post 130593
+
+<div align="center">
+  <a href="telegram/content/alonews_130593_1782596039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگان رهبری: مذاکره کنندگان نباید وارد مسائل اتمی شوند و نباید تنگه هرمز رو از دست بدهند، مذاکره کنندگان باید خطوط قرمز رهبری را رعایت کنند
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130592
+
+<div align="center">
+  <a href="telegram/content/alonews_130592_1782596039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور صربستان که پس از ماه‌ها اعتراضات ضد دولتی تحت فشار قرار گرفته بود، شامگاه شنبه اعلام کرد که طی چند هفته آینده استعفا خواهد داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130591
+
+<div align="center">
+  <a href="telegram/content/alonews_130591_1782596040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: درباره هسته‌ای نباید مذاکره بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/06 23:43
 ---
 
