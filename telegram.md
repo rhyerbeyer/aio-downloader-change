@@ -7,6 +7,1184 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/07 02:15
+---
+
+## VahidOOnLine — post 247637
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247637_1782600340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به فاکس‌نیوز گفت حمله‌های جدید آمریکا به اهدافی در ایران، از حمله‌های شب‌گذشته گسترده‌تر بود و این حمله‌ها پایان یافته است.
+به گفته این مقام، ارتش آمریکا سامانه‌های پدافند هوایی، انبارهای نگهداری پهپاد، موشک‌های کروز، رادارهای هدایت آتش، توانمندی‌های مین‌گذاری و سامانه‌های موشکی زمین به هوا را هدف قرار داد.
+او همچنین گفت: «ایران فرصت داشت حمله‌ها را متوقف کند، اما این کار را نکرد. در عوض، صبح شنبه به نفتکش کیکو با پرچم پاناما در تنگه هرمز حمله کرد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247636
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247636_1782600340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️غلامحسین مظفری، استاندار خراسان رضوی، اعلام کرد هنوز مسیر نهایی مراسم تشییع علی خامنه‌ای، رهبر سابق جمهوری اسلامی ایران در مشهد مشخص نشده و تمامی سناریوهای اجرایی تا ۱۴ تیرماه در حال بررسی و تعیین‌تکلیف است. به گفته او، یکی از سناریوهای اصلی، برگزاری بخشی از مراسم تشییع به‌صورت هوایی است.
+به گزارش خبرگزاری مهر، مظفری گفت اجرای این شیوه با کاهش تراکم جمعیت، مدیریت بهتر مراسم و ایجاد شرایط مناسب‌تر از نظر امنیت و کنترل ازدحام همراه خواهد بود.
+پیش از این علیرضا زاکانی، شهردار تهران برای نخستین بار از برگزاری مراسم تشییع رهبر پیشین جمهوری اسلامی در عراق خبر داده بود.
+علی خامنه‌ای حدود ۴ ماه پیش، در اولین دقایق حمله آمریکا و اسرائیل، روز ۹ اسفندماه ۱۴۰۴ کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247635
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247635_1782600341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«فاکس‌نیوز» به نقل از یک مقام دفاعی آمریکا، بامداد یکشنبه، هفتم تیرماه از پایان حملات ایالات متحده به ایران خبر داد. ساعتی پیش از این، فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار بیانیه‌ای از آغاز حملات ارتش آمریکا به مراکز نظامی در ایران در واکنش به حمله پهپادی صبح شنبه تهران به نفت‌کش پانامایی حاوی بیش از دو میلیون بشکه نفت خام خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247634
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247634_1782600342.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد نیروهای ارتش آمریکا بامداد یکشنبه به وقت ایران، حملات بیشتری را علیه چندین هدف در ایران انجام دادند.
+سنتکام اعلام کرد که هواپیماهای نظامی آمریکا زیرساخت‌های نظارتی نظامی ایران، سامانه‌های ارتباطی، مواضع پدافند هوایی، تاسیسات نگهداری پهپاد و توانمندی‌های مین‌گذاری را هدف قرار دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247633
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247633_1782600342.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با بیانیه فرماندهی مرکزی ایالات متحده (سنتکام) مبنی بر آغاز حملات ارتش آمریکا به مراکز نظامی در ایران، خبرنگار صداوسیما به نقل از یک منبع آگاه نظامی، از شنیده شدن انفجارها در قشم و سیریک و «اصابت چند پرتابه به دکل مخابراتی» خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247632
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247632_1782600343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام)، بامداد یکشنبه، هفتم تیرماه، با انتشار بیانیه‌ای اعلام کرد نیروهای این فرماندهی به دستور فرمانده کل قوا، دور جدیدی از حملات را علیه اهداف متعددی در خاک ایران آغاز کرده‌اند. سنتکام با اشاره به اینکه پس از حملات روز گذشته، «به ایران فرصتی داده شد تا به توافق آتش‌بس احترام بگذارد»، تاکید کرد که تهران با پرتاب یک پهپاد انتحاری در ساعت ۴:۳۰ بامداد امروز به وقت شرقی به نفت‌کش پانامایی «ام/تی کیکو» حاوی بیش از دو میلیون بشکه نفت خام در نزدیکی تنگه هرمز، این فرصت را رد کرد. در ادامه این بیانیه آمده است که حملات امروز «در پاسخ مستقیم به ادامه تجاوزات ایران به کشتیرانی تجاری» صورت گرفته و جنگنده‌های آمریکایی زیرساخت‌های نظارت نظامی، سیستم‌های ارتباطی، سایت‌های پدافند هوایی، انبار پهپادها و قابلیت‌های مین‌ریزی ایران را هدف قرار داده‌اند. سنتکام در پایان با تاکید بر ادامه تردد کشتی‌های تجاری از تنگه هرمز هشدار داد: «نیروهای ایالات متحده همچنان هوشیار، مرگبار و آماده هستند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247631
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247631_1782600343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام رسمی ایالات متحده در گفتگو با خبرنگار آکسیوس تایید کرد که ارتش آمریکا، بامداد یکشنبه، هفتم تیرماه، در حال انجام حملات تلافی‌جویانه علیه اهدافی در منطقه تنگه هرمز است. به گفته این مقام مسئول، این اقدام نظامی در پاسخ به حمله صبح امروز ایران به یک نفت‌کش تجاری در این آبراه حیاتی صورت گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247630
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247630_1782600344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از یک مقام آمریکایی اعلام کرد ارتش ایالات متحده، در تلافی حمله جمهوری اسلامی به یک نفتکش تجاری، در حال انجام حملاتی به اهداف ایرانی در منطقه تنگه هرمز است.
+
+ارتش ایالات متحده بامداد شنبه نیز مناطقی در محدوده سیریک را هدف قرار داده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+این بوستو بترکونین ایموجی اضافه کنم 😕
+</div>
+
+## WithYashar — post 16022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇭🇷 کرواسی 1 🇬🇭 غنا 0 پایان نیمه ی اول @withyashar
+</div>
+
+## WithYashar — post 16021
+
+
+
+
+## WithYashar — post 16020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اهدافی که توسط آمریکایی‌ها مورد حمله قرار گرفته است.
+دکل مخابراتی
+پدافند هوایی
+سایت های کروز
+سایت های پهپادی
+توانمندی مین ریزی دریایی
+@withyashar
+</div>
+
+## WithYashar — post 16019
+
+
+
+
+## WithYashar — post 16018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب حمله 💥
+@withyashar
+</div>
+
+## WithYashar — post 16017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون از مهرآباد جنگنده بلند شد
+@withyashar 🚨🚨🚨
+</div>
+
+## WithYashar — post 16016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک مقام آمریکایی: حملات امشب آمریکا به اهداف ایرانی تکمیل شده است
+@withyashar
+</div>
+
+## WithYashar — post 16015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با حملات و تایید سنتکام بیتکوین دوباره اومد زیر ۶۰،۰۰۰$
+@withyashar
+</div>
+
+## WithYashar — post 16014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر: شنیده شدن صدای چند انفجار در بندر لنگه و بندر‌کنگ
+@withyashar
+</div>
+
+## WithYashar — post 16013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه سر باید برم بیت رهبری 😂 الانه که موتور بزنم
+</div>
+
+## WithYashar — post 16012
+
+<div align="center">
+  <img src="telegram/content/WithYashar_16012_1782600344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون ، حضور نُه هواپیمای سوخت‌رسان آمریکایی در محدوده خلیج فارس و کمی دیگر ملحق شدن دهمی از اسرائیل به آنها
+@withyashar 🚨🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 16011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای پهپاد و هلیکوپتر در قشم همراه با یک انفجار‌ جدید
+@withyashar 🚨🚨🚨
+</div>
+
+## WithYashar — post 16010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز : حمله فعلی آمریکا به ایران بزرگ‌تر از حمله دیشب است.
+
+نیروهای آمریکا و بحرین ۹ پهپاد ایرانی را که به سمت نیروهای آمریکایی در بحرین پرتاب شده بودند، سرنگون کردند.
+@withyashar 🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 16009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در صورت تساوی تیم رژیم جمهوری اسلامی برابر مصر چطور صعود می‌کنند؟ رخ دادن یکی از این موارد کافی است: 1-غنا کرواسی را شکست دهد 2-کنگو نتواند ازبکستان را ببرد 3-بازی اتریش و الجزایر برنده داشته باشد @withyashar
+</div>
+
+## WithYashar — post 16008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : انفجار های جدید در‌ سیریک 🚨🚨🚨🚨 @withyashar
+</div>
+
+## WithYashar — post 16007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : انفجار های جدید در‌ سیریک 🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 16006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیریک خیلی بد صدای انفجار میاد
+</div>
+
+## WithYashar — post 16005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ شبی مثل امشب نزده.
+</div>
+
+## WithYashar — post 16003
+
+<div align="center">
+  <img src="telegram/content/WithYashar_16003_1782600345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروهای آمریکا پس از حمله اخیر ایران به یک کشتی تجاری، حملات بیشتری انجام دادند
+فرماندهی مرکزی ایالات متحده (سنتکام)
+
+
+تامپا، فلوریدا — نیروهای فرماندهی مرکزی ایالات متحده (سنتکام) در تاریخ ۲۷ ژوئن به دستور فرمانده کل قوا، حملات بیشتری را علیه چندین هدف در ایران انجام دادند.
+
+پس از حملات دیروز آمریکا در پاسخ به حمله ایران به کشتی «M/V Ever Lovely»، به ایران فرصت داده شد که به توافق آتش‌بس پایبند بماند، اما این کشور از این کار خودداری کرد و نیروهایش یک پهپاد تهاجمی یک‌طرفه را صبح امروز ساعت ۴:۳۰ به وقت شرق آمریکا به کشتی «M/T Kiku» شلیک کردند. این نفتکش با پرچم پاناما در حال عبور در نزدیکی تنگه هرمز و حامل بیش از دو میلیون بشکه نفت خام بود.
+
+در پاسخ مستقیم به ادامه اقدامات ایران علیه کشتیرانی تجاری، نیروهای سنتکام امروز حملاتی انجام دادند. هواپیماهای نظامی آمریکا زیرساخت‌های شناسایی نظامی ایران، سیستم‌های ارتباطی، سایت‌های پدافند هوایی، مراکز نگهداری پهپاد و توانایی‌های مین‌گذاری را هدف قرار دادند.
+
+عبور کشتی‌های تجاری از تنگه هرمز همچنان ادامه دارد. نیروهای آمریکا در حالت آماده‌باش، تهاجمی و کاملاً هوشیار هستند.
+@withyashar
+</div>
+
+## mwarmonitor — post 11618
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11618_1782600346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️۱۰ فروند هواپیمای سوخت‌رسان هوایی KC-135R / KC-46A متعلق به نیروی هوایی ایالات متحده هم‌اکنون در حال پرواز بر فراز خلیج فارس و خلیج عمان هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11617
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11617_1782600346.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک مقام دفاعی آمریکا به من گفته است که حملات ایالات متحده علیه اهداف ایرانی در امشب «به پایان رسیده است». جنیفر گریفین خبرنگار فاکس نیوز @mwarmonitor
+</div>
+
+## mwarmonitor — post 11616
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11616_1782600346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️نیروی هوایی آمریکا (نیروی هوایی ایالات متحده) – عملیات Coronet East 068
+
+✈️سه فروند هواپیمای سوخت‌رسان بوئینگ KC-135 Stratotanker:
+AE047B 58-0117 – CLEAN 61
+AE0501 59-1504 – CLEAN 71
+AE0144 58-0060 – CLEAN 81
+
+
+✈️این پروازها (CLEAN 61/71/81) در حال انتقال به پایگاه هوایی گارد ملی بَنگور هستند ایالت مین و از پیتسبورگ در چارچوب مأموریت Coronet East حرکت کرده‌اند تا ۱۲ فروند جنگنده A-10C متعلق به بال هوایی 23 از پایگاه هوایی مودی ایالت جورجیا را در هفته آینده به پایگاه RAF Lakenheath در بریتانیا منتقل کنند.
+
+
+🔴گفته می‌شود جنگنده‌های A-10 ابتدا به پایگاه هوایی Burlington ANGB ایالت ورمونت منتقل خواهند شد، همان‌طور که در مأموریت قبلی نیز انجام شد. احتمالاً تانکرهای بیشتری با نام CLEAN 62/72/82 نیز برای پشتیبانی در آن سوی اقیانوس اطلس به این عملیات اضافه خواهند شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11615
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11615_1782600347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک مقام دفاعی آمریکا به من گفته است که حملات ایالات متحده علیه اهداف ایرانی در امشب «به پایان رسیده است». جنیفر گریفین خبرنگار فاکس نیوز
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11614
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11614_1782600347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨صدای انفجار در بندر لنگه و بندر کنگ شنیده شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران دیشب با حملاتی علیه نیروهای آمریکایی در بحرین پاسخ داده است. نیروهای آمریکا و بحرین به‌طور مشترک ۹ پهپاد تهاجمی یک‌طرفه ایران را سرنگون کردند. بر اساس گفته یک مقام ارشد آمریکایی، این حملات هیچ خسارت یا تلفاتی در پی نداشته است. Fox news
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11612
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11612_1782600347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دوباره صدای دو انفجار در نزدیکی منطقه سیریک شنیده شد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 11611
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11611_1782600348.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دوباره صدای دو انفجار در نزدیکی منطقه سیریک شنیده شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11610
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11610_1782600348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیروهای آمریکا پس از حمله اخیر ایران به یک کشتی تجاری، حملات بیشتری انجام دادند
+فرماندهی مرکزی ایالات متحده (سنتکام)
+
+
+🔴تامپا، فلوریدا — نیروهای فرماندهی مرکزی ایالات متحده (سنتکام) در تاریخ ۲۷ ژوئن به دستور فرمانده کل قوا، حملات بیشتری را علیه چندین هدف در ایران انجام دادند.
+
+
+🔴پس از حملات دیروز آمریکا در پاسخ به حمله ایران به کشتی «M/V Ever Lovely»، به ایران فرصت داده شد که به توافق آتش‌بس پایبند بماند، اما این کشور از این کار خودداری کرد و نیروهایش یک پهپاد تهاجمی یک‌طرفه را صبح امروز ساعت ۴:۳۰ به وقت شرق آمریکا به کشتی «M/T Kiku» شلیک کردند. این نفتکش با پرچم پاناما در حال عبور در نزدیکی تنگه هرمز و حامل بیش از دو میلیون بشکه نفت خام بود.
+
+
+🔴در پاسخ مستقیم به ادامه اقدامات ایران علیه کشتیرانی تجاری، نیروهای سنتکام امروز حملاتی انجام دادند. هواپیماهای نظامی آمریکا زیرساخت‌های شناسایی نظامی ایران، سیستم‌های ارتباطی، سایت‌های پدافند هوایی، مراکز نگهداری پهپاد و توانایی‌های مین‌گذاری را هدف قرار دادند.
+
+
+🔴عبور کشتی‌های تجاری از تنگه هرمز همچنان ادامه دارد. نیروهای آمریکا در حالت آماده‌باش، تهاجمی و کاملاً هوشیار هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11609
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11609_1782600348.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨صدای انفجارهای بیشتری در نزدیکی جزیره قشم شنیده شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11608
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11608_1782600348.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک مقام آمریکایی می‌گوید ارتش ایالات متحده در حال انجام حملات هوایی علیه اهداف ایرانی در منطقهٔ تنگه هرمز است؛ این اقدام در پاسخ به حمله ایران در صبح امروز به یک نفتکش تجاری انجام شده است. باراک راوید @mwarmonitor
+</div>
+
+## mwarmonitor — post 11607
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11607_1782600348.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 آتش‌سوزی و بالا رفتن ستون‌های دود در یک کشتی تجاری نزدیک جزیره قشم. @mwarmonitor
+</div>
+
+## mwarmonitor — post 11606
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11606_1782600349.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨انفجار در سیریک
+</div>
+
+## FoxNewsTwitter — post 343512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The U.S. military launched a new round of airstrikes against Iranian targets Saturday after the Islamic Revolutionary Guard Corps (IGRC) attacked another commercial vessel in the Strait of Hormuz, according to a senior U.S. official who spoke to Fox News.
+
+The official said the strikes are targeting Iranian air defenses, drone storage facilities, cruise missiles, targeting radars, minelaying capabilities and surface-to-air missile systems.
+</div>
+
+## FoxNewsTwitter — post 343511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. conducts new strikes against Iran, CENTCOM says
+</div>
+
+## FoxNewsTwitter — post 343510
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343510_1782600349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A historic agreement could reshape Israel's northern border—if it holds.
+
+Israeli U.N. Ambassador Danny Danon says Israel will begin withdrawing from southern Lebanon as the Lebanese army takes over positions along the border under a new U.S.-brokered framework agreement.
+
+Danon says the objective is clear: remove Hezbollah from Israel's border and restore Lebanon to "one government" and "one military."
+</div>
+
+## FoxNewsTwitter — post 343509
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343509_1782600351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“They'll steal your life.”
+
+Dr. Mehmet Oz says a nationwide healthcare fraud crackdown is about more than recovering stolen taxpayer dollars—it’s about preventing tragedies like the death of 18-year-old college basketball player Kaden Francis.
+
+Oz claims a doctor charged in the Justice Department's $6.5 billion fraud takedown allegedly cleared Kaden's heart screening in just 11 seconds, despite an enlarged heart that was later blamed for his death.
+</div>
+
+## pm_afshaa — post 94952
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94952_1782600353.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به فاکس نیوز: حملات آمریکا به اهداف ایرانی امشب به پایان رسیده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94951
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94951_1782600354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: حمله فعلی آمریکا به ایران بزرگ‌تر از حمله دیشب است.
+
+نیروهای آمریکا و بحرین دیشب 9 پهپاد ایرانی رو که به سمت نیروهای آمریکایی در بحرین پرتاب شده بودن، سرنگون کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بندر لنگه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94949
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94949_1782600354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش‌ها، سیریک همچنان صدای انفجار شنیده میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94948
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94948_1782600355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+نیروهای آمریکا امشب حملات بیشتری رو علیه چندین هدف ایرانی در پاسخ به حمله پهپادی ایران به نفتکش با پرچم یونان M/T Kiku، در نزدیکی تنگه هرمز انجام دادن.
+
+بعد از حمله دیروز، به ایران فرصت دادیم به آتش‌بس پایبند بمونه، اما این کار رو نکرد و صبح امروز با یه پهپاد انتحاری یه نفتکش پانامایی رو که نزدیک تنگه هرمز در حال عبور بود هدف قرار داد.
+
+امشب در پاسخ، تأسیسات رصد و شناسایی، سامانه‌های ارتباطی، پدافند هوایی، انبارهای پهپاد و توان مین‌ریزی ایران رو هدف قرار دادیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94947
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94947_1782600355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام حملات امشب به جنوب ایران رو تایید کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در قشم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94945
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94945_1782600356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید، خبرنگار آکسیوس:
+ارتش آمریکا در حال انجام حملات هوایی علیه اهداف ایرانی در منطقهٔ تنگه هرمزه؛ این اقدام در پاسخ به حمله ایران در صبح امروز به یک نفتکش تجاری انجام شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94944
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94944_1782600356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: ارتش آمریکا در حال انجام حملاتی در منطقهٔ تنگه هرمزه، دونالد ترامپ هم این موضوع رو تأیید کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94943
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94943_1782600357.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار صداوسیما در سیریک: دقایقی پیش صدای چند انفجار در محدوده روستای طاهرویی سیریک شنیده شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94942
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94942_1782600357.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار صداوسیما در سیریک:
+دقایقی پیش صدای چند انفجار در محدوده روستای طاهرویی سیریک شنیده شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76716
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76716_1782600358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست سنتکام، ترجمه ماشین:
+نیروهای آمریکا پس از تازه‌ترین حمله ایران به کشتی تجاری، حملات بیشتری انجام دادند
+
+تامپا، فلوریدا — نیروهای فرماندهی مرکزی آمریکا (CENTCOM) به دستور فرمانده کل قوا، روز ۲۷ ژوئن حملات بیشتری را علیه چندین هدف در ایران انجام دادند.
+
+پس از حملات دیروز آمریکا در پاسخ به حمله ایران به کشتی M/V Ever Lovely،
+به ایران فرصت داده شد تا به توافق آتش‌بس پایبند بماند، اما این کشور چنین نکرد
+؛ زیرا نیروهایش یک پهپاد تهاجمی یک‌طرفه را شلیک کردند که صبح امروز ساعت ۴:۳۰ به وقت شرق آمریکا به نفتکش M/T Kiku برخورد کرد. این نفتکش با پرچم پاناما در نزدیکی تنگه هرمز در حال عبور بود و بیش از دو میلیون بشکه نفت خام حمل می‌کرد.
+
+نیروهای سنتکام امروز در پاسخ مستقیم به ادامه تعرض ایران علیه کشتیرانی تجاری، حملاتی انجام دادند. هواپیماهای نظامی آمریکا زیرساخت‌های نظارت نظامی ایران، سامانه‌های ارتباطی، سایت‌های پدافند هوایی، تأسیسات نگهداری پهپاد، و توانمندی‌های مین‌گذاری را هدف قرار دادند.
+
+عبور کشتی‌های تجاری از تنگه هرمز ادامه دارد. نیروهای آمریکا همچنان هوشیار، مرگبار و آماده هستند.
+CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب دوباره امریکا به ایران حمله کرد
+
+صداوسیمای: دقایقی پیش صدای چند انفجار در محدوده روستای طاهرویی سیریک شنیده شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 344691
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344691_1782600358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به فاکس‌نیوز گفت حمله‌های جدید آمریکا به اهدافی در ایران، از حمله‌های شب‌گذشته گسترده‌تر بود و این حمله‌ها پایان یافته است.
+به گفته این مقام، ارتش آمریکا سامانه‌های پدافند هوایی، انبارهای نگهداری پهپاد، موشک‌های کروز، رادارهای هدایت آتش، توانمندی‌های مین‌گذاری و سامانه‌های موشکی زمین به هوا را هدف قرار داد.
+او همچنین گفت: «ایران فرصت داشت حمله‌ها را متوقف کند، اما این کار را نکرد. در عوض، صبح شنبه به نفتکش کیکو با پرچم پاناما در تنگه هرمز حمله کرد.»
+
+https://iranintl.com/202606279238
+</div>
+
+## IranIntlTV — post 344690
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344690_1782600359.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+براساس گزارش مرکز آمار، نرخ تورم در ۱۱ استان کشور از ۱۰۰ درصد گذشته است. علی دادپی، اقتصاددان، گفت: «اقتصاد از مسیر تولید، سرمایه‌گذاری و مصرف به وضعیتی رسیده که در آن فقط مصرف برای بقای روزانه باقی مانده است؛ برای اینکه خانواده‌ها بتوانند چند روز یا چند هفته دیگر دوام بیاورند.»
+
+او افزود: «هیچ اقتصاد معمولی که هدفش رشد و توسعه باشد، نمی‌تواند چنین سطحی از تورم را تحمل کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344689
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344689" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: ترور خرازی در بیمارستان
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344688
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344688_1782600361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «علت هدف قرار گرفتن علی شمخانی در هر دو جنگ ۱۲ و ۴۰ روزه، نقش محوری او به‌عنوان مشاور نزدیک خامنه‌ای و رابط اصلی در پرونده هسته‌ای جمهوری اسلامی بوده است. جلسه‌ای که در ۹ اسفند هدف حمله قرار گرفت، به احتمال زیاد برای تصمیم‌گیری درباره نهایی کردن ساخت بمب اتمی برگزار شده بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344687
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344687_1782600362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز مشترک اطلاعات دریایی اعلام کرد در پی حوادث اخیر در تنگه هرمز، سطح تهدید امنیتی را افزایش داده است.
+
+همزمان، رسانه‌های حکومتی ایران گزارش دادند سپاه پاسداران به سمت کشتی‌هایی که از مسیرهای مورد تایید جمهوری اسلامی عبور نکرده بودند، تیرهای هشداردهنده شلیک کرده است.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 344686
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344686_1782600363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسن حسن‌زاده، فرمانده سپاه تهران و رییس ستاد تشییع جنازه علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، گفت برای مراسم وداع در اطراف مصلا همه خدمات لازم از جمله تغذیه ارايه می‌شود. او افزود زمان عبور هر زائر برای دیدن جنازه خامنه‌ای، حدود ۱۵ تا ۲۰ دقیقه خواهد بود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344685
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344685_1782600365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «پیگیری مداوم اسرائیل در هدف قرار دادن دشمنان خود در دو جنگ ۱۲ و ۴۰ روزه مشهود بود؛ به‌گونه‌ای که با اتکا به برتری اطلاعاتی، ده‌ها مقام ارشد جمهوری اسلامی را هدف قرار داد. از جمله افرادی که پیش‌تر اسرائیل را تهدید کرده بودند، علی شمخانی بود که پس از جان سالم به در بردن از حمله نخست، در حمله بعدی هدف قرار گرفت و کشته شد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344684
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344684_1782600366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد نیروهای ارتش آمریکا بامداد یکشنبه به وقت ایران، حملات بیشتری را علیه چندین هدف در ایران انجام دادند.
+سنتکام اعلام کرد که هواپیماهای نظامی آمریکا زیرساخت‌های نظارتی نظامی ایران، سامانه‌های ارتباطی، مواضع پدافند هوایی، تاسیسات نگهداری پهپاد و توانمندی‌های مین‌گذاری را هدف قرار دادند.
+https://iranintl.com/202606273005
+</div>
+
+## IranIntlTV — post 344683
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344683_1782600366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از یک مقام آمریکایی اعلام کرد ارتش ایالات متحده، در تلافی حمله جمهوری اسلامی به یک نفتکش تجاری، در حال انجام حملاتی به اهداف ایرانی در منطقه تنگه هرمز است.
+
+ارتش ایالات متحده بامداد شنبه نیز مناطقی در محدوده سیریک را هدف قرار داده بود.
+https://iranintl.com/202606277008
+</div>
+
+## IranIntlTV — post 344682
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344682_1782600367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «صادق خرازی، برادرزاده کمال خرازی، مدعی شده است که عمویش پس از بهبود نسبی از جراحات ناشی از حمله هوایی اسرائیل و انتقال از بخش مراقبت‌های ویژه به بخش عادی بیمارستان، در همان بیمارستان کشته شده است. اگر این روایت صحت داشته باشد، می‌تواند تصویری تازه از عمق نفوذ اطلاعاتی و عملیاتی اسرائیل و آمریکا در ساختار جمهوری اسلامی ارائه دهد؛ نفوذی که حتی به مراکز درمانی و شخصیت‌های ارشد نظام نیز رسیده است.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 7241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 27 Jun 2026 21:46:56 UTC
+
+CENTCOM confirms:
+
+“After yesterday’s U.S. strikes in response to the Iranian attack on M/V Ever Lovely, Iran was given a chance to honor the ceasefire agreement but elected not to when its forces launched a one-way attack drone that hit M/T Kiku this morning at 4:30 a.m. ET. The Panama-flagged tanker was transiting near the Strait of Hormuz with more than two-million barrels of crude oil.
+CENTCOM forces launched strikes today in direct response to continued Iranian aggression against commercial shipping. U.S. military aircraft targeted Iranian military surveillance infrastructure, communication systems, air defense sites, drone storage facilities, and minelayer capabilities.
+Commercial vessel transits through the Strait of Hormuz continue. U.S. forces remain vigilant, lethal, and ready.”
+
+ترجمه خودکار فارسی
+
+سنتکام (ستاد فرماندهی مرکزی آمریکا) تأیید می‌کند:
+
+«پس از حملات دیروز ایالات متحده در پاسخ به حمله ایران به کشتی ام/وی اور لاولی (M/V Ever Lovely)، به ایران فرصتی داده شد تا به توافق آتش‌بس پایبند بماند، اما این کشور با پرتاب یک پهپاد تهاجمی یک‌طرفه توسط نیروهایش که امروز صبح در ساعت ۴:۳۰ به وقت منطقه زمانی شرقی (ET) به نفتکش ام/تی کیکو (M/T Kiku) اصابت کرد، راه دیگری را برگزید. این نفتکش با پرچم پاناما و با بیش از دو میلیون بشکه نفت خام در حال عبور از نزدیکی تنگه هرمز بود.
+
+نیروهای سنتکام (CENTCOM) امروز در پاسخ مستقیم به تداوم تجاوزات ایران علیه کشتیرانی تجاری، حملاتی را آغاز کردند. هواپیماهای نظامی ایالات متحده زیرساخت‌های نظارت نظامی ایران، سیستم‌های ارتباطی، سایت‌های پدافند هوایی، تأسیسات ذخیره‌سازی پهپاد و توانمندی‌های مین‌گذاری را هدف قرار دادند.
+
+تردد کشتی‌های تجاری از طریق تنگه هرمز ادامه دارد. نیروهای ایالات متحده هوشیار، مرگبار و آماده باقی می‌مانند.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 27 Jun 2026 21:45:57 UTC
+
+Regime-aligned SNN:
+
+Several projectiles hit telecommunications tower in Tahervi village, Sirik, Hormozgan Province, Iran
+
+ترجمه خودکار فارسی
+
+خبرگزاری دانشجو (SNN) وابسته به رژیم:
+
+اصابت چندین پرتابه به دکل مخابراتی در روستای طاهروئی، شهرستان سیریک، استان هرمزگان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 222057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌ها: پوسترهای خامنه‌ای‌ها از جاده فرودگاه بیروت جمع‌آوری شد و با بنرهای «لبنان اول» جایگزین شد
+
+▪️دولت لبنان تابلوهای حاوی تصاویر علی‌خامنه‌ای و مجتبی خامنه‌ای را که در جاده منتهی به فرودگاه بیروت نصب شده بود، جمع‌آوری کرد. روی این تابلوها از جمهوری اسلامی ایران تشکر شده بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165510.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222056
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222056_1782600368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در صورت صعود ایران، کانادا مقصد بعدی است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پاسخ سنتکام به حمله جمهوری اسلامی به یک نفتکش دیگر؛ سامانه‌های ارتباطی و پدافند هوایی، مراکز نگهداری پهپاد و ظرفیت‌های مین‌ریزی بمباران شد
+
+▪️ستاد فرماندهی مرکزی آمریکا، سنتکام شنبه عصر به وقت واشنگتن اعلام کرد که نیروهای آمریکایی به دستور فرمانده کل قوا، دونالد ترامپ، در روز ۲۷ ژوئن حملات دیگری را علیه چندین هدف در ایران انجام دادند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165512.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222054
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222054_1782600369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید خبرنگار آکسیوس، شنبه عصر به وقت واشنگتن از قول یک مقام آمریکایی گزارش کرد که ارتش آمریکا در تلافی حمله صبح روز شنبه جمهوری اسلامی ایران به یک نفتکش تجاری، در حال انجام حملاتی به مواضع جمهوری اسلامی در منطقه تنگه هرمز است.
+
+پیشتر در نخستین ساعات بامداد یکشنبه به وقت ایران، گزارش‌هایی از شنیده شدن صدای چند انفجار در شهرستان سیریک در استان هرمزگان در شبکه‌های اجتماعی منتشر شد.
+
+صداوسیمای جمهوری اسلامی هم گفت صدای چند انفجار در محدوده روستای طاهرویی سیریک شنیده شده است.
+
+همزمان، پیام‌های ارسالی شهروندان به کانال تلگرامی «وحیدآنلاین» از شنیده شدن انفجارهای شدید در سیریک، بندرعباس و جزیره قشم خبر می‌داد.
+
+برخی از این گزارش‌ها مدعی بودند پایگاه دریایی سپاه در منطقه طاهرویی سیریک هدف حمله موشکی قرار گرفته و شدت انفجارها به حدی بوده که «زمین لرزید.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165511.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به فاکس نیوز گفت: این حمله بزرگتر از دیشب است.
+
+ایران فرصتی برای توقف تیراندازی داشت و از آن استفاده نکرد در عوض، آنها امروز صبح به یک کشتی دیگر در هرمز حمله کردند.
+
+ایران دیشب با حملاتی به نیروهای آمریکایی در بحرین پاسخ داد. نیروهای آمریکایی و بحرینی با همکاری یکدیگر 9 پهپاد تهاجمی یک‌طرفه ایرانی را سرنگون کردند. هیچ خسارت یا جراحتی به پرسنل وارد نشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18207
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18207_1782600369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: نیروهای فرماندهی مرکزی ایالات متحده (سنتکام) در تاریخ 27 ژوئن، به دستور فرمانده کل قوا، حملات دیگری را علیه چندین هدف در ایران انجام دادند.
+
+پس از حملات دیروز ایالات متحده در پاسخ به حمله ایران به کشتی ام/وی اور لاولی، به ایران فرصتی داده شد تا به توافق آتش‌بس پایبند باشد، اما وقتی نیروهایش ساعت 4:30 صبح به وقت شرق آمریکا، یک پهپاد تهاجمی یک‌طرفه را به سمت کشتی ام/تی کیکو شلیک کردند، این فرصت را از دست دادند. این نفتکش با پرچم پاناما با بیش از دو میلیون بشکه نفت خام در نزدیکی تنگه هرمز در حال عبور بود.
+
+نیروهای سنتکام امروز در پاسخ مستقیم به ادامه تجاوز ایران به کشتی‌های تجاری، حملاتی را انجام دادند. هواپیماهای نظامی ایالات متحده زیرساخت‌های نظارتی نظامی، سیستم‌های ارتباطی، سایت‌های پدافند هوایی، تأسیسات ذخیره‌سازی پهپاد و قابلیت‌های مین‌ریزی ایران را هدف قرار دادند.
+
+عبور کشتی‌های تجاری از تنگه هرمز ادامه دارد. نیروهای آمریکایی هوشیار، مرگبار و آماده هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18206
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18206_1782600369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما به نقل از یک منبع آگاه نظامی: صدای انفجارهای شنیده شده مربوط به اصابت چند پرتابه به دکل مخابراتی در محدوده روستای طاهرویی سیریک است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18205
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18205_1782600370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فوری چندین انفجار در سیریک گزارش شده
+</div>
+
+## Persian_Trend_Official — post 18204
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18204_1782600370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فوری
+
+چندین انفجار در سیریک گزارش شده
+</div>
+
+## IranianMinds — post 23420
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23420_1782600370.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 23419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس به نقل از مقام آمریکایی:
+
+ایالات متحده در پاسخ به حمله ایران به یک کشتی تجاری الان مجدد به اهداف ایرانی نزدیک تنگه هرمز حمله کرده است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس: آمریکا در حال انجام حملاتی در جنوب ایرانه
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 285232
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟥گزارش مهر از شنیده‌شدن صدای چندین انفجار در بندرلنگه و بندر کنگ
+
+خبرگزاری مهر به نقل از گزارش‌های مردمی از شهرستان بندرلنگه اعلام کرده است که صدای چندین انفجار در شهرهای بندرلنگه و بندر کنگ شنیده شده است.
+
+هنوز درباره علت انفجارها، محل دقیق وقوع آن‌ها یا خسارت و تلفات احتمالی اطلاعاتی منتشر نشده است.
+
+لحظاتی پیش سنتکام اعلام کرد که نیروهای آمریکا به دستور دونالد ترامپ در واکنش به حمله به یک نفتکش چند هدف را در ایران بمباران کرده‌اند.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285231
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟥صداوسیما: اصابت چند پرتابه در محدوده روستای مسن قشم
+
+خبرنگار صداوسیمای ایران در قشم به نقل از یک منبع آگاه گزارش داده است که چند پرتابه در محدوده روستای مسن در شهرستان قشم اصابت کرده‌اند.
+
+هنوز درباره محل دقیق اصابت، خسارت یا تلفات احتمالی جزئیاتی منتشر نشده است.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285230
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285230_1782600372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻فرماندهی مرکزی ارتش آمریکا، سنتکام، اعلام کرده است که نیروهای این کشور روز شنبه ۲۷ ژوئن به دستور رئیس‌جمهوری آمریکا، چندین هدف را در ایران مورد حمله قرار داده‌اند.
+
+سنتکام گفته است این حملات در واکنش به آنچه «ادامه تعرض ایران به کشتی‌رانی تجاری» خوانده، انجام شده است.
+
+بر اساس این بیانیه، پس از حملات روز جمعه آمریکا در واکنش به حمله ایران به کشتی «اور لاولی»، به ایران فرصت داده شد به توافق آتش‌بس پایبند بماند، اما نیروهای ایرانی ساعت چهار و نیم صبح شنبه به وقت شرق آمریکا، یک پهپاد انتحاری به سوی نفتکش «کیکو» پرتاب کردند.
+
+سنتکام می‌گوید که این نفتکش با پرچم پاناما و حامل بیش از دو میلیون بشکه نفت خام، در نزدیکی تنگه هرمز در حال حرکت بود که هدف قرار گرفت.
+
+ارتش آمریکا گفته است هواپیماهای نظامی این کشور زیرساخت‌های نظارتی نظامی، سامانه‌های ارتباطی، مواضع پدافند هوایی، انبارهای پهپاد و توانایی‌های مین‌گذاری ایران را هدف قرار داده‌اند.
+
+سنتکام افزوده است که عبور کشتی‌های تجاری از تنگه هرمز همچنان ادامه دارد و نیروهای آمریکایی در حالت آماده‌باش باقی می‌مانند.
+📷CENTCOM
+@BBCPersian
+</div>
+
+## BBCPersian — post 285229
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285229_1782600373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرنگار صداوسیمای ایران در سیریک به نقل از یک منبع آگاه نظامی گزارش داده است که صدای انفجارهای شنیده‌شده در محدوده روستای طاهرویی، مربوط به اصابت چند پرتابه به یک دکل مخابراتی بوده است.
+
+هنوز درباره نوع پرتابه‌ها، میزان خسارت یا تلفات احتمالی جزئیاتی منتشر نشده است.
+
+این گزارش یک روز پس از آن منتشر می‌شود که آمریکا اعلام کرد اهدافی را در ایران بمباران کرده و سپاه پاسداران نیز گفت در پاسخ، مواضع ارتش آمریکا در منطقه را هدف قرار داده است.
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز — حمله فعلی آمریکا به ایران بزرگتر از حمله دیشب است.
+
+نیروهای آمریکایی و بحرینی ۹ پهپاد ایرانی را که به سمت نیروهای آمریکایی در بحرین پرتاب شده بودند، سرنگون کردند.
+</div>
+
+## Dirty_Kids — post 393283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارشات مردمی هیچ شبی مثل امشب به سیریک حمله نشده.
+
+
+همچناان دوبارههععع انفجار جدید در سیریک ادامه دارد
+</div>
+
+## Dirty_Kids — post 393282
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393282_1782600373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: سنتکام رسما مسئولیت حمله به ایران رو به عهده گرفت.
+
+ما دیروز به ایران هشدار دادیم، اما اونا به توافق پایبند نبودن و مجدد به یه کشتی حمله کردن.
+توی حمله امشب، زیرساخت های نظامی، دکل‌های ارتباطی، پدافندهای دفاعی، مراکز ذخیره سازی پهپاد و موشک در جنوب ایران، مورد حمله قرار گرفت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130608
+
+<div align="center">
+  <a href="telegram/content/alonews_130608_1782600374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: توافق آتش‌بس با ایران همیشه کمی آشفته خواهد بود
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130607
+
+<div align="center">
+  <a href="telegram/content/alonews_130607_1782600374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز به نقل از یک مقام آمریکایی: حملات امشب آمریکا به اهداف ایرانی تکمیل شده است
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130606
+
+<div align="center">
+  <a href="telegram/content/alonews_130606_1782600374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرواز سوخترسان آمریکایی در نزدیکی خلیج فارس
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130605
+
+<div align="center">
+  <a href="telegram/content/alonews_130605_1782600374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چندین انفجار در بندرکنگ
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130604
+
+<div align="center">
+  <a href="telegram/content/alonews_130604_1782600374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار در قشم
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووری/بریزید اینجا زود
+⬇️
+
+https://t.me/+1RDlZFB3XPtlNzg0
+https://t.me/+1RDlZFB3XPtlNzg0
+</div>
+
+## alonews — post 130601
+
+<div align="center">
+  <a href="telegram/content/alonews_130601_1782600374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام: ایالات متحده پس از آنکه ایران با هدف قرار دادن نفتکش M/T Kiku در نزدیکی تنگه هرمز امروز صبح آتش‌بس را شکست، به اهداف نظامی ایرانی (نظارت، ارتباطات، دفاع هوایی، انبار پهپاد، مین‌گذارها) حمله کرد.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130600
+
+<div align="center">
+  <a href="telegram/content/alonews_130600_1782600375.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به خبرنگار آکسیوس گفت که آمریکا در واکنش به حمله ایران به یک نفتکش تجاری امروز صبح، اهداف ایرانی نزدیک تنگه هرمز را هدف قرار داده است.
+
+
+✅ @AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/04/07 01:03
 ---
 
