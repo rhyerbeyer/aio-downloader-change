@@ -7,6 +7,736 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/08 01:19
+---
+
+## VahidOOnLine — post 247804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی فضائلی، عضو دفتر حفظ و نشر آثار رهبری جمهوری اسلامی، یکشنبه شب، هفتم تیرماه، گفت به‌دلیل حملات آمریکا و درگیری‌ها در تنگه هرمز، مقام‌های ایرانی جلسه از پیش تغیین‌شده روز یکشنبه برای «مذاکرات فنی» با نمایندگان ایالات متحده را لغو کردند.
+
+این مقام جمهوری اسلامی گفت ادامه مذاکرات، مشروط به تحقق هفت مورد تعهد آمریکا ازجمله مساله پول‌های مسدود شده ایران و همچنین حل مساله «پیچیده لبنان» است.
+
+ساعتی پس از سخنان فضائلی در گفتگوی خبری صداوسیما، آکسیوس به نقل ازسه مقام ارشد آمریکایی، از توافق تهران و واشنگتن برای توقف حملات در تنگه هرمز و ملاقات نمایندگان دو طرف در قطر در روز سه‌شنبه خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247803
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247803_1782683380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال کانادا در نخستین دیدار مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶، با تک‌گل دیرهنگام استفن اوستاکیو، آفریقای جنوبی را یک بر صفر شکست داد و جواز حضور در مرحله بعد را به دست آورد.
+اوستاکیو در دقیقه ۹۱ با شوتی از پشت محوطه جریمه قفل دروازه آفریقای جنوبی را شکست و پیروزی کانادا را رقم زد. کانادایی‌ها در طول مسابقه چندین موقعیت خطرناک خلق کردند و در یکی از مهم‌ترین صحنه‌ها، مدافعان آفریقای جنوبی ضربه سر درک کورنلیوس را از روی خط دروازه دور کردند.
+کانادا در مرحله بعد به مصاف برنده دیدار هلند و مراکش خواهد رفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پایگاه خبری صدای میراث با انتشار گزارشی از کاوش‌های باستان‌شناسان ایرانی در منطقه سلطانیه زنجان، از وقوع غارت‌های باستانی از قبرهای پادشاهان حکومت ایلخانان مغول خبر داد.
+
+حامد ذیفر، معاون کاوش باستان‌شناختی با اشاره به یکی از قبرهای این محوطه باستانی می‌گوید: «در گزارش‌های کاوش‌های سابق،به اشیای مثلا تزیینی اشاره شده بود، منتهی ما چون تخریب و غارت زیاد بوده، در کاوش‌های سال گذشته متاسفانه چیزی پیدا نکردیم.»
+
+به گفته این کارشناس باستان شناسی، دزدی و غارت «مربوط به همان دوره بعد از دوره ایلخانی، مثلا دوره تیموری روی داده که در منابع هم اشاره شده است و احتمالا در دوره قاجار هم تکرار شده است.»
+
+ایلخانانیان مغول، امپراتوری عظیمی را به مدت یک سده در قرن‌های هفتم و هشتم هجری در سرزمین‌های ایران و بخش‌های گسترده‌ای از قفقاز و خاورمیانه کنونی در اختیار داشتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247801
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247801_1782683380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست وزیر و اسرائیل کاتز، وزیر دفاع اسرائیل شامگاه یکشنبه هفتم تیرماه با صدور بیانیه‌ای مشترک اعلام کردند که مواضع و تونل‌های زیرزمینی حزب‌الله را در جنوب لبنان به شدت بمباران و نابود کرده‌اند.
+
+به گفته نتانیاهو و کاتز، این حملات پس از اطلاع به ایالات متحده و در منطقه «مجدل زون» انجام شد.
+
+نخست وزیر و وزیر دفاع اسرائیل تاکید کردند که «ارتش به نابودی زیرساخت‌های حزب‌الله و رفع تهدیدات علیه شهرهای شمالی ادامه خواهد داد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247800
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247800_1782683381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی در ایکس نوشت: «از ۴ تا ۹ ژوئیه (١٣ تا ١٨ تیر)، هم‌زمان با برنامه‌های تبلیغاتی و فریبکارانه رژیم برای دفن بقایای جنایاتکار اعظم، علی خامنه‌ای، و در ششمین ماه خیزش ملی شجاعانه ۱۸ و ۱۹ دی، ایرانیان مهین‌پرست و آزادیخواه در قالب هفته جهانی اقدام برای آزادی ایران، به خیابان‌های سراسر جهان می‌آیند.»
+
+در این بیانیه آمده است این کارزار ملی با گردهمایی‌های روز ۴ ژوئیه (۱۳ تیر) در برابر سفارتخانه‌های ایالات متحده در پایتخت‌های جهان آغاز خواهد شد.
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «پیام ما به ملت و دولت آمریکا در سالروز استقلال این کشور مشخص است: با تروریست‌ها معامله نکنید! مردم ایران را انتخاب کنید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247799
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247799_1782683382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آکسیوس در نخستین ساعت بامداد دوشنبه هشتم تیرماه به وقت تهران (عصر یکشنبه به وقت آمریکا) به نقل از یک مقام ارشد آمریکایی گزارش کرد که ایالات متحده و ایران موافقت کرده‌اند که حملات علیه یکدیگر را متوقف کنند.
+براساس این گزارش دو طرف قصد دارند روز سه‌شنبه در پایتخت قطر دیدار کنند تا به اختلافات خود در مورد تنگه هرمز رسیدگی کنند.
+
+براساس گزارش باراک راوید یک مقام ارشد آمریکایی گفت: «ما تصمیم گرفتیم تمام فعالیت‌های «رزمی» (جنبشی/kinetic) را متوقف کنیم».
+
+همزمان یک مقام دیگر آمریکایی هم به آکسیوس گفت که هر دو طرف «فعلا» عقب‌نشینی خواهند کرد و «شناورها می‌توانند آزادانه حرکت کنند» چرا که قرار است گفتگوهای فنی ادامه یابد. هر دو مقام آمریکایی و یک منبع سوم آگاه، دیدار برنامه‌ریزی‌شده برای روز سه‌شنبه را تایید کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16121
+
+<div align="center">
+  <a href="telegram/content/WithYashar_16121_1782683382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل فیلمی از انفجار تونل در منطقه مجدل، جنوب لبنان، منتشر کرد. ارتش اسرائیل اعلام کرد که این نیروها تونلی را که در واقع یک مجتمع زیرزمینی ساخته شده با استفاده از دانش و فناوری رژیم ایران بود، منهدم کردند. در داخل تونل صدها سلاح و چهار سکوی پرتاب به سمت خاک اسرائیل وجود داشت.
+@withyashar
+</div>
+
+## WithYashar — post 16120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور بحرین: در پی حمله ایران، یک ساختمان مسکونی در منطقه المحرق آسیب دید، اما هیچ خسارت انسانی در پی نداشت. @withyashar
+</div>
+
+## WithYashar — post 16119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه از مذاکرات گفت که قرار بود مذاکرات سه‌شنبه در ابتدا در سوئیس برای رسیدگی به برنامه هسته‌ای ایران برگزار شود. تشدید تنش‌ها آنها را به مکان دیگری منتقل کرد و دوباره بر تنگه هرمز متمرکز شد. به گفته یک مقام آمریکایی و یک منبع آگاه، انتظار می‌رود…
+</div>
+
+## WithYashar — post 16118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری اردن: سپاه به دنبال ترور یکی از فرماندهان سنتکام بود که موفق نشد
+
+@withyashar 🚨🚨🚨🚨
+</div>
+
+## FoxNewsTwitter — post 343546
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343546_1782683385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Sen. Chris Coons was taken to a hospital and treated for minor injuries after a car crash in Delaware, his office said in a statement.
+
+Coons is now home and expected to make a full and swift recovery, his office also confirmed.
+</div>
+
+## pm_afshaa — post 95027
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95027_1782683385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دفتر نتانیاهو: ارتش اسرائیل زیرساخت‌های زیرزمینی حزب‌الله رو در یکی از روستاهای جنوب لبنان نابود کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95026
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95026_1782683386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: یک مقام ایرانی گفته که ایران به دلیل «حملات اخیر و شرایط برآورده‌نشده» در مذاکرات فنی که برای روز یکشنبه برنامه‌ریزی شده بود شرکت نکرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76734
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76734_1782683387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس در نخستین ساعت بامداد دوشنبه هشتم تیرماه به وقت تهران (عصر یکشنبه به وقت آمریکا) به نقل از یک مقام ارشد آمریکایی گزارش کرد که ایالات متحده و ایران موافقت کرده‌اند که حملات علیه یکدیگر را متوقف کنند.
+
+براساس این گزارش دو طرف قصد دارند روز سه‌شنبه در پایتخت قطر دیدار کنند تا به اختلافات خود در مورد تنگه هرمز رسیدگی کنند.
+
+براساس گزارش باراک راوید یک مقام ارشد آمریکایی گفت: «ما تصمیم گرفتیم تمام فعالیت‌های «رزمی» (جنبشی/kinetic) را متوقف کنیم».
+
+همزمان یک مقام دیگر آمریکایی هم به آکسیوس گفت که هر دو طرف «فعلا» عقب‌نشینی خواهند کرد و «شناورها می‌توانند آزادانه حرکت کنند» چرا که قرار است گفتگوهای فنی ادامه یابد.
+
+هر دو مقام آمریکایی و یک منبع سوم آگاه، دیدار برنامه‌ریزی‌شده برای روز سه‌شنبه را تایید کردند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 344857
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344857_1782683387.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «علت اصلی تشدید اختلافات در راس نظام، شکست در برابر آمریکا و اسرائیل و گرفتار شدن در وضعیتی است که هر دو مسیر برای بقایای نظام باخت محسوب می‌شود. توافق به معنای عقب‌نشینی در پرونده هسته‌ای، موشکی و نیروهای نیابتی است و عدم توافق به معنای احتمال جدی باگشت به جنگ گسترده‌تر.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344856
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344856_1782683389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جنگ قدرت در راس بقایای جمهوری اسلامی به مرحله‌ای رسیده که دیگر قابل مهار نیست و مقامات به‌صورت علنی به یکدیگر حمله می‌کنند. با کشته شدن خامنه‌ای، دیگر کسی توان کنترل این اختلافات را ندارد و حتی سپاه نیز به کانون جنگ قدرت میان جناح‌ها و فرماندهان مختلف تبدیل شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344855
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344855_1782683390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش آکسیوس، اختلاف بر سر اجرای تفاهم‌نامه ایران و آمریکا، آتش درگیری را دوباره شعله‌ور کرد.
+
+حملات متقابل در هرمز و پرونده حزب‌الله لبنان و اسرائیل، سرنوشت دور بعدی مذاکرات جمهوری اسلامی و آمریکا را در هاله‌ای از ابهام قرار داده است.
+
+مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 344854
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344854_1782683392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال کانادا در نخستین دیدار مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶، با نتیجه یک بر صفر آفریقای جنوبی را شکست داد و راهی دور بعد شد.
+
+🔹در این مسابقه، استفن اوستاکیو در دقیقه ۹۱ با شوتی تماشایی دروازه آفریقای جنوبی را باز کرد و صعود کانادا را رقم زد.
+
+🔹کانادا در طول مسابقه چندین فرصت گلزنی خلق کرد و در یکی از مهم‌ترین صحنه‌ها، مدافعان آفریقای جنوبی ضربه سر درک کورنلیوس را از روی خط دروازه برگشت دادند و مانع گلزنی این بازیکن شدند.
+
+🔹کانادا در مرحله بعد باید منتظر برنده دیدار هلند و مراکش بماند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344853
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344853_1782683393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی در ایکس نوشت: «از ۴ تا ۹ ژوئیه (١٣ تا ١٨ تیر)، هم‌زمان با برنامه‌های تبلیغاتی و فریبکارانه رژیم برای دفن بقایای جنایاتکار اعظم، علی خامنه‌ای، و در ششمین ماه خیزش ملی شجاعانه ۱۸ و ۱۹ دی، ایرانیان مهین‌پرست و آزادیخواه در قالب هفته جهانی اقدام برای آزادی ایران، به خیابان‌های سراسر جهان می‌آیند.»
+
+در این بیانیه آمده است این کارزار ملی با گردهمایی‌های روز ۴ ژوئیه (۱۳ تیر) در برابر سفارتخانه‌های ایالات متحده در پایتخت‌های جهان آغاز خواهد شد.
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «پیام ما به ملت و دولت آمریکا در سالروز استقلال این کشور مشخص است: با تروریست‌ها معامله نکنید! مردم ایران را انتخاب کنید.»
+https://iranintl.com/202606285803
+</div>
+
+## Shin_Persian — post 7292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 28 Jun 2026 21:26:17 UTC
+
+If Ghalibaf was using Mythos instead of Opus 3.7 MojtabAI KhAImenei would be way more in his favor.
+
+ترجمه خودکار فارسی
+
+اگر قالیباف به جای اوپوس ۳.۷ (Opus 3.7)، از میتوس (Mythos) در هوش مصنوعی مجتبی خامنه‌ای استفاده می‌کرد، اوضاع بسیار بیشتر به نفع او می‌شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7291
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7291_1782683394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 28 Jun 2026 21:14:15 UTC
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7290
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Sun, 28 Jun 2026 21:13:05 UTC
+
+Bitch was keeping nothing but big bills! Here’s Iran-backed Aliya Nassif’s house in Baghdad #Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+جنده هیچی جز اسکناس‌های درشت نگه نمی‌داشت! این خانه عالیه نصیف، وابسته به ایران، در بغداد است #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Faytuks Network ✓ @FaytuksNetwork Sun, 28 Jun 2026 20:25:59 UTC BREAKING: The US and Iran have agreed to stop attacking each other and plan to meet on Tuesday in Doha to work out their dispute over the Strait of Hormuz. - Axios ↩️ توییت…
+</div>
+
+## Shin_Persian — post 7288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Faytuks Network ✓ @FaytuksNetwork
+Sun, 28 Jun 2026 20:25:59 UTC
+
+BREAKING: The US and Iran have agreed to stop attacking each other and plan to meet on Tuesday in Doha to work out their dispute over the Strait of Hormuz. - Axios
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+فوری: ایالات متحده و ایران توافق کرده‌اند که حملات علیه یکدیگر را متوقف کنند و قصد دارند روز سه‌شنبه در دوحه با یکدیگر دیدار کنند تا بر سر حل مناقشه خود در مورد تنگه هرمز گفتگو کنند. - اکسیوس (Axios)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7287
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7287_1782683395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Sun, 28 Jun 2026 20:48:53 UTC
+
+The IDF publishes footage showing the demolition of a major Hezbollah tunnel under the southern Lebanon village of Majdal Zoun this evening.
+
+ترجمه خودکار فارسی
+
+ارتش دفاعی اسرائیل (IDF) تصاویری را منتشر کرد که تخریب یک تونل بزرگ حزب‌الله در زیر روستای مجدل زون در جنوب لبنان را در عصر امروز نشان می‌دهد.
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4507
+
+<div align="center">
+  <img src="telegram/content/Iliaen_4507_1782683397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۰:۰۰ بامداد دوشنبه؛ چندین اتوبان در نقاط مختلف تهران و همچنین ورودی‌های غرب شهر تهران توسط ایست بازرسی تحت کنترل شدید است.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 222152
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222152_1782683398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ رئيس‌جمهوری آمریکا، «کمونیسم» را «بزرگترین تهدید» علیه آمریکا از زمان جنگ جهانی اول، جنگ جهانی دوم، پرل هاربر یا یازده سپتامبر خواند. آقای ترامپ این مطلب را روز یکشنبه در شبکه تروت‌سوشال منتشر کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائيل تونلی ۲۰۰ متری را که با تجهیزات «جمهوری اسلامی» در جنوب لبنان ساخته شده بود نابود کرد
+
+◾️ارتش اسرائیل اعلام کرد نیروهای لشکر ۹۱ این کشور یک تونل زیرزمینی را در منطقه روستای مجدل زون در جنوب لبنان، در محدوده موسوم به «منطقه امنیتی»، کشف و منهدم کرده‌اند، تونلی که به گفته ارتش اسرائيل با استفاده از تجهیزات جمهوری اسلامی ایران ساخته شده بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165741.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222150
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222150_1782683399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دامون محمدی در برنامه تفسیر خبر: پرزیدنت ترامپ می‌تواند فضای داخلی جمهوری اسلامی را متزلزل کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پشتیبانی فرماندهی جنوبی ایالات متحده از کمک‌های آمریکا به زلزله‌زدگان ونزوئلا
+
+◾️ستاد «فرماندهی جنوبی ایالات متحده» روز یکشنبه ۷ تیر با انتشار تصویری از یک هلی‌کوپتر «سی‌هاوک» در حال برخاستن از روی کشتی جنگی «بلینگز» در دریای کارائیب اعلام کرد که در حال پشتیبانی از کمک‌های آمریکا به مردم ونزوئلا است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165740.html
+@FarsiVOA
+</div>
+
+## RadioFarda — post 158864
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158864_1782683400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وب‌سایت خبری اکسیوس می‌نویسد که به گفته یک مقام ارشد آمریکایی، ایالات متحده و ایران توافق کرده‌اند حمله به یکدیگر را متوقف کنند؛ همزمان دو طرف قصد دارند روز سه‌شنبه در پایتخت قطر دیدار کنند تا اختلاف خود بر سر تنگه هرمز را حل‌وفصل کنند.
+
+🔸اکسیوس نوشت که به گفته یک منبع آگاه از مذاکرات، گفت‌وگوهای روز سه‌شنبه در ابتدا قرار بود در سوئیس برگزار شود و موضوع آن برنامه هسته‌ای ایران باشد. اما تشدید تنش‌ها باعث شد محل مذاکرات تغییر کند و محور آن نیز به تنگه هرمز منتقل شود.
+
+🔸به گفته یک مقام آمریکایی و یک منبع آگاه، انتظار می‌رود نیک استوارت، رئیس تیم فنی آمریکا، در این مذاکرات شرکت کند.
+
+🔸اکسیوس می‌نویسد که کاخ سفید هنوز به درخواست این رسانه برای اظهارنظر پاسخ نداده است.
+
+🔸آتش‌بس بین ایران و آمریکا با از سرگیری حملات از سوی دو طرف و تهدید دونالد ترامپ برای شروع دوباره جنگ و «تمام کردن کار»، در وضعیت شکننده‌ای قرار گرفته است.
+
+🔸به گزارش اکسیوس، درگیری‌های تازه ناشی از برداشت‌های متفاوت از تفاهم‌نامه پایان جنگ بوده است؛ به‌ویژه درباره مفاد مربوط به تنگه هرمز.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این وسط پاکستان هم اومده به افغانستان حمله ی هوایی کرده و تا الان 30 تا کشته داشته ...
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23481
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23481_1782683401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ویدیویی از حملات اسرائیل به جنوب لبنان
+
+چیزی نیست دارن به شرط اول مذاکره عمل میکنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسرائیل داره سنگین جنوب لبنان رو میزنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23479
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23479_1782683403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دلار های کشف شده تو خونه یکی از نماینده های پارلمان عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23478
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23478_1782683404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک جوان کرمانی به خاطر بالا بودن صدای ضبط ماشین کشته شد!
+
+یک جوان ۱۹ ساله اثر تیراندازی ماموران امنیتی در سد لاله‌زار کرمان کشته شد.
+براساس گزارش منابع میدانی روز جمعه، پنجم تیرماه ۱۴۰۵، در منطقه تفریحی سد لاله‌زار کرمان، مأموران امنیتی جمهوری اسلامی به سوی یک جوان شلیک کردند. منابع خبری هویت او را امیرمحمد کاظمی، ۱۹ ساله، معرفی کرده‌اند. گلوله به سر او اصابت کرد و متأسفانه وی جان خود را از دست داد. علت تیراندازی، بالا بودن صدای ضبط خودروی این جوان اعلام شده است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23477
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23477_1782683405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌هایی از بازررسی شدید چندین اتوبان در نقاط مختلف تهران و همچنین ورودی‌های غرب شهر تهران!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عارف،معاون پزشکیان :
+
+تشیع رهبر شهید مهمترین اتفاق قرن بیست و یکمه.
+
+
+
+پ ن : کشتنشم همینطور
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23475
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23475_1782683406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این کلیپ لبنانی‌ها در ۲۴ ساعت گذشته در اینستاگرام عربی، بیشتر از ۱۰ میلیون لایک خورد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285307
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285307_1782683408.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشریه آمریکایی اکسیوس از «توافق» میان تهران و واشنگتن برای توقف حملات در خلیج فارس و مذاکرات مستقیم طی چند روز آینده در دوحه قطر خبر داده است.
+
+باراک راوید، گزارشگر اکسیوس عصر یکشنبه نوشت: «یک مقام ارشد آمریکایی می‌گوید ایالات متحده و ایران توافق کرده‌اند حملات علیه یکدیگر را متوقف کنند. به گفته این مقام، دو طرف قرار است روز سه‌شنبه در دوحه، پایتخت قطر، دیدار کنند تا درباره اختلافات مربوط به تنگه هرمز گفت‌وگو و راه‌حلی پیدا کنند.»
+
+آن طور که اکسیوس گزارش کرده موضوع این مذاکرات بر تنگه هرمز متمرکز خواهد بود.
+
+ایران درگیری‌های جدید با آمریکا را به مداخله این کشور در مدیریت ایران بر تنگه هرمز نسبت داده است.
+
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در سفر به عراق گفت که بازگشایی کامل تنگه هرمز طبق تفاهم با آمریکا، «صرفاً» بر عهده تهران است و هرگونه مداخله باعث اخلال در این روند و تشدید تنش می‌شود.
+
+
+📷Reuters
+https://bbc.in/4f8fCyb
+@BBCPersian
+</div>
+
+## BBCPersian — post 285306
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285306_1782683409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در نخستین مسابقه مرحله حذفی جام جهانی، تیم ملی کانادا موفق شد با تک گلی که در نخستین دقیقه وقت‌های تلف شده زد آفریقای جنوبی را شکست دهد و راهی مرحله یک هشتم شود.
+
+کانادا که برای این مسابقه به لس‌آنجلس رفته بود و خارج از خانه بازی می‌کرد تا دقیقه ۹۰ بازی شانه به شانه‌ای با آفریقای جنوبی به نمایش گذاشت و اکنون با این پیروزی نخستین میزبان در مرحله یک هشتم خواهد بود.
+
+
+
+📷Reuters
+https://bbc.in/4f8fCyb
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393363
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393363_1782683410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حضرت ابراهیم وقتی دید یوسف رو با زلیخا امتحان کردن ولی اونو با آتیش:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏برای اولین بار کارما زد قانون احتمالات رو‌ گایید😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393361
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393361_1782683410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هر وقت احساس تنهایی کردید؛
+
+یاد این بیفتید که یه موجود میکروسکوپی به نام دمودکس روی صورت شما زندگی میکنه و شما كل دنیای اون محسوب میشید...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393360
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393360_1782683411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد مانتو تیشرت هم داره کم‌کم حذف میشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393359
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393359_1782683414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 واکنش یه پسر بعد از ۳ سال رابطه، وقتی دوس دخترش براش عکس فرستاده:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«بتمن لاگوس دِ مورنو»؛ یک فرد نقاب‌دار که این روزها در مکزیک به‌شدت وایرال شده، به‌خاطر تعقیب و دستگیری سارقان موتورسیکلت در طول شب شهرت پیدا کرده 😂اونارو میگیره و با چسب به چراغ برق میچسبونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌ها شما نتونستین😛😛😁
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393354
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393354_1782683415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینبار صحبتها و پیشگویی های زنده‌یاد مانوک‌خدابخشیان از فوتبال
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130781
+
+<div align="center">
+  <a href="telegram/content/alonews_130781_1782683417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از یک مقام آمریکایی: کشتی‌ها می‌توانند در طول مذاکرات فنی آزادانه در تنگه هرمز تردد کنند
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130780
+
+<div align="center">
+  <a href="telegram/content/alonews_130780_1782683418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قلعه نویی: استعفا نمیدم و آماده میشیم برای جام‌ملت‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130779
+
+<div align="center">
+  <a href="telegram/content/alonews_130779_1782683418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈‏این تنها بخش کوچکی از دلارها و طلاهای کشف‌شده در منزل یکی از نمایندگان پارلمان عراق است.
+
+
+🔴‏اگر روزی خانه برخی مسئولان جمهوری اسلامی هم به همین شکل بازرسی شود، چه چیزهایی پیدا خواهد شد؟!
+
+
+🔴امروز در عراق بیش از ۱۲۰ نفر به اتهام فساد بازداشت شدند...
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130778
+
+<div align="center">
+  <a href="telegram/content/alonews_130778_1782683418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سیل فراوان تجهیزات سنتکام به منطقه
+
+این ویدیو که ۲۰ هزار برابر سریعتر شده؛ خلاصه‌ای از فعالیت سنگین ترابری هوایی آمریکا طی ۷ روز اخیر در منطقه است که به شدت مهمات جابجا میکنند
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130777
+
+<div align="center">
+  <a href="telegram/content/alonews_130777_1782683420.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر رهگیری موشک‌در شمال اردن 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/08 00:17
 ---
 
