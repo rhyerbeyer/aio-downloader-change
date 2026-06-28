@@ -7,6 +7,496 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/08 02:40
+---
+
+## VahidOOnLine — post 247809
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247809_1782688230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️احمد بخشایش اردستانی، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی درباره «نفوذ» به مراکز حساس و تصمیم‌گیر در کشور گفت: «رهبری را فکر می‌کنید چگونه متوجه شدند در فلان روزی جلسه دارد؟ معلوم است جاسوس بغل گوششان بوده است؛ این موارد باید مورد بحث قرار بگیرد.» او افزود: باید بیشترین تمرکز ما بر شناسایی جاسوسان واقعی باشد؛ افرادی که از نظر ظاهر هیچ تفاوتی با دیگران ندارند و شبیه به خود ما هستند و یا ریش دارند. بخشایش اردستانی همچنین گفت: «بخشایش اردستانی ادامه داد: یکی از مسائل مهمی که با آن مواجه هستیم، وضعیت ایرانیان خارج از کشور است که بخشی از آن‌ها در نقش اپوزیسیون فعالیت کرده، تجمع برگزار می‌کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247808
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247808_1782688231.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به دنبال یورش یکشنبه صبح نیروهای امنیتی به خانه مقامات عراق که متهم به فساد مالی بودند، تصاویری از توقیف مقادیر زیادی دلار و طلا از این خانه‌ها در حال انتشار است. به گزارش الحدث، بیش از ۲۰ میلیارد دینار عراق (معادل حدود ۱۵ میلیون و ۵۰۰ هزار دلار) و مقادیری طلا در منزل عالیه نصیف، نماینده پارلمان عراق، کشف شد. او به همراه پسرش، که پیش‌تر رئیس دفتر محمد شیاع السودانی، نخست‌وزیر پیشین عراق، بود، بازداشت شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247807
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247807_1782688232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد که موج گرمای بی‌سابقه در اروپا همچنان ادامه دارد و دمای هوا روز یکشنبه در بخش‌هایی از این قاره به ۴۰ درجه سانتی‌گراد رسید. آژانس بهداشت عمومی فرانسه اعلام کرد بیش از هزار مورد مرگ اضافی در جریان این موج گرما ثبت شده و انتظار می‌رود با تکمیل آمار، شمار قربانیان افزایش یابد.
+به گفته این آژانس، بیشتر جان‌باختگان افراد مسن بوده‌اند و آمار مرگ‌ومیر در مراکز مراقبتی و خانه‌های شخصی هنوز به طور کامل جمع‌آوری نشده است.
+
+دانشمندان این موج گرما را شدیدترین موج گرمای ثبت‌شده در اروپا توصیف کرده‌اند و می‌گویند بدون تغییرات اقلیمی ناشی از فعالیت‌های انسانی، وقوع چنین رویدادی تقریبا غیرممکن بود.
+گرمای شدید علاوه بر افزایش تلفات، حمل‌ونقل، تولید برق و کشاورزی را نیز در چندین کشور اروپایی مختل کرده است. در آلمان بخشی از خطوط ریلی با محدودیت روبه‌رو شد، نیروگاه هسته‌ای پاکش در مجارستان به دلیل افزایش دمای آب رود دانوب تولید برق را کاهش داد و کاهش آب رود پو در ایتالیا نگرانی‌هایی درباره کشاورزی ایجاد کرده است.
+هواشناسان پیش‌بینی کرده‌اند از اوایل هفته جاری دمای هوا در بخش‌های غربی اروپا کاهش یابد.
+ht
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247806
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247806_1782688233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت کشور قطر روز یکشنبه هفتم تیر اعلام کرد که یک تبعه این کشور بر اثر جراحات ناشی از اصابت ترکش در جریان «عملیات نظامی در منطقه»، پس از مفقود شدن شناور حامل او و یک فرد دیگر، جان خود را از دست داده است.
+
+به گفته وزارت کشور قطر، این شناور پس از عملیات جستجویی که از یک روز قبل آغاز شده بود، در ساعات اولیه صبح یکشنبه پیدا شد. یکی دیگر از سرنشینان همین قایق هم مجروح شده است.
+
+قطر به محل دقیق حادثه اشاره‌ای نکرد و همچنین توضیحی درباره اینکه این ترکش‌ها با پهپادهای ایرانی که روز یکشنبه به سمت پایگاه‌های نظامی آمریکا در کویت و بحرین شلیک شدند، مرتبط بوده است یا خیر.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247805
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247805_1782688233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری آسوشیتدپرس یکشنبه هفتم تیرماه به نقل از مقام‌های دولت پاکستان گزارش داد که نیروهای امنیتی این کشور در این روز بر اساس اطلاعات جاسوسی، یک عملیات زمینی را در مرز پاکستان و افغانستان انجام دادند.
+
+براساس این گزارش، نیروهای امنیتی پاکستان به مخفیگاه‌های شبه‌نظامیان «به‌صورت هدفمند» حمله کردند و ۲۹ شبه‌نظامی را کشتند.
+
+به گزارش آسوشیتدپرس عطاالله تارار، وزیر اطلاع‌رسانی پاکستان، با انتشار پیامی در اکس و با تائید این خبر نوشت که «پاکستان این عملیات را در پاسخ به حملات متعدد شبه‌نظامیان در سراسر کشور آغاز کرده است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16125
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور جان کندی : ایران الان مثل یک پیرمرد خیلی پیر است که توانایی گرفتن سرماخوردگی را ندارد. ما آنها را به شدت تضعیف کرده‌ایم. نباید تسلیم شویم
+برای من عدم توافق قابل قبول است؛ توافق بد قابل قبول نیست. در پایان یک دوره زمانی معقول، ۶۰ روز یا هر چه که باشد، فکر می‌کنم باید دوباره وارد شویم و دوباره مثل گربه‌زن با آنها برخورد کنیم
+باید آنها را بخوریم و استخوان‌ها را روی زمین تف کنیم
+@withyashar
+آخرش حرف منو میزنه منظورش اینه گربه گیرشون کنیم‌😂😂😂
+</div>
+
+## WithYashar — post 16124
+
+
+
+
+## WithYashar — post 16123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📩 درخواست همکاری اگر علاقه‌مند به همکاری هستید برای کمک مسیج های قبلی پرید ، لطفاً اطلاعات زیر را از طریق تلگرام برای دوباره به این شکل ارسال کنید: نام یا لغب نوع فعالیت / حوزه کاری: سابقه کاری: آدرس لینکدین: (خیلی خوبه باشه) آدرس اینستاگرام: (اختیاری) آیدی…
+</div>
+
+## WithYashar — post 16122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های افغانستان گزارش دادند پاکستان چند نقطه را در ولایت‌های کنر، پکتیا و پکتیکا هدف قرار داده است.
+هم‌زمان، پاکستان اعلام کرد مواضعی را در مناطق مرزی با افغانستان هدف گرفته است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343548
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343548_1782688234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX News correspondent @foymeetsworld reports from Caracas, where rescue crews are racing against time after devastating twin earthquakes leveled buildings and trapped people beneath the rubble.
+
+More than 72 hours after the disaster, military personnel, police and international rescue teams continue searching for survivors as families wait for news of missing loved ones.
+
+Foy has the latest from the scene, where officials warn time is running out to find anyone still alive beneath the debris.
+</div>
+
+## FoxNewsTwitter — post 343547
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343547_1782688235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Another Mamdani-backed democratic socialist candidate is under the microscope.
+
+Claire Valdez is facing backlash after past comments supporting the elimination of TSA PreCheck and the nationalization of the airline industry resurfaced following her Democratic primary win in New York's 7th Congressional District.
+
+The controversy adds to the broader debate over the direction of the Democratic Party as progressive candidates continue to notch victories in New York.
+</div>
+
+## pm_afshaa — post 95028
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95028_1782688235.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های افغانستان:
+پاکستان چند نقطه رو در ولایت‌های کنر، پکتیا و پکتیکا هدف قرار داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 344865
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344865_1782688236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سایت اتلتیک در گزارشی از بازی الجزایر و اتریش که در نهایت منجر به حذف ایران از جام جهانی ۲۰۲۶ شد، نوشت: اتریش و الجزایر به همان تساوی‌ای رسیدند که هر دو را راهی مرحله بعد کرد. این همان نتیجه‌ای بود که همه، به‌ویژه ایرانی‌ها، انتظارش را داشتند؛ اما نه با مسابقه‌ای چنین دیوانه‌وار.
+
+🔹تماشاگران صبرشان را از دست داده بودند؛ یک ساعت نخست مسابقه جذاب و پرهیجان بود، اما پس از آن هر دو تیم ترجیح دادند عقب بنشینند. در ۳۰ دقیقه بعدی، عملا هیچ اتفاقی رخ نداد.
+
+🔹با نتیجه ۲ بر ۲، الجزایر و اتریش انگار می‌توانستند همان‌جا با هم دست بدهند، تساوی را بپذیرند و زمین را ترک کنند.
+
+🔹از دقیقه ۶۵ تا ۹۱، الجزایر که تقریبا هیچ فشاری را تحمل نمی‌کرد، ۲۷۹ پاس صحیح از مجموع ۲۸۲ پاس ثبت کرد. اتریش نیز ۸۰ پاس صحیح از ۸۵ پاس داشت. در تمام این مدت تنها دو ضربه به سمت دروازه زده شد.
+
+🔹تساوی برای صعود هر دو تیم به مرحله حذفی جام جهانی کافی بود، اما این نیم ساعت به یکی از خسته‌کننده‌ترین و حسابگرانه‌ترین مقاطع در این جام تبدیل شد.
+
+🔹روایت کامل از این مسابقه جنجالی را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344864
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344864_1782688237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافت‌شده نشان می‌دهد جمعی از ایرانیان ساکن سن‌دیگو، روز یک‌شنبه هفتم تیر، در حمایت از انقلاب ملی ایران رالی برگزار کردند.
+
+شرکت‌کنندگان ضمن اعلام انزجار از بازیکنان تیم فوتبال که در مسابقات جام جهانی صدای مردم ایران نبودند، خواستار آزادی رشید مظاهری، دروازه‌بان پیشین تیم ملی فوتبال ایران، شدند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344863
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344863_1782688238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیرحسین میراسماعیلی، روزنامه‌نگار، درباره تشدید بحران معیشتی در ایران و افزایش نارضایتی‌ها در میان کارگران، معلمان و بازنشستگان، گفت: «این مساله می‌تواند یکی از بزرگ‌ترین چالش‌ها و تهدیدها برای جمهوری اسلامی باشد.»
+
+او افزود: «چند روز پیش نیز مسعود پزشکیان در سخنانش به‌نوعی به این نگرانی اشاره کرد و گفت که از احتمال بازگشت اعتراضات مردمی به دلیل مشکلات معیشتی نگران است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344862
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344862_1782688241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد که موج گرمای بی‌سابقه در اروپا همچنان ادامه دارد و دمای هوا روز یکشنبه در بخش‌هایی از این قاره به ۴۰ درجه سانتی‌گراد رسید. آژانس بهداشت عمومی فرانسه اعلام کرد بیش از هزار مورد مرگ اضافی در جریان این موج گرما ثبت شده و انتظار می‌رود با تکمیل آمار، شمار قربانیان افزایش یابد.
+به گفته این آژانس، بیشتر جان‌باختگان افراد مسن بوده‌اند و آمار مرگ‌ومیر در مراکز مراقبتی و خانه‌های شخصی هنوز به طور کامل جمع‌آوری نشده است.
+
+دانشمندان این موج گرما را شدیدترین موج گرمای ثبت‌شده در اروپا توصیف کرده‌اند و می‌گویند بدون تغییرات اقلیمی ناشی از فعالیت‌های انسانی، وقوع چنین رویدادی تقریبا غیرممکن بود.
+گرمای شدید علاوه بر افزایش تلفات، حمل‌ونقل، تولید برق و کشاورزی را نیز در چندین کشور اروپایی مختل کرده است. در آلمان بخشی از خطوط ریلی با محدودیت روبه‌رو شد، نیروگاه هسته‌ای پاکش در مجارستان به دلیل افزایش دمای آب رود دانوب تولید برق را کاهش داد و کاهش آب رود پو در ایتالیا نگرانی‌هایی درباره کشاورزی ایجاد کرده است.
+هواشناسان پیش‌بینی کرده‌اند از اوایل هفته جاری دمای هوا در بخش‌های غربی اروپا کاهش یابد.
+ht
+</div>
+
+## IranIntlTV — post 344861
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344861" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: دو راهی مرگبار نظام
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344860
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344860_1782688242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پیامی منتسب به مجتبی خامنه‌ای به مناسبت هفته قوه قضاییه، آمریکا و اسرائیل به ارتکاب جنایت متهم شده‌اند و بر پیگیری این پرونده‌ها در دادگاه‌های داخلی و بین‌المللی تاکید شده است.
+
+کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال، درباره این بیانیه گفت: «مجتبی خامنه‌ای می‌خواهد جنگ را به واقعیتی پایدار و ادامه‌دار در ساختار جمهوری اسلامی تبدیل کند؛ چارچوبی که در آن قوه قضاییه به دستگاهی برای تنظیم، نظارت و حراست از روایت رسمی جمهوری اسلامی بدل می‌شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر سیاسی، گفت: «حذف تیم ملی فوتبال جمهوری اسلامی از جام جهانی، برای تیمی رقم خورد که به‌دلیل مواضع برخی بازیکنانش پس از کشتار دی‌ماه، از حمایت بخش بزرگی از مردم برخوردار نبود. اظهاراتی مانند "عادی بودن اختلافات در توجیه کشتار دی ماه" از سوی مهدی طارمی و "داخلی بودن موضوع" از سوی رامین رضاییان، خشم بسیاری از مردم و خانواده‌های جاویدنام‌ها را برانگیخت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344858
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344858_1782688245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افزایش حملات سپاه پاسداران به کشورهای منطقه و حملات متقابل ایالات متحده به مناطقی در جنوب ایران، برگزاری دور بعدی مذاکرات تهران و واشینگتن را در هاله‌ای از ابهام قرار داده است.
+
+سفیر ایالات متحده در سازمان ملل نیز هشدار داد که فرصت دیپلماسی همیشگی نیست.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 222155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آکسیوس: جمهوری اسلامی و آمریکا این هفته در قطر مذاکره می‌کنند و کشتی‌ها هم می‌توانند «آزادانه» حرکت کنند
+
+◾️باراک راوید خبرنگار سایت خبری آکسیوس، به نقل از یک مقام آمریکایی که نام او را منتشر نکرده است، روز یکشنبه گزارش داد که جمهوری اسلامی و آمریکا روز سه‌شنبه در پایتخت قطر برای حل اختلافات خود درباره تنگه هرمز دیدار می‌کنند و توافق کرده‌اند که حملات علیه یکدیگر را متوقف کنند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165749.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222154
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222154_1782688248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اسرائيل روز یکشنبه اعلام کرد که یک تونل ۲۰۰ متری زیرزمینی را که با تجهیزات جمهوری اسلامی در لبنان ساخته شده بود، منهدم کرد. ارتش اسرائيل گفت در این تونل تسلیحات و محل پرتاب موشک پیدا شده بود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آغاز «بزرگ‌ترین» عملیات ضد فساد تاریخ نوین عراق
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18287
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18287_1782688248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+F-35 Lightning II
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتگوی کامل شاهزاده رضا پهلوی درباره مسیر آزادی ایران و سرنوشت جمهوری اسلامی!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری اردن : سپاه تو حملات خودش به دنبال ترور یکی از فرمانده های سنتکام بود که موفق نشد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23483
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23483_1782688250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ورود سنگین تجهیزات نظامی توسط امریکا به خاورمیانه تو هفته ی گذشته
+
+این حجم از تجهیزات خبر از یه عملیات بزرگ تو ماه های آینده میده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 393374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ رضا کینگ کونگم اگر میخوای تو بازی های جام جهانی از فرم های من استفاده کنی عضو کانالم شو 
+👇
+👇
+👇 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A7 
+⚡️ رضام ، کینگ کونگش ولی یادت باشه 😅
+</div>
+
+## Dirty_Kids — post 393373
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393373_1782688252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ رضا کینگ کونگم اگر میخوای تو بازی های جام جهانی از فرم های من استفاده کنی عضو کانالم شو 
+👇
+👇
+👇
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A7
+
+⚡️ رضام ، کینگ کونگش ولی یادت باشه 😅
+</div>
+
+## Dirty_Kids — post 393372
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393372_1782688255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393371
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393371_1782688255.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه از فوتبال خسته شدین میتونید زیباترین ورزش «والیبال ساحلی» یکمی ببینید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393368
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انباری والتر وایت نیست، خانه یکی از نمایندگان مجلس عراق است.
+
+دیشب توی عراق کودتا شده
+و ریختن خونه بعضی نماینده ها...
+‏
+این تنها بخش کوچکی از دلارها و طلاهای کشف‌شده در منزل یکی از نمایندگان پارلمان عراق است.
+اگر روزی خانه برخی مسئولان جمهوری اسلامی هم به همین شکل بازرسی شود، چه چیزهایی پیدا خواهد شد؟!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393367
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393367_1782688258.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حلال‌ خورترین انسان زمین، ساقیِ ایشونه. مملکت نیست که، رسما دیوونه خونست :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393366
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393366_1782688260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی میفهمی یه چیزاییم هست که باشگاه نمیتونه درست کنه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393365
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393365_1782688261.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با نزدیک شدن به مراسم چال کردن موشعلی، روافض قحبه در حال زمینه‌چینی برای توجیه غیبت موشتبا هستند با این خدعه که تا زمانی روافض انتقام نگیرن موشتبا بی موشتبا،
+
+ممدباقر شغال طرقبه هم که چندی پیش اعلام کرد انتقام یعنی ظهور عمام زمان که بیاد بره قدس رو آزاد کنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393364
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393364_1782688262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه تیکه دیگه از سرطان «عشق‌ابدی» برزیلیارو ببینید
+
+زیدشو در حال خیانت از تو مانیتور میبینه :)))))
+یجور ری‌اکت نشون داد گفتم الان جزیره‌رو به خاک‌و‌خون میکشه
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130783
+
+<div align="center">
+  <a href="telegram/content/alonews_130783_1782688265.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه‌های افغانستان گزارش دادند پاکستان چند نقطه را در ولایت‌های کنر، پکتیا و پکتیکا هدف قرار داده است.
+
+
+🔴هم‌زمان، پاکستان اعلام کرد مواضعی را در مناطق مرزی با افغانستان هدف گرفته است.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130782
+
+<div align="center">
+  <a href="telegram/content/alonews_130782_1782688265.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تهیه کننده برنامه مشهور تخت گاز (top gear):
+ایران به طرز خیره‌کننده‌ای زیبا بود، میخواستم برنامه‌ام را در ایران بسازم اما به من اجازه ورود ندادند
+
+
+✅ @AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/04/08 01:19
 ---
 
