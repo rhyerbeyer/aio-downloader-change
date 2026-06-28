@@ -7,6 +7,1101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/07 05:27
+---
+
+## VahidOOnLine — post 247660
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247660_1782611875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال جمهوری دموکراتیک کنگو با پیروزی ۳ بر ۱ مقابل ازبکستان در شهر آتلانتا، موفق شد پس از ۵۲ سال دوری از جام جهانی، صعود خود را به مرحله ۱/۳۲ نهایی این رقابت‌ها قطعی کند. در این دیدار سرنوشت‌ساز از گروه ۱۱ (K)، ابتدا الدور شومورودوف، کاپیتان ازبکستان، در دقیقه ۱۰ تیمش را پیش انداخت تا کار برای کنگو گره بخورد. با این حال، فشارهای نماینده آفریقا در نیمه دوم جواب داد و یوآن ویسا در اواسط این نیمه از روی نقطه پنالتی گل تساوی را به ثمر رساند. در ادامه، فیستون مایله، بازیکن تعویضی کنگو، در دقیقه ۷۸ با یک ضربه ظریف و تماشایی گل دوم را وارد دروازه کرد و سرانجام ویسا در وقت‌های تلف‌شده با ثبت گل دوم خود، پیروزی درخشان کنگو را کامل کرد.
+با این نتیجه، جمهوری دموکراتیک کنگو با کسب ۴ امتیاز به عنوان یکی از بهترین تیم‌های سوم گروه‌ها راهی دور بعد شد تا روز چهارشنبه در همین ورزشگاه به مصاف انگلستان (صدرنشین گروه L) برود. در سوی دیگر، تیم ملی ازبکستان در نخستین حضور تاریخ خود در جام جهانی، بدون کسب امتیاز از این رقابت‌ها خداحافظی کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247659
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247659_1782611876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیروی دریایی سپاه پاسداران بامداد یکشنبه هفتم تیرماه، با انتشار بیانیه‌ای در واکنش به حملات اخیر آمریکا اعلام کرد «شلیک‌های کور آمریکا به سیریک» معمای اشراف این نیرو بر تنگه هرمز را حل نخواهد کرد.
+در این بیانیه آمده است شلیک به «متخلفان» راه عبور را به دیگر شناورها یادآوری می‌کند. همچنین با تهدید پایگاه‌های آمریکایی در منطقه تاکید شده است: «حساب پایگاه‌های آمریکایی منطقه جداست. جهنم را در این روزها تجربه خواهند کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام)، بامداد یکشنبه هفتم تیرماه، با انتشار تصاویری اعلام کرد که جنگنده‌های نیروی دریایی و نیروی هوایی آمریکا عملیات گسترده‌ای را علیه مواضع ایران انجام داده‌اند. به گفته سنتکام، این حملات در پاسخ به حمله پهپادی اخیر به نفتکش «ام‌تی کیکو» (M/T Kiku) صورت گرفته و در جریان آن، ۱۰ هدف نظامی در چند نقطه مختلف در درون و اطراف تنگه هرمز بمباران شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247657
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247657_1782611876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی نیروی دریایی سپاه پاسداران در پیامی نوشت: «شلیک‌های کور آمریکا به سیریک معمای اشراف ما بر تنگه را حل نمی‌کند. اما شلیک‌های ما به متخلفین، راه روشن عبور را به باقی شناورها یادآوری می‌کند. حساب پایگاه‌های آمریکایی منطقه جداست. جهنم را در این روزها تجربه خواهند کرد.»
+
+پیش‌تر روابط عمومی سپاه از حمله پهپادی و موشکی نیروهای دریایی و هوافضای سپاه پاسداران به هشت زیرساخت ارتش آمریکا در کویت و بحرین در بامداد یکشنبه خبر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247656
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247656_1782611877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی ایالات متحده، سنتکام، با انتشار ویدیویی اعلام کرد که جنگنده‌های نیروی دریایی و نیروی هوایی آمریکا بامداد یک‌شنبه در واکنش به حمله پهپادی جمهوری اسلامی به نفتکش «ام‌تی کیکو»، ۱۰ هدف نظامی جمهوری اسلامی را در چند نقطه تنگه هرمز و مناطق اطراف آن هدف حمله قرار دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247655
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247655_1782611877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی سپاه اعلام کرد که نیروهای دریایی و هوا فضای سپاه طی عملیات مشترک موشکی و پهپادی در ساعت ۲ الی ۳ بامداد یکشنبه، با پرتاب موشک‌های بالستیک و پهپاد به سوی هشت زیرساخت مهم ارتش آمریکا در پایگاه علی السالم کویت و ناوگان پنجم دریایی در بندر سلمان بحرین حمله کردند.
+در بیانیه سپاه آماده است که ارتش آمریکا اوایل بامداد یکشنبه، به پنج پست ساحلی جمهوری اسلامی حمله کرده بود.
+سپاه اعلام کرد که بر اساس تفاهم‌نامه اسلام‌آباد، ترتیبات کنترل عبور و مرور در تنگه هرمز با جمهوری اسلامی است و از این به بعد با کشتی‌های متخلف قوی‌تر از گذشته برخورد خواهد شد و برخورد با حمله دشمن به هر بهانه‌ای که باشد، پاسخی خردکننده خواهد داشت.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247654
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247654_1782611878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آیین‌های سوگواری مربوط به محرم در گیلان رنگ و بوی فرهنگ بومی این منطقه را به خود گرفته است. در میان این آیین‌ها، «کرنا نوازی» یکی از کهن‌ترین سنت‌های عزاداری در شرق گیلان است؛ نوایی حزن‌انگیز که بخشی از میراث معنوی مردم این منطقه را زنده نگه می‌دارد.
+کرنای لاهیجان، از دسته سازهای بادی‌ بدون قمیش (زبانه) و یکی از سازهای بومی منطقه است؛ سازی با صدایی بلند که پیش‌تر برای خبر دادن، فراخواندن مردم و اعلام رویدادهای مهم استفاده می‌شد، اما امروز بیشتر در مراسم عزاداری شنیده می‌شود. این ساز معمولا به صورت گروهی نواخته می‌شود و گروه‌های پنج تا هشت نفره کرناچیان، آن را اجرا می‌کنند.
+کرنا نوازی هنوز در برخی مناطق شرق گیلان، از جمله آستانه اشرفیه، رحیم‌آباد، واجارگاه و کلاچای، پا برجاست.
+یکی از بخش‌های تامل‌برانگیز این سنت، نواختن کرنا در آرامستان‌هاست. بنا بر روایت‌های محلی، کرناچیان هرگاه وارد گورستانی می‌شدند، بر سر مزار جوانانی که همان سال از دنیا رفته بودند، لحظاتی می‌ایستادند و کرنا می‌نواختند.
+اجرای این آیین در مناطقی مانند بی‌بالان و مزار امیربنده کلاچای قدمتی دیرینه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247653
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247653_1782611878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روابط عمومی سپاه پاسداران، با انتشار بیانیه‌ای از حمله مشترک موشکی و پهپادی به مواضع ارتش ایالات متحده در منطقه خبر داد. بر اساس این بیانیه، نیروهای دریایی و هوافضای سپاه در ساعت ۲ تا ۳ بامداد یکشنبه، ۷ تیرماه، هشت زیرساخت کلیدی ارتش آمریکا را در پایگاه «علی‌السالم» کویت و ناوگان پنجم دریایی در بندر «سلمان» بحرین هدف قرار داده‌اند. سپاه این عملیات را «پاسخی قاطع» به حملات هوایی بامداد یکشنبه آمریکا به پنج پست ساحلی ایران در جنوب کشور دانسته و واشنگتن را به «نقض عهد» متهم کرده است.
+در بخش دیگری از این بیانیه، با اشاره به اینکه کنترل ترتیبات عبور و مرور در تنگه هرمز بر اساس «تفاهم‌نامه اسلام‌آباد» بر عهده جمهوری اسلامی است، تاکید شده که از این پس با کشتی‌های متخلف قوی‌تر از گذشته برخورد خواهد شد. سپاه پاسداران با هشدار به ایالات متحده اعلام کرده است که هرگونه تجاوز احتمالی بعدی، حتی اگر علیه اهداف کم‌اهمیت باشد، با پاسخی «خردکننده» مواجه می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247652
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247652_1782611879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اندکی پس از حمله‌های آمریکا به اهدافی در ایران، آژیرهای خطر در بحرین به صدا درآمد و پدافند هوایی کویت برای مقابله با حمله‌های موشکی و پهپادی فعال شدد. ارتش‌های دو کشور اعلام کردند این موشک‌ها و پهپادهای متخاصم را رهگیری و منهدم کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247651
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247651_1782611879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد کل ارتش کویت بامداد یکشنبه با انتشار بیانیه‌ای رسمی اعلام کرد که سامانه‌های پدافند هوایی این کشور در حال حاضر با حملات موشکی و پهپادی متخاصم مقابله می‌کنند. ارتش با تاکید بر حفظ آرامش عمومی یادآور شد شنیده شدن صدای انفجار در برخی مناطق، ناشی از رهگیری و انهدام اهداف مهاجم در آسمان است. مقامات نظامی کویت از تمامی مردم و ساکنان خواسته‌اند تا زمان پایان وضعیت هشدار، به‌طور کامل به دستورالعمل‌های امنیتی صادرشده از سوی مراجع ذی‌صلاح پایبند باشند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247650
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247650_1782611880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آیین‌های سوگواری مربوط به محرم در گیلان رنگ و بوی فرهنگ بومی این منطقه را به خود گرفته است. در میان این آیین‌ها، «کرنا نوازی» یکی از کهن‌ترین سنت‌های عزاداری در شرق گیلان است؛ نوایی حزن‌انگیز که  بخشی از میراث معنوی مردم این منطقه را زنده نگه می‌دارد.
+کرنای لاهیجان، از دسته سازهای بادی‌ بدون قمیش (زبانه)  و یکی از سازهای بومی منطقه است؛ سازی با صدایی بلند که پیش‌تر برای خبر دادن، فراخواندن مردم و اعلام رویدادهای مهم استفاده می‌شد، اما امروز بیشتر در مراسم عزاداری شنیده می‌شود. این ساز معمولا به صورت گروهی نواخته می‌شود و گروه‌های پنج تا هشت نفره کرناچیان، آن را اجرا می‌کنند.
+کرنا نوازی هنوز در برخی مناطق شرق گیلان، از جمله آستانه اشرفیه، رحیم‌آباد، واجارگاه و کلاچای، پا برجاست.
+یکی از بخش‌های تامل‌برانگیز این سنت، نواختن کرنا در آرامستان‌هاست. بنا بر روایت‌های محلی، کرناچیان هرگاه وارد گورستانی می‌شدند، بر سر مزار جوانانی که همان سال از دنیا رفته بودند، لحظاتی می‌ایستادند و کرنا می‌نواختند.
+اجرای این آیین در مناطقی مانند بی‌بالان و مزار امیربنده کلاچای قدمتی دیرینه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247649
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247649_1782611881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت کشور بحرین، بامداد یکشنبه، با انتشار اطلاعیه‌ای از به صدا درآمدن آژیرهای هشدار خبر داد و از تمامی مردم و ساکنان این کشور خواست تا ضمن حفظ آرامش، فورا به نزدیک‌ترین مکان امن پناه ببرند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247648
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247648_1782611881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار ارشد «فاکس‌نیوز»، به نقل از یک «مقام بلندپایه دفاعی آمریکا» تایید کرد که دور جدید حملات ایالات متحده علیه ایران، در پاسخ مستقیم به حمله پهپادی ساعت ۴:۳۰ بامداد شنبه سپاه پاسداران به نفت‌کش پانامایی «ام‌تی کیکو» در تنگه هرمز انجام شده است. به گفته این مقام مسئول، «دامنه حملات بامداد یکشنبه آمریکا بسیار گسترده‌تر از دیشب بود. حملات شب گذشته حدود یک ساعت به طول انجامید.» این مقام آمریکایی گفت: «ایران فرصت داشت تا شلیک‌ها را متوقف کند و به آتش‌بس پایبند بماند، اما این فرصت را رد کرد» و در نتیجه، جنگنده‌های آمریکایی بار دیگر اهدافی شامل مراکز پدافند هوایی، انبارهای پهپاد، موشک‌های کروز، رادارهای هدایت‌کننده و قابلیت‌های مین‌ریزی رژیم ایران را در مناطق ساحلی و همچنین جزیره قشم بمباران کردند. خبرنگار«فاکس‌نیوز همچنین گفت که نیروهای ایرانی شب گذشته در اقدامی تلافی‌جویانه پایگاه ارتش آمریکا در بحرین را هدف قرار داده بودند که طی آن نیروهای مشترک آمریکا و بحرین موفق شدند ۹ پهپاد انتحاری ایران را سرنگون کنند و هیچ‌گونه خسارت مالی یا جانی به همراه نداشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247647
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247647_1782611882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با ابراز تردید درباره اینکه جمهوری اسلامی از فشارهای کنونی درس بگیرد، گفت: «ممکن است زمانی فرا برسد که دیگر نتوانیم خویشتنداری کنیم و ناچار شویم کاری را که با موفقیت بسیار آغاز کرده‌ایم، از نظر نظامی به‌طور کامل به پایان برسانیم. اگر چنین اتفاقی بیفتد، جمهوری اسلامی دیگر وجود نخواهد داشت.»
+ترامپ در تروث سوشال نوشت: «ایالات متحده به‌تازگی بار دیگر انبارهای موشک و پهپاد جمهوری اسلامی و همچنین سایت‌های راداری ساحلی را به دلیل نقض دوباره توافق آتش‌بس هدف حملات هوایی قرار داد. کاملا محتمل است که آنها هرگز درس نگیرند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل دوم کنگو توسط مایله در دقیقه 78 
+🇺🇿ازبکستان 1 
+🇨🇩کنگو 2 با این نتیجه دومین شانس تیک ملا هم از بین میرود و فقط یک جون دارد @withyashar
+</div>
+
+## WithYashar — post 16043
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا های انفجار مانند از بوشهر ، یا داره میزنه یا میخوره ، یه خبری هست
+@withyashar
+</div>
+
+## WithYashar — post 16042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله‌های متعدد ازبکستان روی دروازه کنگو ازبکستان 1️⃣ - 0️⃣ کنگو با این نتیجه تیم ملی صعود میکند 🚨 @withyashar
+</div>
+
+## WithYashar — post 16041
+
+<div align="center">
+  <img src="telegram/content/WithYashar_16041_1782611883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شیء ناشناس در آسمان بحرین در حال پرواز است.
+@withyashar
+</div>
+
+## WithYashar — post 16040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران انقلاب اسلامی در بیانیه‌ای اعلام کرد نیروهای دریایی و هوافضای این نهاد، در پاسخ به آنچه «تجاوزهای اخیر آمریکا» عنوان شده، عملیاتی مشترک با استفاده از موشک‌های بالستیک و پهپاد علیه چند هدف نظامی انجام داده‌اند.
+
+در این بیانیه ادعا شده است که در ساعات اولیه بامداد یکشنبه، چند زیرساخت مرتبط با نیروهای آمریکایی در منطقه از جمله در کویت و بحرین هدف قرار گرفته و «منهدم» شده‌اند. همچنین به حملاتی از سوی آمریکا به برخی نقاط ساحلی ایران اشاره و تأکید شده است که در آینده برخورد با کشتی‌های متخلف در تنگه هرمز با شدت بیشتری انجام خواهد شد
+@withyashar
+</div>
+
+## WithYashar — post 16038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موشک‌ها در آسمان بحرین در حال پرواز هستند و پدافند هوایی نیز درگیر شده
+@withyashar 🚨🚨🚨
+</div>
+
+## WithYashar — post 16037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطراف بندرعباس شهر تازیانپ روستای خونسرخ صدای چندین انفجار ، قشنگ لرزید
+@withyashar 🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 16036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله‌ای جدید این بار با موشک در بحرین.
+@withyashar 🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 16035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت دقایقی پیش اعلام کرد که پدافند هوایی این کشور در حال حاضر «با حملات موشکی و پهپادی خصمانه» مقابله می‌کند.
+@withyashar 🚨🚨🚨
+</div>
+
+## WithYashar — post 16034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند کویت فعال شده
+چندین انفجار شنیده شد
+@withyashar 🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 16033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای آژیر هشدار در کویت
+
+برخی گزارش‌های تاییدنشده از فعال شدن آژیر هشدار در کویت حکایت دارند.
+@withyashar 🚨🚨
+</div>
+
+## WithYashar — post 16032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در صورت تساوی تیم رژیم جمهوری اسلامی برابر مصر چطور صعود می‌کنند؟ رخ دادن یکی از این موارد کافی است: 1-غنا کرواسی را شکست دهد 2-کنگو نتواند ازبکستان را ببرد 3-بازی اتریش و الجزایر برنده داشته باشد @withyashar
+</div>
+
+## WithYashar — post 16031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش رسانه‌های خبری رژیم حاکی است که پایگاه هوایی «شیخ عیسی» در بحرین هدف حمله پهپادی قرار گرفته است
+@withyashar 🚨🚨🚨🚨
+</div>
+
+## FoxNewsTwitter — post 343520
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343520_1782611883.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: Rivers of glowing lava pour down the slopes of Mount Etna after Europe's most active volcano roared back to life.
+
+New drone footage captures a steady stream of molten rock flowing from a newly opened fracture near the summit, illuminating the mountainside.
+
+Volcanologists say the latest activity has remained relatively calm, with lava steadily advancing and no major explosive eruptions reported.
+</div>
+
+## FoxNewsTwitter — post 343519
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343519_1782611885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump is warning Iran that further military escalation remains on the table after the U.S. carried out another round of strikes against Iranian targets.
+
+In a Truth Social post, Trump said U.S. forces hit Iranian missile and drone storage sites and coastal radar locations in response to what he described as another violation of the ceasefire agreement.
+
+He warned that if Iran continues its actions, the United States “will be forced to militarily complete the job” and declared, “The Islamic Republic of Iran will no longer exist.”
+</div>
+
+## FoxNewsTwitter — post 343518
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343518_1782611885.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: The U.S. military released footage of strikes targeting Iranian military sites near the Strait of Hormuz.
+
+U.S. Central Command says Navy and Air Force fighter jets struck 10 targets tied to Iran's military infrastructure after Tehran launched a one-way drone attack on a commercial tanker.
+
+The operation marks the latest U.S. response as tensions persist in the strategic waterway despite the U.S.-Iran ceasefire agreement.
+</div>
+
+## FoxNewsTwitter — post 343517
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343517_1782611887.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Talk about making a splash.
+
+New York City Mayor Zohran Mamdani dives into a public pool... in a full business suit.
+
+The mayor jumped in to celebrate the opening of the city's outdoor pool season and the 90th anniversary of New York's historic WPA-era pools.
+
+The event quickly turned political, however, as Mamdani called on Nassau County Executive Bruce Blakeman to apologize for comments he made about Democratic congressional candidate Brad Lander, calling the remarks "unacceptable and unconscionable." Blakeman later fired back, saying the mayor "has no credibility."
+</div>
+
+## FoxNewsTwitter — post 343516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Former President Biden speaks at Maryland Democratic Party gala https://twitter.com/i/broadcasts/1nxeLLOyXDoJX
+</div>
+
+## FoxNewsTwitter — post 343515
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Against impossible odds, hope endures.
+
+American search and rescue teams pulled an infant alive from beneath the rubble following the deadly earthquakes in Venezuela.
+
+The rescue comes as the U.S. continues deploying additional aircraft, military personnel and emergency resources to support life-saving operations across the region.
+</div>
+
+## pm_afshaa — post 94960
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94960_1782611887.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران: در یک عملیات موشکی و پهپادی، چند هدف مرتبط با نیروهای آمریکایی در کویت و بحرین رو مورد حمله قرار دادیم و آنها رو منهدم کردیم.
+
+این اقدام رو در پاسخی به حملات اخیر آمریکا انجام دادیم و هشدار میدیم که در صورت هرگونه نقض آتش‌بس یا ادامه تنش‌ها، با واکنش شدیدتری برخورد خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94959
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94959_1782611888.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از حملات موشکی سپاه به بحرین و مقابله پدافند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری از حملات موشکی سپاه به کویت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94956
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94956_1782611889.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برخی گزارش‌ها از فعال شدن آژیر هشدار حمله در کویت حکایت دارن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94955
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94955_1782611890.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برخی گزارش‌ها از فعال شدن آژیر هشدار حمله در کویت حکایت دارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای انفجار در بحرین
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 6021
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6021_1782611890.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 ارتش آمریکا بامداد یکشنبه هفتم تیرماه ۱۴۰۵ تاسیسات نظامی در سیریک، بندرلنگه و قشم را هدف قرار داد.
+
+اکسیوس به نقل از یک مقام آمریکایی اعلام کرد ارتش ایالات متحده، در تلافی حمله جمهوری اسلامی به یک نفتکش تجاری، در حال انجام حملاتی به اهداف ایرانی در منطقه تنگه هرمز است. شامگاه آدینه نیز انفجارهایی در محدوده شهرستان سیریک رخ داد و سنتکام اعلام کرد نیروهای آمریکایی، در پاسخ به حمله جمهوری اسلامی به کشتی‌ها در تنگه هرمز، به اهدافی در جنوب ایران حمله کرده است.
+
+#جنگ #تنگه_هرمز #آتشبس
+@DEJradio
+</div>
+
+## DEJradio — post 6020
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6020_1782611891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی، اپیزود هفدهم
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## VahidOnline — post 76722
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76722_1782611891.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی سپاه پاسداران، با انتشار بیانیه‌ای از حمله مشترک موشکی و پهپادی به مواضع ارتش ایالات متحده در منطقه خبر داد.
+
+بر اساس این بیانیه، نیروهای دریایی و هوافضای سپاه در ساعت ۲ تا ۳ بامداد یکشنبه، ۷ تیرماه، هشت زیرساخت کلیدی ارتش آمریکا را در پایگاه «علی‌السالم» کویت و ناوگان پنجم دریایی در بندر «سلمان» بحرین هدف قرار داده‌اند.
+
+سپاه این عملیات را «پاسخی قاطع» به حملات هوایی بامداد یکشنبه آمریکا به پنج پست ساحلی ایران در جنوب کشور دانسته و واشنگتن را به «نقض عهد» متهم کرده است.
+
+در بخش دیگری از این بیانیه، با اشاره به اینکه کنترل ترتیبات عبور و مرور در تنگه هرمز بر اساس «تفاهم‌نامه اسلام‌آباد» بر عهده جمهوری اسلامی است، تاکید شده که از این پس با کشتی‌های متخلف قوی‌تر از گذشته برخورد خواهد شد.
+
+سپاه پاسداران با هشدار به ایالات متحده اعلام کرده است که هرگونه تجاوز احتمالی بعدی، حتی اگر علیه اهداف کم‌اهمیت باشد، با پاسخی «خردکننده» مواجه می‌شود.
+@VahidOOnLine
+متن خبر منابع حکومتی:
+
+🔸سپاه پاسداران خبر داد: عملیات قاطع موشکی و پهپادی در پاسخ به تجاوزهای آمریکا/ با کشتی های متخلف قوی‌تر از گذشته برخورد خواهد شد
+
+🔹روابط عمومی سپاه پاسداران انقلاب اسلامی بامداد یکشنبه با صدور بیانیه ای از پاسخ قاطع نیروهای دریایی و هوا فضای سپاه به تجاوزهای اخیر آمریکا خبر داد و تاکید کرد: من‌بعد با کشتی های متخلف قوی‌تر از گذشته برخورد خواهد شد و برخورد با تجاوز احتمالی دشمن به هر بهانه‌ای که باشد ولو مانند دیشب و امشب تجاوزها به اهداف کم اهمیت باشد، پاسخی خرد کننده خواهد داشت. دشمن بداند نقض آتش‌بس خلاف بند یکم تفاهم نامه اسلام آباد است و توقف کلی روندها را در پی خواهد داشت.
+
+در ادامه این بیانیه خطاب به مردم عزیز و شرافتمند ایران اسلامی آمده است:
+
+فرزندان غیرتمند شما در نیروهای دریایی و هوا فضای سپاه طی عملیات مشترک موشکی و پهپادی در ساعت ۲ الی ۳ بامداد امروز یکشنبه هفتم تیر ماه، با پرتاب موشک های بالستیک و پهپاد به سوی هشت زیرساخت مهم ارتش کودک‌کش آمریکا در پایگاه علی السالم کویت و ناوگان پنجم دریایی در بندر سلمان بحرین آنها را منهدم کردند و تجاوزهای اخیر آمریکا را با قاطعیت پاسخ دادند.
+
+دشمن متجاوز که نقض عهد و پیمان شکنی در ذات او است، به بهانه مقابله نیروی دریایی سپاه با کشتی متخلف، اوایل بامداد امروز، به پنج پست ساحلی جمهوری اسلامی حمله کرده بود.
+
+بر اساس تفاهم نامه اسلام آباد ترتیبات کنترل عبور و مرور در تنگه هرمز با جمهوری اسلامی است و من‌بعد با کشتی های متخلف قوی تر از گذشته برخورد خواهد شد و برخورد با تجاوز احتمالی دشمن به هر بهانه ای که باشد ولو مانند دیشب و امشب تجاوزها به اهداف کم اهمیت باشد، پاسخی خرد کننده خواهد داشت. 
+
+دشمن بداند نقض آتش بس خلاف بند یکم تفاهم نامه اسلام آباد است و توقف کلی روندها را در پی خواهد داشت.
+
+🔹و ما النصر الا من عند الله العزیز الحکیم
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76721
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76721_1782611892.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی تایید نشده:
+سلام آقا وحید از منطقه [...] بندرعباس چندتا موشک بلند شد به سمت دریا رفت
+
+سلام ساعت ۳:۳۹ صدای انفجار بندرعباس
+یک دقیقه بعد: الان یکی دیگه هم زدن
+
+درود همین الان اطراف بندرعباس دوتا صدای انفجار
+
+ساعت ۳:۳۶ دقیقه
+صدای دوتا انفجار از راه دور تو [...] بندرعباس شنیده شد، فاصله دور بود اما موج انفجار تو [...] حس شد
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76719
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'آژیر در كويت'
+تصاویر دریافتی
+
+ارتش کویت دقایقی پیش اعلام کرد که پدافند هوایی این کشور در حال حاضر «با حملات موشکی و پهپادی خصمانه» مقابله می‌کند.
+@VahidHeadline
+دقایقی پیش‌تر پیام مشابهی درباره بحرین دریافت کرده بودم. الان:
+
+وزارت کشور بحرین، بامداد یکشنبه، با انتشار اطلاعیه‌ای از به صدا درآمدن آژیرهای هشدار خبر داد و از تمامی مردم و ساکنان این کشور خواست تا ضمن حفظ آرامش، فورا به نزدیک‌ترین مکان امن پناه ببرند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه اعلام کرد پایگاه علی السالم کویت و ناوگان دریایی بندر سلمان امریکا در بحرین را با موشک هدف قرار داده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی قبل صدای انفجار در پایگاه امریکا در بحرین و صدای آژیر حمله موشکی در کویت
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88215
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88215_1782611892.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️پست جدید ترامپ
+
+در صورت ادامه نقض آتش‌بس جمهوری اسلامی ایران دیگر وجود نخواهد داشت
+
+هواپیماهای ایالات متحده همین حالا محل‌های نگهداری موشک و پهپاد ایران و سایت‌های راداری ساحلی را هدف قرار دادند، چون بار دیگر توافق آتش‌بس را نقض کردند!
+
+بسیار محتمل است که آن‌ها هرگز درس نگیرند!
+ممکن است زمانی برسد که دیگر نتوانیم منطقی رفتار کنیم، و مجبور شویم کاری را که با موفقیت بسیار آغاز کردیم، از نظر نظامی به پایان برسانیم.
+
+اگر چنین شود، جمهوری اسلامی ایران دیگر وجود نخواهد داشت!
+
+رئیس‌جمهور دونالد ترامپ
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 344698
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344698_1782611892.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی نیروی دریایی سپاه پاسداران در پیامی نوشت: «شلیک‌های کور آمریکا به سیریک معمای اشراف ما بر تنگه را حل نمی‌کند. اما شلیک‌های ما به متخلفین، راه روشن عبور را به باقی شناورها یادآوری می‌کند. حساب پایگاه‌های آمریکایی منطقه جداست. جهنم را در این روزها تجربه خواهند کرد.»
+
+پیش‌تر روابط عمومی سپاه از حمله پهپادی و موشکی نیروهای دریایی و هوافضای سپاه پاسداران به هشت زیرساخت ارتش آمریکا در کویت و بحرین در بامداد یکشنبه خبر داد.
+https://iranintl.com/202606285414
+</div>
+
+## IranIntlTV — post 344697
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344697_1782611893.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی ایالات متحده، سنتکام، با انتشار ویدیویی اعلام کرد که جنگنده‌های نیروی دریایی و نیروی هوایی آمریکا بامداد یک‌شنبه در واکنش به حمله پهپادی جمهوری اسلامی به نفتکش «ام‌تی کیکو»، ۱۰ هدف نظامی جمهوری اسلامی را در چند نقطه تنگه هرمز و مناطق اطراف آن هدف حمله قرار دادند.
+https://iranintl.com/202606282323
+</div>
+
+## IranIntlTV — post 344696
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344696_1782611894.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی سپاه اعلام کرد که نیروهای دریایی و هوا فضای سپاه طی عملیات مشترک موشکی و پهپادی در ساعت ۲ الی ۳ بامداد یکشنبه، با پرتاب موشک‌های بالستیک و پهپاد به سوی هشت زیرساخت مهم ارتش آمریکا در پایگاه علی السالم کویت و ناوگان پنجم دریایی در بندر سلمان بحرین حمله کردند.
+در بیانیه سپاه آماده است که ارتش آمریکا اوایل بامداد یکشنبه، به پنج پست ساحلی جمهوری اسلامی حمله کرده بود.
+سپاه اعلام کرد که بر اساس تفاهم‌نامه اسلام‌آباد، ترتیبات کنترل عبور و مرور در تنگه هرمز با جمهوری اسلامی است و از این به بعد با کشتی‌های متخلف قوی‌تر از گذشته برخورد خواهد شد و برخورد با حمله دشمن به هر بهانه‌ای که باشد، پاسخی خردکننده خواهد داشت.
+
+https://iranintl.com/202606282594
+</div>
+
+## IranIntlTV — post 344695
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344695_1782611894.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اندکی پس از حمله‌های آمریکا به اهدافی در ایران، آژیرهای خطر در بحرین به صدا درآمد و پدافند هوایی کویت برای مقابله با حمله‌های موشکی و پهپادی فعال شد. ارتش‌های دو کشور اعلام کردند این موشک‌ها و پهپادهای متخاصم را رهگیری و منهدم کرده‌اند.
+https://iranintl.com/202606287944
+</div>
+
+## IranIntlTV — post 344694
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344694_1782611894.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با ابراز تردید درباره اینکه جمهوری اسلامی از فشارهای کنونی درس بگیرد، گفت: «ممکن است زمانی فرا برسد که دیگر نتوانیم خویشتنداری کنیم و ناچار شویم کاری را که با موفقیت بسیار آغاز کرده‌ایم، از نظر نظامی به‌طور کامل به پایان برسانیم. اگر چنین اتفاقی بیفتد، جمهوری اسلامی دیگر وجود نخواهد داشت.»
+ترامپ در تروث سوشال نوشت: «ایالات متحده به‌تازگی بار دیگر انبارهای موشک و پهپاد جمهوری اسلامی و همچنین سایت‌های راداری ساحلی را به دلیل نقض دوباره توافق آتش‌بس هدف حملات هوایی قرار داد. کاملا محتمل است که آنها هرگز درس نگیرند.»
+
+https://iranintl.com/202606270117
+</div>
+
+## Shin_Persian — post 7247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 28 Jun 2026 00:45:15 UTC
+
+IRGC: "decisive missile and drone operations in response to US aggression"
+
+ترجمه خودکار فارسی
+
+سپاه پاسداران انقلاب اسلامی (IRGC): «عملیات‌های موشکی و پهپادی قاطع در پاسخ به تجاوزات ایالات متحده»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7246
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7246_1782611895.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 28 Jun 2026 00:27:01 UTC
+
+Reported image:
+BM over #Kuwait 🇰🇼
+
+ترجمه خودکار فارسی
+
+تصویر گزارش شده:
+موشک بالستیک بر فراز #Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7245
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7245_1782611895.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 28 Jun 2026 00:09:25 UTC
+
+Kuwaiti Air Defenses are currently responding to hostile missile and drone attacks.
+
+The General Staff of the Army states that any explosion sounds are the result of interceptions.
+
+Follow all safety instructions from authorities.
+
+#Kuwait 🇰🇼
+
+ترجمه خودکار فارسی
+
+پدافند هوایی کویت در حال حاضر در حال پاسخگویی به حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش اعلام کرد که هرگونه صدای انفجار ناشی از عملیات رهگیری است.
+
+تمامی دستورالعمل‌های ایمنی مقامات را رعایت کنید.
+
+#Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 28 Jun 2026 00:00:14 UTC
+
+Explosion(s) heard in Bahrain 🇧🇭
+
+ترجمه خودکار فارسی
+
+صدای انفجار(هایی) در بحرین شنیده شد 🇧🇭
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 27 Jun 2026 23:48:44 UTC
+
+Siren activated in Bahrain. Residents urged to stay calm, seek nearest safe location, and monitor official channels.
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2071017874483810691
+
+ترجمه خودکار فارسی
+
+آژیر خطر در بحرین فعال شد. از ساکنان خواسته شده است آرامش خود را حفظ کنند، به نزدیک‌ترین مکان امن بروند و کانال‌های رسمی را دنبال کنند.
+#Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2071017874483810691
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از ساعت ۰۰:۳۰ بامداد یکشنبه تا لحظه‌ی نگارش این پیام (۰۴:۲۰ صبح یکشنبه)، جنگ در جنوب ایران جریان دارد.
+
+چند کشتی تجاری در تنگه هرمز، همچنین مناطقی نظامی و غیرنظامی در کویت و‌ بحرین توسط جمهوری اسلامی با پهپاد و موشک بالستیک هدف قرار گرفته شد.
+
+ایالات متحده نیز همزمان چند نقطه در جنوب ایران شامل پایگاه‌ نظامی، رادار، دکل مخابرات، محل نگهداری پهپاد و موشک را در اطراف بندرعباس، بندر لنگه، بندر کنگ، قشم، لارَک و سیریک هدف قرار داد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 222075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آژیر حمله هوایی در کویت و بحرین به صدا در آمد؛ سپاه مدعی حمله موشکی به مواضع ارتش آمریکا شد
+
+▪️ساعاتی پس از حمله آمریکا به مواضع نظامی جمهوری اسلامی در جنوب ایران که در واکنش به حمله اخیر به یک نفتکش و در اوایل بامداد یکشنبه به وقت ایران انجام شد، سپاه پاسداران در بیانیه‌ای مدعی شد با استفاده از موشک‌های بالستیک و پهپاد، در فاصله ساعت ۲ تا ۳ بامداد روز یکشنبه ۷ تیر، به «هشت زیرساخت مهم» ارتش آمریکا در پایگاه العدید در کویت و همچنین ناوگان پنجم نیروی دریایی آمریکا در بندر سلمان بحرین حمله کرده است. این نهاد همچنین کشتی‌های تجاری را تهدید کرد و گفت با کشتی‌های «متخلف قوی‌تر از گذشته برخورد خواهد شد.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165666.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از بیتلز تا لیگ برتر؛ حکایت دادوستد فرهنگی بریتانیا و آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌ها و تصاویر ویدیویی منتشر شده در شبکه‌های اجتماعی از تحرک شدید نیروهای نظامی در «منطقه سبز» بغداد حکایت دارد. این تحرکات در حالی است که عباس عراقچی، وزیر خارجه جمهوری اسلامی، قرار است روز یکشنبه وارد عراق شود. برخی گزارش‌ها گمانه‌زنی کرده‌اند که شماری از مقامات ارشد عراقی در ارتباط با پرونده‌های فساد دستگیر شده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فوتبال ایران؛ اسیر خودبزرگ‌بینی مدیران؟ گفت‌وگو با داوود میمندی کارشناس فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ماه ژوئن «ماه سلامت مردان» در گفت‌گو با دکتر کاویان میلانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222070
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222070_1782611896.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ساعاتی پس از حمله آمریکا به مواضع نظامی جمهوری اسلامی در جنوب ایران که در واکنش به حمله تازه جمهوری اسلامی به یک نفتکش، در اوایل بامداد یکشنبه به وقت ایران صورت گرفت، سپاه پاسداران با صدور بیانیه‌ای مدعی شد که با موشک‌های بالستیک و پهپاد، در ساعت ۲ الی ۳ بامداد روز یکشنبه هفتم تیر ماه، به «هشت زیرساخت مهم» ارتش آمریکا در پایگاه علی السالم کویت و ناوگان پنجم دریایی در بندر سلمان بحرین حمله کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام شنبه‌شب به وقت واشنگتن ویدیویی از حمله «جنگنده‌های نیروی دریایی و نیروی هوایی» آمریکا به اهداف نظامی در ایران را منتشر کرد. سنتکام گفت به ۱۰ هدف نظامی در داخل و اطراف تنگه هرمز حمله کرد و افزود این حملات در پاسخ به حمله پهپادی جمهوری اسلامی به نفتکش «کیکو» صورت گرفت.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222068
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222068_1782611896.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️معجزه یا خداحافظی برای فوتبال ایران؟ گفت‌وگو با امید نمازی مربی سابق تیم ملی ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222067
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222067_1782611897.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در گزارش‌های مردمی منتشر شده از بندرعباس در کانال تلگرامی وحیدآنلاین، از شنیده شدن چندین صدای انفجار و پرتابه در ساعات ۳:۳۶ و :۳:۳۹ بامداد یکشنبه خبر داده شده است. در یکی از گزارش‌ها ادعا شده که از منطقه‌ای در بندرعباس چند موشک به سمت دریا شلیک شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222066
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222066_1782611898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین دقایقی قبل اعلام کرد که آژیر خطر حمله هوایی به صدا درآمده است و از ساکنین خواست به نزدیکترین مکان امن بروند. ارتش کویت نیز اعلام کرد که با حملات هوایی خصمانه در حال مقابله است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222065
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: اگر «جمهوری اسلامی ایران» به نقض آتش‌بس ادامه دهد ممکن است کاملا حذف شود
+
+▪️دونالد ترامپ، رئيس جمهوری آمریکا، شنبه شب (۶ تیر) به وقت واشنگتن در شبکه تروت ‌سوشال از حمله دوباره جمهوری اسلامی به کشتی‌های تجاری انتقاد کرد و به پاسخ نظامی آمریکا به آن اشاره کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8165528.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222064
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222064_1782611898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش کویت دقایقی پیش اعلام کرد که پدافند هوایی این کشور در حال حاضر «با حملات موشکی و پهپادی خصمانه» مقابله می‌کند. خبر این هشدار پس از اقدام نظامی شبانه نیروهای آمریکایی علیه جمهوری اسلامی و در پاسخ به حمله تازه حکومت ایران به یک کشتی تجاری دیگر در آب‌های منطقه، گزارش می‌شود.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️توافق تاریخی سه‌جانبه در واشنگتن؛ پایان نفوذ جمهوری اسلامی و حزب‌الله در مرزهای شمالی اسرائیل؟
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18212
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18212_1782611898.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منطقه سبز بغداد شاهد تحرکات نظامی سنگین؛ سفارت آمریکا در کانون تنشهای منطقهای
+.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢بیانیه‏ ️سپاه پاسداران:
+
+مردم عزیز و شرافتمند ایران اسلامی؛ فرزندان غیرتمند شما در نیروهای دریایی و هوا فضای سپاه طی عملیات مشترک موشکی و پهپادی در ساعت ۲ الی ۳ بامداد امروز یکشنبه هفتم تیر ماه، با پرتاب موشک های بالستیک و پهپاد به سوی هشت زیرساخت مهم ارتش کودک‌کش آمریکا در پایگاه علی السالم کویت و ناوگان پنجم دریایی در بندر سلمان بحرین آنها را منهدم کردند و تجاوزهای اخیر آمریکا را با قاطعیت پاسخ دادند.
+دشمن متجاوز که نقض عهد و پیمان شکنی در ذات او است، به بهانه مقابله نیروی دریایی سپاه با کشتی متخلف، اوایل بامداد امروز، به پنج پست ساحلی جمهوری اسلامی حمله کرده بود.
+بر اساس تفاهم نامه اسلام آباد ترتیبات کنترل عبور و مرور در تنگه هرمز با جمهوری اسلامی است و من‌بعد با کشتی های متخلف قوی تر از گذشته برخورد خواهد شد و برخورد با تجاوز احتمالی دشمن به هر بهانه ای که باشد ولو مانند دیشب و امشب تجاوزها به اهداف کم اهمیت باشد، پاسخی خرد کننده خواهد داشت.
+دشمن بداند نقض آتش بس خلاف بند یکم تفاهم نامه اسلام آباد است و توقف کلی روندها را در پی خواهد داشت.
+و ما النصر الا من عند الله العزیز الحکیم
+</div>
+
+## IranianMinds — post 23428
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23428_1782611899.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا الان بیش از 69 هزار نفر در زلزله ی ونزوئلا مفقود شدن ...
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دومین شانس تیم جمهوری اسلامی هم از دست رفت و فقط یک شانس صعود باقی مانده است
+
+بعد از باخت غنا به کرواسی حالا کنگو هم ازبکستان را شکست داد.
+
+جمهوری اسلامی تنها در صورتی صعود خواهد کرد که بازی اتریش و الجزائر برنده داشته باشد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سپاه پاسداران: در یک عملیات موشکی و پهپادی، چند هدف مرتبط با نیروهای آمریکایی در کویت و بحرین رو مورد حمله قرار دادیم و آنها رو منهدم کردیم.
+
+این اقدام رو در پاسخی به حملات اخیر آمریکا انجام دادیم و هشدار میدیم که در صورت هرگونه نقض آتش‌بس یا ادامه تنش‌ها، با واکنش شدیدتری برخورد خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات موشکی جمهوری اسلامی به پایگاه آمریکا در بحرین
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات موشکی جمهوری اسلامی به کویت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285258
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عراقچی امروز به بغداد سفر می‌کند
+
+عباس عراقچی وزیر امور خارجه ایران، امروز یکشنبه به‌همراه یک «هیئت دیپلماتیک» به عراق سفر خواهد کرد.
+
+اسماعیل بقائی سخنگوی وزارت امور خارجه می‌گوید که در این سفر درباره مناسبات دوجانبه و تحولات منطقه‌ای و بین‌المللی با مقام‌های ارشد عراق گفتگو و رایزنی خواهد شد.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285257
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285257_1782611899.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌⚽️تیم ملی فوتسال زنان ایران در دومین دیدار خود در رقابت‌های قهرمانی کافا ۲۰۲۶، تاجیکستان میزبان را با نتیجه هشت بر یک شکست داد.
+
+در این مسابقه که در شهر دوشنبه برگزار شد، شقایق معتمدی، الهام عنافجه و مارال ترکمان هر کدام دو گل و فرشته کریمی و مریم قائدامینی هر کدام یک گل برای ایران به ثمر رساندند.
+
+شقایق معتمدی نیز به‌عنوان بهترین بازیکن دیدار ایران و تاجیکستان انتخاب شد.
+
+در پایان این رقابت‌ها، مارال ترکمان عنوان بهترین بازیکن، فرشته کریمی عنوان بهترین گلزن و فرزانه توسلی عنوان بهترین دروازه‌بان را به دست آوردند.
+
+تیم ایران در نخستین دیدار خود نیز قرقیزستان را پنج بر صفر شکست داده بود.
+
+قرار است اعضای تیم ملی فوتسال زنان ایران امروز یکشنبه ساعت ۱۳:۳۰ از طریق فرودگاه امام خمینی وارد تهران شوند.
+📷FFIRI
+@BBCPersian
+</div>
+
+## BBCPersian — post 285256
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285256_1782611900.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻سپاه پاسداران اعلام کرده است که بامداد یکشنبه در «عملیاتی مشترک با موشک‌های بالستیک و پهپاد، هشت هدف متعلق به ارتش آمریکا در پایگاه هوایی علی‌السالم کویت و مقر ناوگان پنجم آمریکا در بحرین را هدف قرار داده است.»
+
+در بیانیه سپاه ادعا شده که این حملات در پاسخ به حملات اخیر آمریکا انجام شده است. هنوز مقام‌های آمریکایی درباره میزان خسارت یا تلفات احتمالی واکنشی نشان نداده‌اند.
+
+سپاه همچنین می‌گوید که آمریکا پیش‌تر، به بهانه مقابله نیروی دریایی سپاه با یک کشتی، به پنج پست ساحلی ایران حمله کرده بود.
+
+در این بیانیه تأکید شده است که بر اساس تفاهمنامه اسلام‌آباد، کنترل تردد در تنگه هرمز بر عهده ایران است و سپاه از این پس با کشتی‌هایی که آن‌ها را «متخلف» می‌خواند، شدیدتر برخورد خواهد کرد.
+
+سپاه هشدار داده است که نقض آتش‌بس می‌تواند به توقف روندهای پیش‌بینی‌شده در تفاهمنامه اسلام‌آباد منجر شود.
+📷EPA
+@BBCPersian
+</div>
+
+## BBCPersian — post 285247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🖊احمد صابر،‌ مانیتورینگ بی‌بی‌سی
+
+از زمان روی کار آمدن علی زیدی، نخست‌وزیر جدید عراق، او تلاش بسیاری کرده است تا شبه‌نظامیان نزدیک به ایران را متقاعد کند که سلاح‌هایشان را زمین بگذارند. این اقدام بخشی از تلاشی گسترده‌تر برای بازگرداندن اقتدار به دولت عراق است.
+
+نخست‌وزیر عراق در چارچوب برنامه‌ای برای پایان دادن به ساختارهای نظامی موازی، انحصار سلاح در دست دولت را به یکی از اولویت‌های اصلی در دستور کار دولت خود تبدیل کرده است.
+
+این تلاش‌ها تا حد زیادی ناشی از افزایش تهدیدها و فشارهای آمریکا بر بغداد برای خلع سلاح گروه‌های همسو با تهران و ادغام آن‌ها در نیروهای امنیتی رسمی عراق است.
+
+با وجود آن‌که چندین گروه شبه‌نظامی اعلام کرده‌اند که آماده زمین گذاشتن سلاح هستند، اما برخی دیگر این ابتکار را به طور کامل رد کرده‌اند و می‌گویند تا زمانی که «اشغال آمریکا در عراق» پایان نیابد، سلاح‌های خود را تحویل نخواهند داد.
+ادامه از:
+https://bbc.in/4w99zPv
+📸Getty/ Reuters/ FACEBOOK/ Anadolu via Getty/ AL ARABIYA TV/ AFP via Getty
+@BBCPersian
+</div>
+
+## BBCPersian — post 285246
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285246_1782611900.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟥ستاد کل ارتش کویت اعلام کرده است که سامانه‌های پدافند هوایی این کشور در حال مقابله با حملات موشکی و پهپادی «دشمن» هستند.
+
+در این بیانیه آمده است که صدای انفجارهایی که ممکن است شنیده شود، ناشی از رهگیری این حملات توسط سامانه‌های پدافند هوایی است.
+
+ارتش کویت از شهروندان خواسته است دستورالعمل‌های امنیتی و ایمنی صادرشده از سوی نهادهای مسئول را رعایت کنند.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285245
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285245_1782611901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻گزارش‌ها از کراچی در جنوب پاکستان حاکی است که افراد مسلح به مقر نیروهای شبه‌نظامی رنجرز حمله کرده‌اند.
+
+گفته می‌شود چند نفر، از جمله شماری از نیروهای رنجرز، در این حمله زخمی شده‌اند.
+
+ساکنان منطقه پیشتر از تیراندازی سنگین در محدوده‌ای خبر داده بودند که دفتر محلی نیروهای رنجرز در آن قرار دارد.
+
+نیروهای امنیتی در محل مستقر شده‌اند و خیابان‌های اطراف را بسته‌اند و تاکنون هیچ گروهی مسئولیت این حمله را بر عهده نگرفته است.
+📷Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/07 03:16
 ---
 
