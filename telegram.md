@@ -7,6 +7,743 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/09 02:03
+---
+
+## VahidOOnLine — post 247936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قنبریان، استاد حوزه، در تجمع شبانه حامیان جمهوری اسلامی، در سخنانی با تاکید بر لزوم «قصاص» و «انتقام» گفت اگر جمهوری اسلامی قاتل رهبرش را قصاص نکند، «رهبر کنونی و رهبران جمهوری اسلامی همیشه باید در مخفیگاه زندگی کنند.»
+او همچنین با اشاره به تهدیدهای مطرح‌شده علیه مقام‌های جمهوری اسلامی، از جمله ادعای قرار گرفتن محمدباقر قالیباف در فهرست ترور، گفت قصاص و انتقام مربوط به گذشته نیست، بلکه برای تامین امنیت امروز و آینده جمهوری اسلامی ضروری است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247935
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247935_1782772431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازارهای سهام جهان روز دوشنبه همزمان با پیگیری اجرای توافق موقت میان آمریکا و جمهوری اسلامی رشد کردند. در همین حال، قیمت نفت نیز با وجود نگرانی‌ها درباره تداوم تنش‌ها افزایش یافت.
+به گزارش رویترز، تیم‌های فنی آمریکا و جمهوری اسلامی قرار است طی روزهای آینده در دوحه درباره اجرای این توافق گفت‌وگو کنند. با این حال، حملات متقابل اخیر دو طرف همچنان نگرانی‌ها درباره شکننده بودن این توافق را حفظ کرده است.
+بهای نفت برنت با ۱.۶ درصد افزایش به ۷۳ دلار و ۱۵ سنت و نفت خام آمریکا با ۲.۲ درصد رشد به ۷۰ دلار و ۷۵ سنت در هر بشکه رسید.
+تحلیلگران می‌گویند با وجود امید به ازسرگیری جریان عادی صادرات از تنگه هرمز، ریسک‌های ژئوپلیتیک همچنان از بازار نفت حمایت می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247934
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247934_1782772432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس جمهوری اسلامی ایران، دوشنبه نهم تیرماه، در پیامی در شبکه اجتماعی اکس نوشت: «تفاهم امری دوطرفه است. اگر طرف آمریکایی به تفاهم‌نامه پایبند باشد، ما هم به تعهداتمان عمل می‌کنیم.»
+او همچنین تاکید کرد: «رویکرد ما در برابر رجزخوانی‌های نامعقول و تهدیدهای بی‌پشتوانه، تکیه بر عقلانیت و کرامت انسانی در تصمیم‌گیری‌ها و دفاع قاطع و پرقدرت هنگام عمل است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو : اگر از غزه خارج میشدیم، خامنه‌ای، نصرالله و اسد الان در قدرت بودن.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343590
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343590_1782772433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"They would never be happy unless JD Vance walked out and I punched him in the nose."
+
+Bill Maher says some critics were never going to be satisfied with his interview of Vice President JD Vance.
+
+Responding to complaints that he didn't challenge Vance aggressively enough, Maher told FOX News Digital that some viewers only wanted a confrontation—not a conversation.
+
+"I don’t play that game," Maher said. "I like to actually talk to people."
+</div>
+
+## FoxNewsTwitter — post 343589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more 👉
+</div>
+
+## FoxNewsTwitter — post 343588
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343588_1782772435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Days before America celebrates its 250th birthday, former President Barack Obama is drawing renewed attention to the Founding Fathers' ties to slavery.
+
+Obama said leaders like George Washington helped build the nation while also owning slaves, calling that contradiction a "deep flaw" at the heart of America's founding.
+
+"I think sometimes we get confused in thinking that these two stories are separate. They're intertwined, right? Which is why it's possible for me to be a great admirer of George Washington, and also acknowledge he was a slaveholder," he said in a recent interview.
+
+As Americans prepare for Independence Day celebrations across the country, Obama is using the occasion to argue that the nation's founding ideals and its history of slavery cannot be separated.
+</div>
+
+## FoxNewsTwitter — post 343587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more 👉
+</div>
+
+## FoxNewsTwitter — post 343586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Days before America celebrates its 250th birthday, former President Barack Obama is drawing renewed attention to the Founding Fathers' ties to slavery.
+
+Obama said leaders like George Washington helped build the nation while also owning slaves, calling that contradiction a "deep flaw" at the heart of America's founding.
+
+"I think sometimes we get confused in thinking that these two stories are separate. They're intertwined, right? Which is why it's possible for me to be a great admirer of George Washington, and also acknowledge he was a slaveholder," he said in a recent interview.
+
+As Americans prepare for Independence Day celebrations across the country, Obama is using the occasion to argue that the nation's founding ideals and its history of slavery cannot be separated.
+
+@foxnewspolitics
+</div>
+
+## FoxNewsTwitter — post 343585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more 👉
+</div>
+
+## FoxNewsTwitter — post 343584
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343584_1782772436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Days before America celebrates its 250th birthday, former President Barack Obama is drawing renewed attention to the Founding Fathers' ties to slavery.
+
+Obama said leaders like George Washington helped build the nation while also owning slaves, calling that contradiction a "deep flaw" at the heart of America's founding.
+
+"I think sometimes we get confused in thinking that these two stories are separate. They're intertwined, right? Which is why it's possible for me to be a great admirer of George Washington, and also acknowledge he was a slaveholder," he said in a recent interview.
+
+As Americans prepare for Independence Day celebrations across the country, Obama is using the occasion to argue that the nation's founding ideals and its history of slavery cannot be separated.
+
+@foxnewspolitics
+</div>
+
+## FoxNewsTwitter — post 343583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more 👉
+</div>
+
+## FoxNewsTwitter — post 343582
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343582_1782772436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Days before America celebrates its 250th birthday, former President Barack Obama is drawing renewed attention to the Founding Fathers' ties to slavery.
+
+Obama said leaders like George Washington helped build the nation while also owning slaves, calling that contradiction a "deep flaw" at the heart of America's founding.
+
+"I think sometimes we get confused in thinking that these two stories are separate. They're intertwined, right? Which is why it's possible for me to be a great admirer of George Washington, and also acknowledge he was a slaveholder," he said in a recent interview.
+
+As Americans prepare for Independence Day celebrations across the country, Obama is using the occasion to argue that the nation's founding ideals and its history of slavery cannot be separated.
+
+@foxnewspolitics
+</div>
+
+## pm_afshaa — post 95080
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95080_1782772437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟣فیفا به مناسبت اینکه ایران تونسته بود بره جام جهانی، 2 میلیون دلار به فدراسیون داده بود که بخاطر تحریم‌ها، هنوز واریز نشده؛ حالا فدراسیون واسه اینکه به تیم روحیه بده، قبل اینکه اینا برن آمریکا، این 2 میلیون دلار (تقریبا ۳۴۰ میلیارد تومن) رو از حساب دولت…
+</div>
+
+## pm_afshaa — post 95079
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95079_1782772437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حداد عادل: تمام بچه‌های علی خامنه‌ای زندگی خیلی ساده‌ای داشتن؛ هیچ فعالیت اقتصادی‌ای نداشتن، هیچ سهامی نداشتن و حتی در بانک هم حساب نداشتن!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95078
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95078_1782772438.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: اگر از غزه خارج میشدیم، خامنه‌ای، نصرالله و اسد الان در قدرت بودن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 6073
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6073_1782772438.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 محمدرضا فغانی:
+تیمی که مقابل مردم ایستاد، ملی نیست
+
+محمدرضا فغانی داور و کارشناس بین‌المللی فوتبال در گفت‌وگو با مهدی رستم‌پور در برنامه دژ فوتبالی می‌‌گوید «تیمی که مقابل مردم ایستاد، ملی نیست».
+
+#دژفوتبالی #جام_جهانی
+</div>
+
+## DEJradio — post 6072
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6072_1782772440.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی، اپیزود نوزدهم
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## IranIntlTV — post 345020
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345020_1782772441.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پریسا از لس‌آنجلس، از خانواده جاویدنام علیرضا مهرداد: علیرضا برای آزادی به خیابان رفت
+
+یک ایران صدای شما را می‌شنود
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/z_bpOmIf6ug
+@iranintltv
+</div>
+
+## IranIntlTV — post 345019
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345019_1782772442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترنم از بروجرد: هجدهم دی‌ تیر به پایم خورد؛ حتی نمی‌توانم جایی بروم تا تیر را بیرون بیاورم
+
+یک ایران صدای شما را می‌شنود
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/z_bpOmIf6ug
+@iranintltv
+</div>
+
+## IranIntlTV — post 345018
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345018_1782772443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال، درباره اختلاف‌ها میان اعضای مجلس خبرگان رهبری بر سر تفاهم‌نامه با آمریکا و بازگشایی تنگه هرمز، گفت: «این اختلاف نشان می‌دهد که با یک بحث مشورتی یا اختلاف داخلی ساده مواجه نیستیم، بلکه با اختلافی عمیق بر سر یک سیاست کلان روبه‌رو هستیم.»
+
+او افزود: «شاید با اقداماتی مانند تعطیلی مجلس شورای اسلامی به دستور شورای عالی امنیت ملی، بخشی از این اختلافات مهار شده باشد، اما نشانه‌های این شکاف‌ها در جاهای دیگر بروز پیدا می‌کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345017
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/345017" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی | اگر صدایت به گوش یک ایران برسد، چه می‌گویی؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 345016
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345016_1782772445.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره مذاکرات تهران و واشینگتن و نشست فردا میان طرفین در دوحه قطر گفت: «نشست دوحه شاید بسیار مهم باشد و شاید هم نه؛ باید منتظر نتایج آن ماند. اما در مجموع، روند این پرونده تا اینجا خوب پیش رفته است.»
+
+او افزود: «از نظر نظامی نیز ما در حال پیروزی هستیم و حتی می‌توانم بگویم که تقریبا کار تمام شده است. موضوع بسیار ساده است: غیرهسته‌ای‌سازی ایران. ما نمی‌خواهیم ایران به مواد هسته‌ای دسترسی داشته باشد و آن‌ها نیز نباید سلاح هسته‌ای داشته باشند.»
+
+ترامپ گفت: «آن‌ها با این موضوع موافقت کرده‌اند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345015
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345015_1782772447.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا دبیر، رییس فدراسیون کشتی در جمع خبرنگاران، پس از حذف تیم ملی از جام جهانی، فوتبال ایران را با برزیل مقایسه کرد و گفت «ما وقتی در موشکی از هیچی می‌شویم همه چیز، در این چیزها که راحت‌تر بالا می‌آییم.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345014
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/345014" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: کشته شدن فرمانده ارشد سپاه در «تصادف»
+@iranintlTV
+</div>
+
+## IranIntlTV — post 345013
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345013_1782772448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به سی‌ان‌ان گفت پس از درگیری‌های اخیر در نزدیکی تنگه هرمز، تهران و واشینگتن تصمیم گرفته‌اند فعلا از هرگونه اقدام تنش‌زا خودداری کنند.
+
+دونالد ترامپ گفت روند گفت‌وگوها از نظر واشینگتن به‌خوبی پیش می‌رود و بار دیگر تاکید کرد هدف اصلی آمریکا، خلع سلاح هسته‌ای ایران است.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 345012
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345012_1782772450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازارهای سهام جهان روز دوشنبه همزمان با پیگیری اجرای توافق موقت میان آمریکا و جمهوری اسلامی رشد کردند. در همین حال، قیمت نفت نیز با وجود نگرانی‌ها درباره تداوم تنش‌ها افزایش یافت.
+به گزارش رویترز، تیم‌های فنی آمریکا و جمهوری اسلامی قرار است طی روزهای آینده در دوحه درباره اجرای این توافق گفت‌وگو کنند. با این حال، حملات متقابل اخیر دو طرف همچنان نگرانی‌ها درباره شکننده بودن این توافق را حفظ کرده است.
+بهای نفت برنت با ۱.۶ درصد افزایش به ۷۳ دلار و ۱۵ سنت و نفت خام آمریکا با ۲.۲ درصد رشد به ۷۰ دلار و ۷۵ سنت در هر بشکه رسید.
+تحلیلگران می‌گویند با وجود امید به ازسرگیری جریان عادی صادرات از تنگه هرمز، ریسک‌های ژئوپلیتیک همچنان از بازار نفت حمایت می‌کند.
+https://iranintl.com/202606297993
+</div>
+
+## IranIntlTV — post 345011
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345011_1782772450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «پس از کشته شدن شمار زیادی از فرماندهان و مقامات ارشد، جمهوری اسلامی در بسیاری از موارد از اعلام رسمی جانشینان آنها خودداری کرده و وضعیت تعدادی از سمت‌های کلیدی همچنان نامشخص است. ریاست ستاد کل نیروهای مسلح، فرماندهی بسیج و نیروی دریایی سپاه، وزارت اطلاعات، سپند و دبیری شورای دفاع از جمله سمت‌هایی هستند که بر اساس این متن، روسای آن‌ها به‌طور رسمی اعلام نشده‌اند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345010
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345010_1782772451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی الزیدی، نخست‌وزیر عراق، اعلام کرد کارزار دولت علیه فساد تازه در آغاز راه است. این اظهارات پس از آن مطرح شد که نیروهای ویژه مبارزه با تروریسم عراق در عملیاتی کم‌سابقه به خانه شماری از سیاستمداران و نمایندگان مجلس در منطقه سبز بغداد یورش بردند.
+
+خبرگزاری رسمی عراق گزارش داد در این عملیات دست‌کم ۴۷ مظنون، از جمله چند نماینده مجلس و مقام ارشد دولتی، بازداشت شده‌اند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345009
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345009_1782772452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ایرانیان خارج از کشور برای هفته آینده، همزمان با مراسم تشییع و دفن علی خامنه‌ای، به تجمعاتی از ۱۳ تا ۱۸ تیر، برابر با ۴ تا ۹ ژوئیه، در سراسر جهان دعوت شده‌اند. این فراخوان از سوی دفتر رسانه‌ای شاهزاده رضا پهلوی و در قالب «هفته اقدام برای آزادی ایران» منتشر شده است.مطالبه اصلی این تجمعات از دولت‌های جهان این است که با جمهوری اسلامی معامله نکنند و مردم ایران را انتخاب کنند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345008
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345008_1782772453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه واکنش‌ها به مذاکرات احتمالی در قطر، یکی از اعضای کمیسیون امنیت ملی مجلس با اشاره به پیام مجتبی خامنه‌ای درباره متن تفاهم‌نامه با آمریکا تاکید کرد؛ مصلحتی که برخلاف نظر رهبر جمهوری اسلامی باشد، مفسده است.
+
+هم‌زمان، فداحسین مالکی، دیگر عضو کمیسیون امنیت ملی مجلس شورای اسلامی، با ابراز مخالفت شدید با روند جاری، خواهان ممنوعیت ورود رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، به ایران شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345007
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345007_1782772455.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «رسانه‌های رسمی جمهوری اسلامی می‌گویند محمد اکبرزاده، معاون نیروی دریایی سپاه، در مسیر کرمان بر اثر تصادف جان باخته است. روایتی که با توجه به کشته شدن فرماندهان سپاه به روش های مختلف، باور پذیری آن برای افکار عمومی سخت است. اکبرزاده پس از کشته شدن علیرضا تنگسیری، از معدود فرماندهان ارشد نیروی دریایی سپاه بود که به‌طور علنی موضع‌گیری و رجزخوانی علیه آمریکا، اسرائیل و کشورهای منطقه را ادامه می‌داد.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 7306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 29 Jun 2026 21:41:07 UTC
+
+Clashes between Kurdish groups and IRGC forces in Paveh, Kermanshah Province.
+Casualties amongst IRGC elements reported
+Iran
+
+ترجمه خودکار فارسی
+
+درگیری‌ها میان گروه‌های کُرد و نیروهای سپاه پاسداران انقلاب اسلامی (IRGC) در پاوه، استان کرمانشاه.
+تلفاتی در میان عناصر سپاه پاسداران گزارش شده است.
+ایران
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 222262
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222262_1782772456.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روستایی: وزن و اعتبار «مراجع تقلید» در جامعه امروز ایران از بین رفته است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222261
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺معاون سیاسی نیروی دریایی سپاه کشته شد
+
+▪️رسانه‌های داخلی در ایران می‌گویند محمد اکبرزاده، «معاون سیاسی» نیروی دریایی سپاه پاسداران در «سانحه رانندگی» کشته شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166132.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222260
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222260_1782772457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شاهین مدرس: رفتارهای مخرب حکومت ایران به گسترش پیمان‌های ابراهیم کمک می‌کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تاکید وزیران خارجه آمریکا و آلمان بر جلوگیری از دستیابی جمهوری اسلامی به سلاح اتمی
+
+▪️مارکو روبیو وزیر امور خارجه آمریکا، روز دوشنبه ۸ تیرماه، به‌طور جداگانه با وزیر امور خارجه آلمان، و معاون فرمانده ارتش ملی لیبی دیدار و گفتگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166128.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶پایان نیمه اول / جام جهانی ۲۰۲۶؛ آلمان صفر − پاراگوئه یک
+
+تیم ملی فوتبال آلمان در مرحله یک‌شانزدهم نهایی در ورزشگاه ۶۵ نفری "ژیلت" در ماساچوست به مصاف پاراگوئه رفت. پاراگوئه در دقیقه دوم بازی فرصت گلزنی داشت، اما مانوئل نویر، دروازه‌بان آلمان این حمله را دفع کرد. ملی‌پوشان آلمان پس از این حمله زودهنگام کنترل بازی را در دست گرفتند، اما نتوانستند به طور جدی خطرآفرین شوند. در دقیقه ۴۲ خولیو انسیسو، بازیکن پاراگوئه از بی‌توجهی مدافعان آلمان سود برد و توپ را با ضربه سر وارد دروازه حریف کرد. آلمان در دقایق پایانی دست به چند حمله زد تا به گل تساوی برسد، اما تلاش‌هایش بی‌ثمر ماند و دیدار در نیمه اول، با نتیجه یک بر صفر به سود پاراگوئه خاتمه یافت.
+
+
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 18363
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18363_1782772458.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+F-16 Falcon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23540
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23540_1782772459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مثل اینکه سپاه تو پاوه تلفات زیادی داشته و جنازه هارو به بیمارستان منتقل کردن و این جمعیت از خانواده ها جلوی بیمارستان تجمع کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله مسلحانه به ایست بازرسی پاوه در استان کرمانشاه باعث کشته شدن 3 سپاهی شده.
+
+سیروس درویشی
+خالد خالدی
+برهان کریسانی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاتز وزیر دفاع اسرائیل :
+
+اماده از سرگیری دوباره حمله به ایران هستیم فقط کافیه مذاکرات دوباره شکست بخوره.
+
+ایران 47 روز فرصت داره که با آمریکا به توافق نهایی برسه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حداد عادل :
+تمام بچه‌های علی خامنه‌ای زندگی خیلی ساده‌ای داشتن؛ هیچ فعالیت اقتصادی‌ای نداشتن، هیچ سهامی نداشتن و حتی در بانک هم حساب نداشتن.
+
+پ.ن : اشکم دراومد 😔
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285388
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_285388_1782772459.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسیر ایران و عمان برای عبور از تنگه هرمز چه ویژگی‌هایی دارند؟
+
+برای عبور کشتی‌ها از تنگه هرمز، در حال حاضر سه مسیر مجزا وجود دارد. هرکدام از این مسیرها، ویژگی‌های خاص خودشان را دارند اما مسیری که از همه جدیدتر مشخص شده، مسیر عبوری کشور عمان است.
+
+غنچه حبیبی‌آزاد از بخش راستی‌آزمایی بی‌بی‌سی با استفاده از داده‌های شرکت «کپلر» که در زمینه ردیابی و تحلیل کشتی‌ها فعالیت می‌کند، نگاهی انداخته به کشتی‌های عبوری از تنگه هرمز طی روزهای اخیر و این مسیرها را با هم مقایسه کرده است.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285387
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285387_1782772461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‌
+
+کاظم غریب‌آبادی، معاون وزارت خارجه ایران، به صحبت‌های امانوئل مکرون، رئیس‌جمهور فرانسه، درباره اعلام آمادگی کشورش برای کمک به مین‌زدایی تنگه هرمز واکنش نشان داده است.
+
+آقای غریب‌آبادی در پستی در شبکه ایکس تاکید کرده که طبق یادداشت تفاهم اسلام‌آباد، «مین‌زدایی صرفا توسط ایران انجام می‌شود و نه هیچ کشور دیگری.»
+
+معاون وزارت خارجه ایران با اشاره به «حساس و پیچیده» بودن شرایط نوشته است: «توصیه اکید می‌کنیم فرانسه آن را با تحریکاتش پیچیده‌تر نکند.»
+
+آقای مکرون که امروز میزبان هیثم بن طارق، سلطان عمان، بود ساعاتی پیش در ایکس نوشت که فرانسه و عمان برای کاهش تنش در خاورمیانه با هم همکاری می‌کننند.
+
+او نوشت: «ما تصمیم گرفته‌ایم که به طور مشترک و با هماهنگی شرکای خود، در زمینه مین‌زدایی تنگه هرمز همکاری کنیم تا مسیرهای دریایی را ایمن کرده و عبور آزاد و بی‌قید و شرط از تنگه هرمز را تضمین کنیم.»
+
+📷Reuters
+https://bbc.in/3SwAcQ8
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393442
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393442_1782772462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا گذاری باورنکردنی خیابانی روی آرناتوویچ و خداداد عزیزی 😂😂😂😂😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393441
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393441_1782772463.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه میخواید تو کسب و کارتون موفق باشید نصحیت های استاد رو واقعا گوش بدید بسیار اموزندس.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصاویری بسیار زیبا از ماه کامل توت‌فرنگی امشب 🌜🍓
+
++ این پستو بفرست برای ماهِ اصلی زندگیت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393437
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393437_1782772465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏میتونی فکر کنی پول خوشبختی نمیاره
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 130990
+
+<div align="center">
+  <img src="telegram/content/alonews_130990_1782772465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌اگه تحمل شنیدن حقیقت‌های تلخ رو نداری، اینو اصلاً تست نکن! ❌
+
+همیشه به این چارت تولد و ستاره‌شناسی می‌خندیدم، تا اینکه خودم امتحان کردم و لال شدم... 😶
+
+دقیقاً همون مشکل‌هایی که تو کار و رابطه‌هام داشتم رو مو به مو آورد جلو چشمم!
+انگار یه نفر از بچگی داشته منو آنالیز می‌کرده و می‌دونسته کجای کارم می‌لنگه. 👀
+
+اگه می‌خوای بفهمی:
+✔️ کدهای پنهان شخصیتیت چیه
+✔️مسیر اصلی موفقیتت کجاست
+⚠️ این آنالیزگر روانی رو از دست نده.
+
+
+⬇️فقط یه بار تستش کن تا بفهمی چی میگم⬇️
+</div>
+
+## alonews — post 130989
+
+<div align="center">
+  <a href="telegram/content/alonews_130989_1782772466.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مداحک:
+رو هلیکوپترشون غیرت داشتن بهتون حمله کردن و علی خامنه‌ای رو هنوز دفن نکردید
+
+
+🔴۱۰۰ میلیارد دلار پولتون دست اوناست، و میخوان ۶ میلیاردشو بهتون سویا و ذرت بدن
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130988
+
+<div align="center">
+  <a href="telegram/content/alonews_130988_1782772467.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شمار قربانیان دو زمین‌لرزه ونزوئلا به ۱۷۱۹ کشته و ۵۰۳۴ مصدوم افزایش یافت.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130987
+
+<div align="center">
+  <a href="telegram/content/alonews_130987_1782772468.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امام جمعه اهواز(مِگامَن):امتحان نهایی هارو به تعویق بندازید تا بچها از امتحان الهی یعنی اربعین مردود نشن
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130986
+
+<div align="center">
+  <a href="telegram/content/alonews_130986_1782772468.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار در شهر موناکو فرانسه
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 130985
+
+<div align="center">
+  <img src="telegram/content/alonews_130985_1782772468.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امسال تعزیه‌های محرّم چرا اینجوری شده؟
+
+
+🔴داستان عوض شده یا فصل جدید کربلاست؟
+
+
+🤔آخرین باری که اینو آتیش زدن خودشون پوکیدن
+</div>
+
+---
 📅 بروزرسانی: 1405/04/09 00:41
 ---
 
