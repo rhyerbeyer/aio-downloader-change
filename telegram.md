@@ -7,6 +7,402 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/09 03:15
+---
+
+## VahidOOnLine — post 247938
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247938_1782776704.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران گزارش داد که آریا نورانی، معلم رسمی پایه ابتدایی در شهرستان مانه استان خراسان شمالی، به ۱۴ ماه حبس محکوم شده است.
+
+این شورا نوشت که نورانی در جریان اعتراضات بازداشت و حدود دو هفته زندانی شد. او سپس با تودیع وثیقه به‌طور موقت آزاد شد.
+شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران ضمن حمایت از آریا نورانی، خواستار مختومه شدن پرونده او و همچنین آزادی سایر معلمان زندانی شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247937
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247937_1782776705.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبر ورزشی در گزارشی نوشت، «در حالی که تیم ملی فوتبال با ناکامی محض و حذف از مرحله یک‌شانزدهم از گردونه رقابت‌های جام جهانی بیرون ماند، خبر می‌رسد اعضای این تیم پاداش‌شان را تمام و کمال دریافت کرده‌اند.» خبر ورزشی می‌نویسد: «در حالی که پیش از اعزام تیم ملی به جام جهانی -طی گزارشی در خبرورزشی- نوشتیم از مجموع ۲میلیون دلار پاداش درنظرگرفته‌شده برای راهیابی تیم ملی به جام جهانی، با نظر هیات‌رئیسه یک میلیون دلار به امیر قلعه‌نویی تعلق گرفته و یک میلیون دلار مابقی قرار است بین اعضای این تیم ملی تقسیم شود، حالا مطلع شدیم این مبالغ پیش از ورود اعضای تیم ملی به رقابت‌های جام جهانی به حساب‌شان واریز شده است.» خبر ورزشی در ادامه می‌نویسد: «اعضای هیات رئیسه به منظور ایجاد روحیه بیشتر و تقویت سرمربی تیم، با تامین بودجه، این مبلغ را به حساب اعضای تیم ملی از جمله امیر قلعه‌نویی واریز کردند اما متاسفانه تیم ملی نه تنها از گروه خود صعود نکرد بلکه حتی موفق به کسب یک پیروزی هم نشد و در نهایت از رسیدن به مرحله یک‌شانزدهم نهایی هم باز ماند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343592
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343592_1782776706.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Dr. Oz says the real Obamacare problem isn't just enrollment numbers—it's who's actually on the rolls.
+
+Speaking on @AmericaRpts, Oz said Obamacare grew from about 9 million enrollees historically to roughly 23 million this year, but claimed 40% of those enrolled never use their insurance.
+
+He argued many people may not know they're enrolled, never wanted the coverage, or already have insurance elsewhere, allowing some brokers to profit at taxpayers' expense.
+
+Oz also highlighted reports of about 1 million people using fake Social Security numbers, saying the administration is working to remove fraudulent enrollments.
+</div>
+
+## FoxNewsTwitter — post 343591
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343591_1782776709.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Bill Maher is warning his own party that recent Democratic Socialist primary victories could hurt Democrats in this year's midterm elections.
+
+Speaking with FOX News Digital, Maher argued that "really crazy" socialists risk shattering the party's hopes of making gains, urging Democrats to avoid embracing candidates he believes are too far to the left.
+
+The comments come after a string of Democratic Socialist victories in New York reignited debate over the future direction of the Democratic Party.
+</div>
+
+## pm_afshaa — post 95081
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95081_1782776711.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مکرون اعلام کرد فرانسه و عمان برای کاهش تنش‌های خاورمیانه و مشارکت در عملیات مین‌روبی تنگه هرمز همکاری میکنن.
+
+در واکنش، غریب‌آبادی به فرانسه هشدار داد فرانسه اوضاع رو پیچیده‌تر نکنه و تأکید کرد طبق تفاهم‌نامه اسلام‌آباد، عملیات مین‌روبی در تنگه هرمز فقط توسط ایران انجام میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 345027
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345027_1782776712.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران گزارش داد که آریا نورانی، معلم رسمی پایه ابتدایی در شهرستان مانه استان خراسان شمالی، به ۱۴ ماه حبس محکوم شده است.
+
+این شورا نوشت که نورانی در جریان اعتراضات بازداشت و حدود دو هفته زندانی شد. او سپس با تودیع وثیقه به‌طور موقت آزاد شد.
+شورای هماهنگی تشکل‌های صنفی فرهنگیان ایران ضمن حمایت از آریا نورانی، خواستار مختومه شدن پرونده او و همچنین آزادی سایر معلمان زندانی شد.
+https://iranintl.com/202606295147
+</div>
+
+## IranIntlTV — post 345026
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345026_1782776713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال آلمان در مرحله یک‌شانزدهم نهایی جام جهانی پس از تساوی یک بر یک در وقت قانونی، در ضربات پنالتی چهار بر سه برابر پاراگوئه شکست خورد و از دور مسابقات حذف شد.
+
+🔹گل اول این مسابقه در دقیقه ۴۲ توسط خولیو انسیسو به ثمر رسید و شاگردان ناگلزمان بازنده به رختکن رفتند.
+
+🔹در نیمه دوم اما فشار قهرمان چهار دوره جام جهانی جواب داد و کای هاورتز گل تساوی را به ثمر رساند تا برای اولین بار در این جام، یک مسابقه به وقت اضافه کشیده شود.
+
+🔹در وقت اضافه اول جاناتان تا روی ضربه کرنر دروازه پاراگوئه را باز کرد اما پس از بازبینی ویدیویی از سوی داور، این گل رد شد تا کار به پنالتی کشیده شود.
+
+🔹در ضربات پنالتی نیز در نهایت پاراگوئه با نتیجه چهار بر سه برد تا در مرحله بعدی با برنده مسابقه فرانسه و سوئد، دیدار کند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345025
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345025_1782776714.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر و ویدیوهای منتشرشده در رسانه‌های وابسته به حکومت نشان می‌دهد جایگاه قرار گرفتن تابوت جنازه علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، در محلی مرتفع در مصلای تهران قرار دارد.
+
+حسن حسن‌زاده، فرمانده سپاه تهران و رییس ستاد تشییع جنازه علی خامنه‌ای، در این‌باره گفت این جایگاه از نظر ارتفاع، جهت و استقرار در حیاط اصلی مصلای تهران به‌گونه‌ای طراحی شده که از همه نقاط صحن، رواق‌ها، پشت‌بام شبستان اصلی مصلی و هر نقطه‌ای که زائران مستقر شوند، دید کامل به آن وجود داشته باشد.
+
+پیش‌تر، غلامحسین مظفری، استاندار خراسان رضوی، درباره مراسم تشییع جنازه خامنه‌ای در مشهد گفته بود: «پیشنهاد مشخص شورای تامین استان، برگزاری مراسم تشییع علی خامنه‌ای به‌صورت هوایی است و به نظر می‌رسد این پیشنهاد اجرایی شود.»
+
+بر اساس اعلام رسمی ستاد تشییع علی خامنه‌ای، قرار است جنازه رهبر کشته‌شده جمهوری اسلامی، ۱۸ تیر در مشهد دفن شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345024
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345024_1782776715.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی را از گروگان سیاست آزاد کنید!
+
+حذف تیم ملی فوتبال ایران از جام جهانی، بار دیگر بحث قدیمی رابطه سیاست و فوتبال را به صدر گفت‌وگوهای عمومی بازگرداند. برای بخشی از جامعه، این تیم دیگر «تیم ملی ایران» نبود؛ به همین دلیل، واکنش‌ها به نتایج آن نیز صرفاً فوتبالی نبود و با نگاه‌ها و احساسات سیاسی گره خورد.
+
+کامبیز حسینی در «برنامه» به این موضوع می پردازد.
+
+یک ایران صدای شما را می‌شنود
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/z_bpOmIf6ug
+@iranintltv
+</div>
+
+## IranIntlTV — post 345023
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345023_1782776718.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مارک‌وین مولین، وزیر امنیت داخلی آمریکا پس از حذف ایران از جام جهانی ۲۰۲۶ از نحوه برخورد دولت این کشور با تیم ملی در مرحله گروهی دفاع کرد و گفت: «خیلی خوشحالم که آن‌ها رفتند.» مولین همچنین گفت «تقریبا نیمی» از فهرست پیشنهادی همراهان تیم ملی ارتباط مستقیم با سپاه پاسداران داشتند.
+
+🔹بر اساس گزارش اسپورتس بیزنس ژورنال؛ مولین روز دوشنبه همدردی چندانی با حذف تیم ملی ایران از جام جهانی ۲۰۲۶ نشان نداد. او در نشست توجیهی امنیتی جام جهانی در مرکز هماهنگی رویدادهای ویژه دولت آمریکا گفت: «خیلی خوشحالم که دارند برمی‌گردند، چون هیچ تیمی به اندازه آن‌ها ما را درگیر نکرد.»
+
+🔹او سپس در گفت‌وگو با گروه کوچکی از خبرنگاران، با صراحت بیشتری گفت: «فقط خوشحالم که کارشان تمام شد و دیگر برنمی‌گردند. وقتی توانستیم ویزاهایشان را لغو کنیم و گفتیم می‌توانند خاک آمریکا را ترک کنند، آن‌قدر خوشحال بودم که شاید یکی دو آهنگ هم خواندم یا حتی از خوشحالی رقصیدم.»
+
+🔹وزیر امنیت داخلی آمریکا ادعای مقام‌های جمهوری اسلامی، فدراسیون فوتبال و تیم ملی مبنی بر رفتار ناعادلانه را رد کرد.
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345022
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345022_1782776718.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تشییع جنازه «هوایی» خامنه‌ای!
+
+علی خامنه‌ای در دوران رهبری، چهره‌ای جدی و کم‌لبخند از خود به نمایش می‌گذاشت؛ اما آنچه این روزها از نحوه اطلاع‌رسانی و روایت مراسم تشییع او دیده می‌شود، بیش از آنکه به یک مراسم رسمی شباهت داشته باشد، به یک کمدی ناخواسته شبیه است؛ آن هم برای کسی که حکومتش او را «رهبر جهان اسلام» می‌نامید.
+
+قرار است از ۱۳ تا ۱۸ تیر، مراسم تشییع و تدفین علی خامنه‌ای برگزار شود.
+
+کامبیز حسینی در «برنامه» به روایت و بررسی این اظهارات و حاشیه‌های مراسم تشییع علی خامنه‌ای می‌پردازد.
+
+یک ایران صدای شما را می‌شنود
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/z_bpOmIf6ug
+@iranintltv
+</div>
+
+## IranIntlTV — post 345021
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345021_1782776721.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن از نیشابور: از دی‌ماه، هر کس نفهمید، یعنی نانش در نفهمیدن است
+
+یک ایران صدای شما را می‌شنود
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/z_bpOmIf6ug
+@iranintltv
+</div>
+
+## FarsiVOA — post 222266
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222266_1782776723.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مقامات در افغانستان می‌گویند حملات هوایی پاکستان دست‌کم ۳۸ غیرنظامی را کشت. آن‌ها گفتند بیش از ۱۶۰ نفر نیز در حمله شبانه پاکستان کشته شدند. به گزارش آسوشیتدپرس پاکستان می‌گوید در عملیات زمینی و هوایی در امتداد مرز افغانستان، حداقل ۲۹ شبه‌نظامی را کشته است. به گزارش رویترز، سازمان ملل می‌گوید ۲۸ غیرنظامی، از جمله کودکان و زنان، در حملات پاکستان کشته شدند. یک سخنگوی طالبان گفت که نیروهای پاکستانی یک خانه را هدف قرار دادند و یک مرد مسن و یک کودک را کشتند و دیگر اعضای خانواده را نیز مجروح کردند. تنش‌ها در مرز این دو کشور به‌شدت افزایش یافته‌است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222265
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222265_1782776723.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حسن هاشمیان: تهدید جنگ داخلی در لبنان، روایت‌سازی حزب‌الله است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222264
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در نشست «نه به اعدام» ۷۵ نماینده فرانسوی از هشت جریان سیاسی کفالت سیاسی زندانیان ایرانی در معرض خطر اعدام را بر عهده گرفتند و برگزارکنندگان از آغاز یک کارزار بین‌المللی برای افزایش فشار بر جمهوری اسلامی خبر دادند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222263
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222263_1782776725.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حال و هوای لس آنجلس در زمان بازی کانادا- آفریقای جنوبی؛ گزارش آرمیتا آزاد
+@FarsiVOA
+</div>
+
+## IranianMinds — post 23541
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تیم ملی آلمان با شکست در مقابل پاراگوئه از رقابت های جام جهانی حذف شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285389
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285389_1782776726.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+رسانه‌های ایران خبر می‌دهند که محمد اکبرزاده، معاون سیاسی نیروی دریایی سپاه، در یک سانحه رانندگی کشته شده است.
+
+به گزارش خبرگزاری ایرنا، این سانحه بر اثر واژگونی خودرو حامل آقای اکبرزاده «در یکی از جاده‌های یزد - کرمان» رخ داده است.
+
+بر اساس این گزارش، آقای اکبرزاده به یک مرکز درمانی منتقل شده اما به دلیل شدت جراحات جان باخته است.
+
+
+
+📷Mehr news
+https://bbc.in/3SwAcQ8
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه! 
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی 
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان 
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان میدونستی با انتخاب…
+</div>
+
+## Dirty_Kids — post 393449
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393449_1782776727.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه!
+
+
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی
+
+
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان
+
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان
+
+میدونستی با انتخاب برد هلند مقابل مراکش با ده میلیون بیست و دو میلیون تومن برنده میشی؟!
+
+
+💸 هرچی بزرگ‌تر بازی کنی، جایزت بزرگ‌تره!
+
+🥅همین حالا پیش بینیتو ثبت کن
+💖
+https://fidobazi85.click
+https://fidobazi85.click
+
+👆
+👆
+👆
+👆
+👆
+(ورود با وی-پی-ان غیر اروپایی)
+❌
+A8
+
+📲کانال تلگرام 
+👇
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 393448
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393448_1782776728.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393447
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393447_1782776728.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حماس مرگ مجتبی خامنه ای رو لو داد 🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🫏 از قبرس شمالی میارند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393445
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393445_1782776731.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدم وسط خیابون بمونه نیاد پیش همچین داداشی 🤣😆🥰🌺
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393444
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393444_1782776733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سجاد غریبی با خرید اشتراک هوش‌مصنوعی این ویدیو رو از خودش منتشر کرد و گفت بخدا هوش مصنوعی نیست و واقعیه😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393443
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393443_1782776735.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه این روزا به هر دلیلی، رفیقت نا امیده، افسردس، غمگینه و... این کلیپو حتما براش بفرست.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/04/09 02:03
 ---
 
