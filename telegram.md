@@ -7,6 +7,1542 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/10 00:47
+---
+
+## VahidOOnLine — post 248054
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248054_1782854240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل در شبکه اجتماعی ایکس اعلام کرد یک عضو حزب‌الله را که در نزدیکی محدوده امنیتی محل استقرار نیروهای این کشور، هدف قرار داده و کشته است.
+
+ارتش تاکید کرد به اقدامات خود برای رفع هرگونه تهدید علیه نیروهایش ادامه خواهد داد و اجازه نخواهد داد حزب‌الله به شهروندان اسرائیل آسیب برساند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248053
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گفتگو محمدباقر قالیباف، رئیس مجلس شورای اسلامی و مذاکره‌کننده ارشد جمهوری اسلامی، سه‌شنبه نهم تیرماه در حالی که از شبکه خبر در حال پخش بود، ناگهان و بدون هیچ توضیحی قطع شد. صداوسیما تاکنون توضیحی درباره علت قطع ناگهانی این گفتگو ارائه نکرده است.
+پیش از این نیز پخش گفتگو محمود نبویان، نایب‌رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، در جریان پخش زنده از شبکه خبر قطع شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248052
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248052_1782854240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس، معاون رییس‌جمهور آمریکا با انتقاد از منتقدان که خواهان حملات بیشتر به جمهوری اسلامی هستند، در یک برنامه تلویزیونی گفت: «دیدگاه آن‌ها این است که فقط بمب بریزید، باز هم بمب بریزید؛ اما واقعا نمی‌توانند توضیح دهند که هدف نهایی از این کار چیست.»
+
+او افزود: «اما چیزی که رییس‌جمهور [ترامپ] می‌گوید این است حاضرم دستور حملات هوایی بدهم، و به‌وضوح هم نشان داده که در صورت لزوم این کار را انجام می‌دهد، اما فقط زمانی که این اقدام در راستای دستیابی به یک هدف مشخص باشد.»
+
+او در بخش دیگری از اظهاراتش گفت: «یکی از چیزهایی که درباره ایرانی‌ها برایم هم جالب و هم آزاردهنده است این است که می‌گویند نه، هیچ گفت‌وگوی صلحی در جریان نیست، اما در همان حال مذاکرات فنی میان واشینگتن و تهران درباره توافق صلح در حال انجام است. این یک تاکتیک مذاکره یا شگرد ایرانی است که من آن را درک نمی‌کنم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در دوران پس از انقلاب ملی و جنگ - سه‌شنبه ۹ تیر ۱۴۰۵
+
+🔹پزشکم. تو ۴۰سالگی با پول ۱۰ سال کار کردن خودم و ارث پدری‌ام، با بدبختی یه مطب تو یه محله خوب تهران خریدم. تو یک ماه ۵ تا مریض هم نیومد، با این‌که قیمت‌ها رو نصف کردم تا مریض بیاد و بره. حتی حقوق منشی هم درنمیاد! مردم از شدت گرونی جرئت دکتر رفتن هم ندارن.
+
+🔹همه جای دنیا آموزش و معلم حرف اول رو می‌زنن و از جایگاه خاصی برخوردارن، ولی متأسفانه در ایران فقیرترین قشر معلمه و کمترین حقوق رو معلم می‌گیره. دیگه چه انگیزه‌ای برای معلم می‌مونه که بره سر کلاس درس بده، وقتی فکرش درگیر خرج روزمرگی باشه؟
+
+🔹وضعیت پرستارها افتضاحه. اجازه اضافه‌کار نداریم. تعرفه پرداخت نمی‌شه. حق اعتراض نداریم. فقط موظفیم حجاب رو رعایت کنیم، حتی موقع احیای بیمار.
+
+🔹نخ دندون ایرانی مینا خریدم ۱۶۰ هزار تومن. یعنی با حقوق یک روز کارگر فقط ۵ تا نخ دندون می‌تونه بخره. چقدر بدبختیم.
+
+🔹یه بازی ۱۰۰ دلاری که تو خارج حقوق چند ساعت کارمند ساده‌ست، اینجا شده ۲۰ میلیون تومن. یعنی هیچی هم نخری و نخوری، باید حقوق ۲۰ روزت رو بدی فقط یه بازی بخری. کنسول، کامپیوتر، مانیتور، کیبورد، موس و... به کنار.
+
+🔹ماشین‌های حشد شعبی امروز (۹ تیر) خیلی از خرمشهر به سمت آبادان رفت‌وآمد داشتن.
+
+🔹کسی توجه کرده انفجار مین‌های خلیج پارس برای پاک‌سازی تا چه اندازه باعث نابودی گونه‌های منحصربه‌فرد دریا و مرگ‌ومیر آبزیان می‌شه؟
+
+🔹از تهران: انقدر وضعیت دارو و خدمات پزشکی گرون شده که پسرم یه ویروس ساده گرفت و حدود سه میلیون تومن هزینه شد. واقعاً کی می‌خواد اوضاع درست بشه؟
+
+🔹از نورآباد لرستان: ما زمانی فهمیدیم کنکور تو این مملکت عادلانه نیست که با سهمیه می‌فرستادن دانشگاه، ولی کسی که تلاش کرده رو رد می‌کنن. اما واقعاً نهایت بی‌عدالتی این بود که برای کسایی که المپیاد شرکت کردن امتحان نهایی برگزار نمی‌کنید و کنکورشون تعویق می‌خوره.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248050
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248050_1782854241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف گفت جمهوری اسلامی درباره «مقاومت و هسته‌های مقاومت» با هیچ طرفی مذاکره نمی‌کند.
+
+او افزود آمریکا تضمین کرده است که «جبهه مقاومت» در لبنان باقی بماند.
+
+قالیباف همچنین گفت جمهوری اسلامی عضو پیمان منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) است، با آژانس بین‌المللی انرژی اتمی همکاری می‌کند و غنی‌سازی حق این کشور است. او تاکید کرد پایبندی به تعهدات ان‌پی‌تی و حق غنی‌سازی قابل مذاکره نیست.
+
+رییس مجلس جمهوری اسلامی افزود تا پنج بند نخست یادداشت تفاهم اجرا و تثبیت نشود، تهران وارد مذاکره درباره سایر بندها نخواهد شد. او گفت هر جا اسرائیل و آمریکا برخلاف بند نخست یادداشت تفاهم اقدام کنند، جمهوری اسلامی نیز متقابلا واکنش نشان خواهد داد و به همین دلیل حزب‌الله در لبنان واکنش نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248049
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248049_1782854241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده که همواره گسترش ایده‌های «کمونیستی» در میان سیاستمداران آمریکایی را یکی از خطرات جدی علیه این کشور دانسته، در پیامی کنایی، رای دیوان عالی آمریکا برای نگه‌داشتن حق «شهروندی از طریق تولد» را یک پیروزی برای چین دانست.
+
+ترامپ در این پیام که در شبکه اجتماعی تروث‌سوشال منتشر شد، نوشت: «می‌خواهم پیروزی عظیم کشور بزرگ چین و رئیس‌جمهوری شی را در پرونده شهروندی از طریق تولد تبریک بگویم».
+
+دونالد ترامپ پیش‌تر با صدور دستور اجرایی، به حق شهروندی از طریق تولد در خاک آمریکا پایان داده بود اما دیوان عالی این کشور روز سه‌شنبه نهم تیرماه با صدور حکمی این حق را به رسمیت شناخته و دستور اجرایی رئیس‌جمهوری را رد کرد. بر اساس این قانون که بیش از ۱۵۰ سال قدمت دارد، اغلب کودکانی که در خاک آمریکا به دنیا بیایند، فارغ از این‌که والدینشان چه وضعیت اقامتی داشته‌اند، حق دارند که شهروندی آمریکا را دریافت کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248048
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248048_1782854242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف گفت مذاکرات سوئیس برای رسیدن به توافق بر سر مفاد یادداشت تفاهم نبود، بلکه با هدف گفت‌وگو درباره اجرای چند بند این یادداشت انجام شد.
+
+او یادداشت تفاهم را «سند شکست آمریکا و اسرائیل» خواند و گفت مهم‌ترین بخش مذاکرات در سوئیس به لبنان اختصاص داشت.
+
+قالیباف افزود کمیته‌ای مشترک میان جمهوری اسلامی، آمریکا و لبنان برای اجرای پایان جنگ در لبنان تشکیل خواهد شد و تهران و واشینگتن نمایندگان خود را برای حضور در این کمیته تعیین کرده‌اند.
+
+رییس مجلس جمهوری اسلامی همچنین گفت مذاکره با آمریکا، مذاکره با «دشمنی بدقول» است که هر زمان فرصت پیدا کند علیه جمهوری اسلامی اقدام خواهد کرد.
+
+او در واکنش به انتقادهای داخلی از یادداشت تفاهم گفت: «خوب است ببینیم نعیم قاسم و حزب‌الله درباره این تفاهم‌نامه چه می‌گویند و برخی دوستان ما در داخل چه می‌گویند.»
+
+قالیباف تاکید کرد: «یکی از افتخارات ما این است که توان آفندی و موشکی ما اصلا قابل مذاکره نیست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تالاب هورالعظیم در خوزستان همچنان با کم‌آبی روبه‌رو است؛ وضعیتی که به گفته مقام‌های محیط‌زیست، حاصل رها نشدن پایدار حق‌آبه، افزایش دما و تبخیر شدید آب است.
+
+بر اساس گزارشی که وزارت نیرو به اداره کل حفاظت محیط‌زیست خوزستان ارائه کرده، در شش ماه نخست سال آبی جاری، کمتر از ۴۰۰ میلیون متر مکعب آب به این تالاب رسیده بود؛ رقمی که کمتر از ۳۰ درصد حقابه تعیین‌شده هورالعظیم در شرایط خشکسالی است.
+
+حداقل حق‌آبه سالانه این تالاب در دوره خشکسالی، یک میلیارد و ۳۸۳ میلیون متر مکعب تعیین شده است. با افزایش بارش‌ها در بهار، میزان آب رهاسازی‌شده به حدود ۶۰ درصد رسید، اما همچنان تا تأمین کامل حقابه فاصله دارد.
+
+کاهش آب در تالاب هورالعظیم طی سال‌های گذشته پیامدهای گسترده‌ای داشته است؛ از مرگ آبزیان، حیات‌وحش و پرندگان گرفته تا افزایش آتش‌سوزی، خیزش گردوغبار و آلودگی هوا.
+
+خشک شدن بخش‌هایی از این تالاب همچنین معیشت دامداران، روستاییان و جوامع محلی اطراف هورالعظیم را تحت تأثیر قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان بریتانیا روز سه‌شنبه در مقابل پارلمان بریتانیا تجمع کرده و شعارهایی از جمله «سپاه تروریست است» سر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248045
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248045_1782854242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل در گفت‌وگو با کانال ۱۴ اسرائیل با تمجید از دستاوردهای نظامی این کشور در سال‌های اخیر گفت: «نبردهای اسرائیل هرگز تمام نمی‌شود و همچنان کارهایی برای انجام دادن علیه محور جمهوری اسلامی باقی مانده است.»
+
+نتانیاهو در پاسخ به این پرسش که آیا جنگ‌های اسرائیل با جمهوری اسلامی، حماس و حزب‌الله را می‌توان پایان‌یافته یا پیروز دانست، گفت: «این نبردها هرگز تمام نمی‌شود. اگر می‌خواهید در خاورمیانه و جهان زندگی کنید، باید بسیار قدرتمند باشید.»
+
+او افزود: «تفاهم‌هایی با لبنان شکل گرفته که هیچ‌کس پیش‌بینی نمی‌کرد. همچنین با کشورهای دیگری نیز در تماس هستیم، اما نمی‌توانم جزئیات بیشتری ارائه کنم. وقتی قدرتمند باشید، دیگران با شما ائتلاف می‌کنند و در نهایت با شما صلح هم می‌کنند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248044
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248044_1782854243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در ادامه رقابت‌های جام جهانی ۲۰۲۶، تیم ملی فوتبال نروژ روز سه‌شنبه نهم تیرماه در مرحله یک‌شانزدهم نهایی، ساحل عاج را با نتیجه دو بر یک شکست داد و به مرحله یک‌هشتم نهایی صعود کرد.
+
+نروژ روز ۱۵ تیرماه در نیویورک برای رسیدن به مرحله یک‌چهارم نهایی، به مصاف برزیل خواهد رفت.
+
+آنتونیو نوسا در دقیقه ۳۹ نروژ را پیش انداخت، اما آماد دیالو در دقیقه ۷۴ بازی را به تساوی کشاند. ارلینگ هالند در دقیقه ۸۶ گل پیروزی‌بخش نروژ را به ثمر رساند و با پنجمین گل خود در این جام، نخستین پیروزی تاریخ نروژ در مرحله حذفی جام جهانی را رقم زد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال استریت ژورنال: سپاه پاسداران این پیام را به واسطه‌های قطری منتقل کرد که اگر تضمینی مبنی بر کنترل انحصاری تنگه هرمز توسط ایران دریافت نکنند و اگر ایالات متحده و کشورهای غربی از برنامه‌های خود برای دریانوردی از مسیر جنوبی در این تنگه در نزدیکی سواحل عمان دست نکشند، دوباره تنگه هرمز را خواهند بست.
+@withyashar
+</div>
+
+## WithYashar — post 16236
+
+<div align="center">
+  <img src="telegram/content/WithYashar_16236_1782854243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمین لرزه ای به بزرگی ۶.۲ ریشتر خلیج کالیفرنیا در سواحل مکزیک را لرزاند.
+@withyashar
+</div>
+
+## WithYashar — post 16235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس: ایرانی ها یه تاکتیک عجیب برای مذاکره دارن. توی رسانه ها میگن مذاکره نمیکنیم ولی وقتی به ما زنگ میزنن برای مذاکره خواهش میکنن. خب این یعنی چی؟!
+
+ترامپ مایل است بمب‌ها را رها کند، اما فقط اگر هدفی را پیش ببرد.
+@withyashar
+</div>
+
+## WithYashar — post 16234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : چک افسری ! این ویدیو نکات ریز مهمی داره حتما دقت کنید! https://www.instagram.com/reel/DaOSvJUxDdL/?igsh=aGRkbWQyN2ozeTNs کلیک کنید و کار های اداریشو انجام بدید
+</div>
+
+## WithYashar — post 16233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور پست ، چقدر اینو خوشم اومد 😁💥 @withyashar
+</div>
+
+## WithYashar — post 16232
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنشنال: مجتبی خامنه‌ای میخواد اژه‌ای رو بعد از پایان دوره پنج ساله از ریاست قوه‌قضاییه کنار بذاره.
+@withyashar
+( البته تجربه ثابت کرده هر چیزی که ترامپ و اینترنشنال بگن، جمهوری اسلامی لج میکنه و بدتر انجام نمیده.)
+</div>
+
+## WithYashar — post 16231
+
+<div align="center">
+  <img src="telegram/content/WithYashar_16231_1782854243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور پست ، چقدر اینو خوشم اومد 😁💥
+@withyashar
+</div>
+
+## WithYashar — post 16230
+
+<div align="center">
+  <a href="telegram/content/WithYashar_16230_1782854244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو : اگه لازم باشه، برای بار سوم به ایران حمله میکنیم
+@withyashar
+</div>
+
+## WithYashar — post 16229
+
+
+
+
+## mwarmonitor — post 11773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 وال استریت ژورنال: سپاه پاسداران پیامی به میانجی‌های قطری ارسال کرده است مبنی بر اینکه در صورت عدم دریافت تضمین‌هایی که نشان دهد ایران کنترل انحصاری بر تنگه هرمز دارد، و همچنین اگر آمریکا و سایر کشورها از عبور در مسیر جنوبی عمان متوقف نشوند، دوباره تنگه هرمز را خواهند بست.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت کشور عراق از نیروهای خود تقدیر کرد؛ این افراد در یکی از ایست‌های بازرسی موفق شدند یک تلاش برای قاچاق چهار میلیون دلار را خنثی کنند، پس از آنکه رشوه پیشنهادی را رد کردند، اقدامی که به‌عنوان قدردانی از تلاش‌هایشان در موفقیت این عملیات عنوان شده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343640
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343640_1782854246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The same outrage you feel about Renee Good and Alex Pretti, you should feel about Sheridan Gorman, Laken Riley, and every Angel family."
+
+GOP Rep. Mike Lawler clashes with Democrats during heated exchange over response to Angel families
+
+Rep. Jamie Raskin and Rep. Mike Lawler engage in a tense shouting match during a House Judiciary Committee hearing after a dispute over Angel families and committee rules, with Raskin telling Lawler to "get the hell out."
+
+Lawler responds with, "You should be ashamed of yourself."
+</div>
+
+## FoxNewsTwitter — post 343639
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343639_1782854247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: “When your child is in a coffin, there's no but....”
+
+MUST WATCH: Sheridan Gorman’s mother, Jess, puts Dems on notice over protection of America’s children
+</div>
+
+## FoxNewsTwitter — post 343638
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343638_1782854249.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: "I don't understand why it's only the Republican side that cares about our American children."
+
+Jessica Gorman, mother of Sheridan Gorman, rips into Democratic lawmakers for what she takes as half-hearted apologies over the killing of her daughter by an illegal immigrant.
+
+"You don't feel my pain, because the next words out of your mouth were 'BUT...'"
+
+"There's no 'but' when your child is in a coffin."
+
+"Explain to me why illegal immigrants are more important than my daughter."
+</div>
+
+## FoxNewsTwitter — post 343637
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343637_1782854250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"My Sheridan Grace Gorman should still be alive."
+
+Jessica Gorman, the mother of Sheridan Gorman, tears into members of Congress in raw, emotional testimony, blaming sanctuary city policies and a chain of systemic failures for costing her daughter's life.
+
+"No family should ever have to bury a child because public officials fail to put American lives first. I'm just asking you to choose us. We choose you."
+
+"Why does my child matter less than an illegal immigrant? Why?"
+
+Holding up a photo taken the day before Sheridan was killed, Gorman urged the House Judiciary Committee to "say her name, tell her story, and demand better."
+
+"No mother should have to stand where I am standing, begging, BEGGING, elected leaders to value my child's life after it's already too late."
+</div>
+
+## FoxNewsTwitter — post 343636
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343636_1782854252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Jessica Gorman, the mother of Sheridan Gorman, doesn't hold back in calling out lawmakers for their treatment of Angel families, blasting them for using "slogans, statistics or excuses" to hide from their failure to protect American citizens.
+
+"Thanks for telling me without telling me that you know you're here, but you don't want to be."
+
+“Thanks for telling me you don't care."
+
+"This cannot be buried under your slogans, your statistics or excuses, and this just can't stand."
+</div>
+
+## FoxNewsTwitter — post 343635
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343635_1782854254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Jessica Gorman doesn't hold back in calling out lawmakers for their treatment of Angel families, blasting them for using "slogans, statistics or excuses" to hide from their failure to protect American citizens.
+
+"Thanks for telling me without telling me that you know you're here, but you don't want to be."
+
+“Thanks for telling me you don't care."
+
+"This cannot be buried under your slogans, your statistics or excuses, and this just can't stand."
+</div>
+
+## FoxNewsTwitter — post 343634
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343634_1782854255.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: In a heartbreaking and powerful moment, Jessica Gorman, the mother of slain Sheridan Gorman, completely unloads on lawmakers, demanding to know why failed border policies and sanctuary city laws are being prioritized over the lives of American citizens.
+
+"The story is about my Sheridan. It's about how failed border policies, sanctuary city laws, and twisted leaders refuse to cooperate with ICE."
+
+"They sent her to her grave."
+
+“It's about a government and politicians that forgot their first priority. And the question before this committee is painfully simple: When did protecting our American citizens stop being your first priority?”
+
+“And even more important, why did protecting our American citizens stop being your first priority? I want an explanation, I need one and I deserve one."
+</div>
+
+## FoxNewsTwitter — post 343633
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343633_1782854257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: NYC Mayor Zohran Mamdani holds a news conference on the upcoming heat wave https://twitter.com/i/broadcasts/1yxBeeQYYkpJN
+</div>
+
+## FoxNewsTwitter — post 343632
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343632_1782854258.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The same outrage you feel about Renee Good and Alex Pretti, you should feel about Sheridan Gorman, Laken Riley, and every Angel family."
+
+GOP Rep. Mike Lawler clashes with Democrats during heated exchange over response to Angel families
+
+Rep. Jamie Raskin and Rep. Mike Lawler engage in a tense shouting match during a House Judiciary Committee hearing after a dispute over Angel families and committee rules, with Raskin telling Lawler to "get the hell out."
+
+Lawler responds with, "You're a disgrace."
+</div>
+
+## pm_afshaa — post 95134
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95134_1782854259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما صحبت‌های قالیباف رو نصف و نیمه قطع کرد! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95133
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95133_1782854260.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ونس، معاون ترامپ:
+مقامات جمهوری اسلامی میگن مذاکره‌ای در کار نیست اما همزمان مذاکره میکنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95132
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95132_1782854260.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: یادداشت تفاهم، سند شکست آمریکا و اسرائیله و مذاکرات سوئیس برای توافق جدید نبود، بلکه درباره نحوه اجرای بندهای این تفاهم انجام شد.
+
+درباره مقاومت، توان موشکی و حق غنی‌سازی هیچ مذاکره‌ای انجام نمیشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95131
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95131_1782854260.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف:
+جمهوری اسلامی پیگیر اجرای کامل یادداشت تفاهمه، اما اگر طرف مقابل به تعهداتش عمل نکنه، برای جنگ هم آماده‌ایم.
+
+تحولات اخیر خلیج فارس نقض آتش‌بسه و ایران به اون واکنش نشان خواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95130
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95130_1782854261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: از روزی که محاصره دریایی برداشته شده تا امروز بیش از 40 میلیون بشکه نفت صادر کردیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95129
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95129_1782854261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اینترنشنال:
+مجتبی خامنه‌ای میخواد اژه‌ای رو بعد از پایان دوره پنج ساله از ریاست قوه‌قضاییه کنار بذاره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95128
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95128_1782854262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: اگه لازم باشه، برای بار سوم به ایران حمله میکنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95127
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95127_1782854263.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجری: رئیس‌جمهور آمریکا گفته پول‌های بلوکه‌شده صرفاً برای خرید غلات آمریکایی آزاد میشه. این چقدر صحت داره؟
+
+قالیباف: واقعاً هیچ.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95126
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95126_1782854264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما صحبت‌های قالیباف رو نصف و نیمه قطع کرد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 6097
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6097_1782854264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 فرید اشرفیان:
+آلمانی‌ها منتظر معرفی یورگن کلوپ به عنوان سرمربی هستند
+
+فرید اشرفیان، خبرنگار و گزارشگر ورزشی مقیم آلمان، در گفت‌وگو با مهدی رستم‌پور در برنامه «دژ فوتبالی» به بررسی عملکرد تیم ملی آلمان پرداخت و درباره حذف ناباورانه این تیم پس از شکست برابر پاراگوئه در جام جهانی گفت:
+«با حذف زودهنگام از جام جهانی، فوتبال آلمان و رسانه‌های بزرگ این کشور مشتاقانه منتظر معرفی یورگن کلوپ به عنوان سرمربی جدید تیم ملی هستند.»
+
+#دژفوتبالی #جام_جهانی #آلمان
+@DEJradio
+</div>
+
+## DEJradio — post 6096
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6096_1782854265.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 پیش‌نویس تفاهم تهران و واشنگتن؛ کشورهای عربی میان امید به ثبات و تردید نسبت به آینده
+
+گفت‌وگو با شهران طبری، تحلیلگر سیاسی
+
+#ترامپ #کشورهای_عربی #توافق
+@DEJradio
+</div>
+
+## DEJradio — post 6095
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6095_1782854265.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️🕘 خبر ۲۱
+سه‌شنبه ۹ تیر ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## kianmeli1 — post 88245
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88245_1782854267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در جریان یورش به مزرعه پسر یکی از نمایندگان زن عراق میلیون‌ها دلار که در زیر شن‌ها دفن شده بود، کشف شد. همچنین تعدادی اسب و خودرو مدل بالا نیز توقیف شده.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88244
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88244_1782854268.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بخش سانسور شده صحبت‌های قالیباف در صداوسیما: قالیباف: خریدهای قبلی این اقلام که در طول ۱۵ سال گذشته انجام می‌شده، از کجا بوده؟ آیا ال‌سی اینها در لندن باز می شد یا نه؟ چرا الان مهم شد و این حرف‌ها را میزنند؟
+
+🔴چون نمی‌خواهند بپذیرند با مجوز اوپک صادرات نفت انجام می‌شود.
+
+🔴۲۰دقیقه از این مصاحبه توسط صداوسیما سانسور شده است !
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو :
+
+اگر لازم باشد ، برای بار سوم به ایران حمله میکنیم.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88242
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88242_1782854269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غارت مردم ایران توسط مافیای خودرو
+
+قیمت کیا اپتیما ۲۰۱۶
+
+امارات ۱ میلیارد تومان
+ارمنستان ۱.۲ میلیارد
+اروپا ۱.۳ میلیارد
+میانگین جهانی ۱.۴ میلیارد
+«ایران ۶ میلیارد تومان»
+
+جالب اینجاست
+سرانه درآمد ارمنستان ماهانه ۶۰۰ دلاره
+سرانه درامد ایران ماهانه ۲۰۰ دلاره
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 345173
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345173_1782854270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل در شبکه اجتماعی ایکس اعلام کرد یک عضو حزب‌الله را که در نزدیکی محدوده امنیتی محل استقرار نیروهای این کشور، هدف قرار داده و کشته است.
+
+ارتش تاکید کرد به اقدامات خود برای رفع هرگونه تهدید علیه نیروهایش ادامه خواهد داد و اجازه نخواهد داد حزب‌الله به شهروندان اسرائیل آسیب برساند.»
+https://iranintl.com/202606301613
+</div>
+
+## IranIntlTV — post 345172
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345172_1782854270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻محمد تقوی، ایران‌اینترنشنال، در برنامه هت‌تریک درباره دیدار برزیل و ژاپن و پیروزی سلسائو گفت: «آنچلوتی نمونه یک مربی تراز اول در جهان است. او با نگه داشتن کاسمیرو در زمین، نقاط قوت تیم ملی ژاپن را به نقطه ضعف این تیم تبدیل کرد و توانست بازی را ببرد.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345171
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345171_1782854272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید به سی‌ان‌ان گفت جرد کوشنر در دوحه با نخست‌وزیر قطر و میانجی‌ها دیدار می‌کند. قطر دیدار مقام‌های آمریکا و جمهوری اسلامی و انتقال دارایی‌های مسدودشده به تهران را رد کرد. همزمان، تهران اعلام کرد مذاکرات بر آزادسازی دارایی‌های مسدودشده و ترتیبات عبور کشتی‌ها از تنگه هرمز متمرکز است.
+
+ارزیابی شهیر شهیدثالث تحلیلگر روابط بین‌الملل و مسائل ایران
+@iranintltv
+</div>
+
+## IranIntlTV — post 345170
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345170_1782854273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه بحران معیشت و گرانی در ایران، علی جنتی، وزیر پیشین فرهنگ و ارشاد اسلامی، هشدار داد وخامت اوضاع اقتصادی می‌تواند به شکل‌گیری موج تازه‌ای از اعتراضات جمعی منجر شود. او در عین حال مدعی شد حکومت اجازه تکرار اعتراضات گذشته را نخواهد داد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345169
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345169_1782854274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس، معاون رییس‌جمهور آمریکا با انتقاد از منتقدان که خواهان حملات بیشتر به جمهوری اسلامی هستند، در یک برنامه تلویزیونی گفت: «دیدگاه آن‌ها این است که فقط بمب بریزید، باز هم بمب بریزید؛ اما واقعا نمی‌توانند توضیح دهند که هدف نهایی از این کار چیست.»
+
+او افزود: «اما چیزی که رییس‌جمهور [ترامپ] می‌گوید این است حاضرم دستور حملات هوایی بدهم، و به‌وضوح هم نشان داده که در صورت لزوم این کار را انجام می‌دهد، اما فقط زمانی که این اقدام در راستای دستیابی به یک هدف مشخص باشد.»
+
+او در بخش دیگری از اظهاراتش گفت: «یکی از چیزهایی که درباره ایرانی‌ها برایم هم جالب و هم آزاردهنده است این است که می‌گویند نه، هیچ گفت‌وگوی صلحی در جریان نیست، اما در همان حال مذاکرات فنی میان واشینگتن و تهران درباره توافق صلح در حال انجام است. این یک تاکتیک مذاکره یا شگرد ایرانی است که من آن را درک نمی‌کنم.»
+https://iranintl.com/202606306046
+</div>
+
+## IranIntlTV — post 345168
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345168_1782854274.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی برزیل در حالی موفق شد با پیروزی بر ژاپن به مرحله یک‌هشتم نهایی جام جهانی صعود کند که در ابتدا از حریف آسیایی خود عقب افتاد و در ادامه با گل‌های کاسمیرو و مارتینلی توانست کامبک بزند و با پیروزی زمین بازی را ترک کند.
+
+🔹گفتگو مزدک میرزایی با کوشاد دلشاد، مربی فوتبال در هت‌تریک
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345167
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در دوران پس از انقلاب ملی و جنگ - سه‌شنبه ۹ تیر ۱۴۰۵
+
+🔹پزشکم. تو ۴۰سالگی با پول ۱۰ سال کار کردن خودم و ارث پدری‌ام، با بدبختی یه مطب تو یه محله خوب تهران خریدم. تو یک ماه ۵ تا مریض هم نیومد، با این‌که قیمت‌ها رو نصف کردم تا مریض بیاد و بره. حتی حقوق منشی هم درنمیاد! مردم از شدت گرونی جرئت دکتر رفتن هم ندارن.
+
+🔹همه جای دنیا آموزش و معلم حرف اول رو می‌زنن و از جایگاه خاصی برخوردارن، ولی متأسفانه در ایران فقیرترین قشر معلمه و کمترین حقوق رو معلم می‌گیره. دیگه چه انگیزه‌ای برای معلم می‌مونه که بره سر کلاس درس بده، وقتی فکرش درگیر خرج روزمرگی باشه؟
+
+🔹وضعیت پرستارها افتضاحه. اجازه اضافه‌کار نداریم. تعرفه پرداخت نمی‌شه. حق اعتراض نداریم. فقط موظفیم حجاب رو رعایت کنیم، حتی موقع احیای بیمار.
+
+🔹نخ دندون ایرانی مینا خریدم ۱۶۰ هزار تومن. یعنی با حقوق یک روز کارگر فقط ۵ تا نخ دندون می‌تونه بخره. چقدر بدبختیم.
+
+🔹یه بازی ۱۰۰ دلاری که تو خارج حقوق چند ساعت کارمند ساده‌ست، اینجا شده ۲۰ میلیون تومن. یعنی هیچی هم نخری و نخوری، باید حقوق ۲۰ روزت رو بدی فقط یه بازی بخری. کنسول، کامپیوتر، مانیتور، کیبورد، موس و... به کنار.
+
+🔹ماشین‌های حشد شعبی امروز (۹ تیر) خیلی از خرمشهر به سمت آبادان رفت‌وآمد داشتن.
+
+🔹کسی توجه کرده انفجار مین‌های خلیج پارس برای پاک‌سازی تا چه اندازه باعث نابودی گونه‌های منحصربه‌فرد دریا و مرگ‌ومیر آبزیان می‌شه؟
+
+🔹از تهران: انقدر وضعیت دارو و خدمات پزشکی گرون شده که پسرم یه ویروس ساده گرفت و حدود سه میلیون تومن هزینه شد. واقعاً کی می‌خواد اوضاع درست بشه؟
+
+🔹از نورآباد لرستان: ما زمانی فهمیدیم کنکور تو این مملکت عادلانه نیست که با سهمیه می‌فرستادن دانشگاه، ولی کسی که تلاش کرده رو رد می‌کنن. اما واقعاً نهایت بی‌عدالتی این بود که برای کسایی که المپیاد شرکت کردن امتحان نهایی برگزار نمی‌کنید و کنکورشون تعویق می‌خوره.
+</div>
+
+## IranIntlTV — post 345166
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345166_1782854276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف گفت جمهوری اسلامی درباره «مقاومت و هسته‌های مقاومت» با هیچ طرفی مذاکره نمی‌کند.
+
+او افزود آمریکا تضمین کرده است که «جبهه مقاومت» در لبنان باقی بماند.
+
+قالیباف همچنین گفت جمهوری اسلامی عضو پیمان منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) است، با آژانس بین‌المللی انرژی اتمی همکاری می‌کند و غنی‌سازی حق این کشور است. او تاکید کرد پایبندی به تعهدات ان‌پی‌تی و حق غنی‌سازی قابل مذاکره نیست.
+
+رییس مجلس جمهوری اسلامی افزود تا پنج بند نخست یادداشت تفاهم اجرا و تثبیت نشود، تهران وارد مذاکره درباره سایر بندها نخواهد شد. او گفت هر جا اسرائیل و آمریکا برخلاف بند نخست یادداشت تفاهم اقدام کنند، جمهوری اسلامی نیز متقابلا واکنش نشان خواهد داد و به همین دلیل حزب‌الله در لبنان واکنش نشان می‌دهد.
+https://iranintl.com/202606306077
+</div>
+
+## IranIntlTV — post 345165
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345165_1782854276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف گفت مذاکرات سوئیس برای رسیدن به توافق بر سر مفاد یادداشت تفاهم نبود، بلکه با هدف گفت‌وگو درباره اجرای چند بند این یادداشت انجام شد.
+
+او یادداشت تفاهم را «سند شکست آمریکا و اسرائیل» خواند و گفت مهم‌ترین بخش مذاکرات در سوئیس به لبنان اختصاص داشت.
+
+قالیباف افزود کمیته‌ای مشترک میان جمهوری اسلامی، آمریکا و لبنان برای اجرای پایان جنگ در لبنان تشکیل خواهد شد و تهران و واشینگتن نمایندگان خود را برای حضور در این کمیته تعیین کرده‌اند.
+
+رییس مجلس جمهوری اسلامی همچنین گفت مذاکره با آمریکا، مذاکره با «دشمنی بدقول» است که هر زمان فرصت پیدا کند علیه جمهوری اسلامی اقدام خواهد کرد.
+
+او در واکنش به انتقادهای داخلی از یادداشت تفاهم گفت: «خوب است ببینیم نعیم قاسم و حزب‌الله درباره این تفاهم‌نامه چه می‌گویند و برخی دوستان ما در داخل چه می‌گویند.»
+
+قالیباف تاکید کرد: «یکی از افتخارات ما این است که توان آفندی و موشکی ما اصلا قابل مذاکره نیست.»
+https://iranintl.com/202606307351
+</div>
+
+## IranIntlTV — post 345164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان بریتانیا روز سه‌شنبه در مقابل پارلمان بریتانیا تجمع کرده و شعارهایی از جمله «سپاه تروریست است» سر دادند.
+</div>
+
+## IranIntlTV — post 345163
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345163_1782854277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل در گفت‌وگو با کانال ۱۴ اسرائیل با تمجید از دستاوردهای نظامی این کشور در سال‌های اخیر گفت: «نبردهای اسرائیل هرگز تمام نمی‌شود و همچنان کارهایی برای انجام دادن علیه محور جمهوری اسلامی باقی مانده است.»
+
+نتانیاهو در پاسخ به این پرسش که آیا جنگ‌های اسرائیل با جمهوری اسلامی، حماس و حزب‌الله را می‌توان پایان‌یافته یا پیروز دانست، گفت: «این نبردها هرگز تمام نمی‌شود. اگر می‌خواهید در خاورمیانه و جهان زندگی کنید، باید بسیار قدرتمند باشید.»
+
+او افزود: «تفاهم‌هایی با لبنان شکل گرفته که هیچ‌کس پیش‌بینی نمی‌کرد. همچنین با کشورهای دیگری نیز در تماس هستیم، اما نمی‌توانم جزئیات بیشتری ارائه کنم. وقتی قدرتمند باشید، دیگران با شما ائتلاف می‌کنند و در نهایت با شما صلح هم می‌کنند.»
+https://iranintl.com/202606309451
+</div>
+
+## IranIntlTV — post 345162
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345162_1782854277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معصومه طاهرخانی، تحلیلگر اقتصادی، با اشاره به افزایش دوباره نرخ ارز پس از تفاهم ۶۰ روزه میان جمهوری اسلامی و آمریکا، به ایران‌اینترنشنال گفت این افزایش تنها به فضای روانی مذاکرات مربوط نیست، بلکه رشد تقاضای واردات، محدودیت بانک مرکزی در تامین ارز، تورم بالا، افزایش نقدینگی و مشکلات ساختاری اقتصاد، فشار مضاعفی بر بازار وارد کرده است. به گفته او، اگر مذاکرات به توافقی معنادار و آزادسازی منابع بلوکه‌شده ایران منجر نشود، اقتصاد کشور با جهشی شدیدتر در نرخ دلار و تشدید بحران‌های اقتصادی روبه‌رو خواهد شد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345161
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345161_1782854279.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، درباره ریشه اختلاف‌ها در جمهوری اسلامی بر سر تفاهم با آمریکا می‌گوید: «مجتبی خامنه‌ای، به‌جای آنکه عامل وحدت در جمهوری اسلامی باشد، خود به یکی از عوامل تفرقه تبدیل شده است. در دوران علی خامنه‌ای، قدرت او از سپاه پاسداران بیشتر بود، اما درباره مجتبی خامنه‌ای این معادله برعکس است و سپاه پاسداران دست بالا را دارد. در چنین فضایی، چنددستگی در جمهوری اسلامی تشدید شده است؛ چهره‌ها و جریان‌ها روزها علیه یکدیگر صف‌آرایی می‌کنند، شب‌ها از وحدت سخن می‌گویند و صبح روز بعد دوباره در برابر هم جبهه می‌گیرند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345160
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/345160" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: پشت پرده حمایت بی‌سابقه سپاه از آشتی و تفاهم با آمریکا
+@iranintlTV
+</div>
+
+## FarsiVOA — post 222340
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222340_1782854281.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نازیلا گلستان در برنامه تفسیر خبر: برای رسیدن به هدف نهایی باید مطالبه ملی تغییر کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️استقبال آلمان از توافق جمهوری اسلامی و آمریکا برای ادامه مذاکرات
+@AFarsiVOA
+</div>
+
+## FarsiVOA — post 222338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جمهوری اسلامی در فهرست سیاه «گروه ویژه اقدام مالی» باقی ماند
+
+▪️وزارت خزانه‌داری آمریکا روز سه‌شنبه ۹ تیر گزارشی از نشست اخیر «گروه ویژه اقدام مالی» موسوم به اف‌ای‌تی‌اف را که مقام‌های آمریکایی نیز در آن شرکت کردند، منتشر کرد. این نهاد بین‌المللی تعیین‌کننده استانداردهای مبارزه با پول‌شویی، مبارزه با تأمین مالی تروریسم و مبارزه با تأمین مالی اشاعه سلاح‌های کشتار جمعی است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/fatf-blacklist-iran-usa/8166446.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش برنامه تفسیر خبر: پاسداران چگونه از محافظان قدرت به صاحبان آن تبدیل شدند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222336
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222336_1782854282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علیرضا نوایی کارشناس امور کارگری: جنبش اعتراضی شاغلان و بازنشستگان بیدار است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222335
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بنیاد عبدالرحمن برومند: جمهوری اسلامی از آغاز سال ۲۰۲۶ تاکنون دست‌کم ۸۱۶ نفر را اعدام کرده است؛ گزارش‌ها از تداوم فشار بر زندانیان سیاسی
+
+▪️بنیاد عبدالرحمن برومند اعلام کرد جمهوری اسلامی از ابتدای سال جاری میلادی تاکنون دست‌کم ۸۱۶ نفر را اعدام کرده است که ۱۱۱ مورد آن در ماه ژوئن، از ۱۰ خرداد تا ۹ تیر، انجام شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-rights-abuses-under-scrutiny/8166484.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/zyjosw6nmEg?feature=share
+</div>
+
+## Persian_Trend_Official — post 18421
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18421_1782854282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوال مجری از قالیباف: رئیس جمهور آمریکا گفته پول های آزاد شده باید صرف خرید غلات از آمریکا شود، این چقدر صحت دارد؟
+
+قالیباف: واقعاً هیچ. بر اساس این تفاهم‌نامه، از مجموع 24 میلیارد دلار دارایی ما در کشورهای مختلف، قرار است 12 میلیارد دلار در اختیار بانک مرکزی قرار بگیرد تا هر کالایی را که لازم دارد، با هر قیمتی و با هر ارزی در دنیا خریداری کند.این کار امکان‌پذیر است و روند آن در حال انجام است.
+
+این قدرت جمهوری اسلامی است. از آن لذت ببرید، به آن افتخار کنید و پای آن بایستید. باید فشار اقتصادی را از روی دوش مردم برداریم. ما این کار را با عزت انجام دادیم و این سند شکست آمریکاست.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو آغاز میشه
+</div>
+
+## RadioFarda — post 158939
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هالند با گل دیرهنگام به ساحل عاج، نروژ را به یک‌هشتم نهایی جام جهانی رساند
+
+🔸ارلینگ هالند با به ثمر رساندن گل پیروزی‌بخش در دقیقه ۸۶ در برابر ساحل عاج باعث پیروزی ۲ بر ۱ نروژ شد و این تیم را به مرحله یک‌هشتم نهایی جام جهانی ۲۰۲۶ رساند.
+
+🔸در نیمه اول این بازی که روز سه‌شنبه در وزرشگاه شهر دالاس برگزار شد، به رغم آن که ساحل عاج تهاجمی‌تر آغاز کرده بود، مارتین اودگارد، کاپیتان نروژ، در دقیقه ۳۹ توپ را به سمت چپ برای آنتونیو نوسا فرستاد و او پس از آوردن توپ روی پای راست، با ضربه‌ای تماشایی توپ را از دستان یحیی فوفانا عبور داد و به گوشه بالای دروازه ساحل عاج فرستاد.
+
+🔸دقایقی بعد، هالند با یک تکل نجات‌بخش مدافعان از گلزنی بازماند و الکساندر سورلوث نیز روی کرنر حاصل از همان صحنه، ضربه سر خود را از مقابل دروازه ساحل عاج به بیرون فرستاد.
+
+🔸در سوی دیگر میدان، امانوئل آگبادو با ضربه سر توپ را به بیرون زد و ۱۰ دقیقه پس از آغاز نیمه دوم نیز نیکلاس په‌په، پس از آنکه ضربه اولیه گوئلا دوئه دفع شد، با واکنش دروازه‌بان نروژ ناکام ماند.
+
+🔸اماد دیالو که در دقیقه ۶۰ به جای کریست اینائو اولای وارد میدان شده بود، گل تساوی ساحل عاج را به ثمر رساند؛ وینگر منچستریونایتد با یک حرکت ترکیبی سریع و یک-دو با په‌په، از سد مدافعان نروژ گذشت و با ضربه‌ای محکم که پس از برخورد به زمین از دروازه‌بان عبور کرد، گل تساوی را به ثمر رساند و شادی گسترده بازیکنان ساحل عاج را رقم زد.
+
+🔸اما در نهایت این هالند بود که حرف آخر را زد و پنجمین گل خود در جام جهانی را به ثمر رساند. اسکار باب، بازیکن تعویضی و هم‌تیمی سابق هالند در منچسترسیتی، توپ را در محوطه جریمه به پاتریک برگ رساند و او نیز با یک پاس، هالند را در موقعیت گل قرار داد تا مهاجم نروژ در حالی که فوفانا از دروازه خارج شده بود، توپ را وارد دروازه خالی کند.
+
+🔸در وقت‌های تلف‌شده، نیلند، دروازه‌بان نروژ ضربه ایستگاهی اماد دیالو را مهار کرد تا برتری شکننده نروژ حفظ شود و این تیم جواز حضور در مرحله یک‌هشتم نهایی را به دست آورد.
+
+🔸نروژ روز یکشنبه در نیویورک در دیداری جذاب به مصاف برزیل خواهد رفت.
+
+🔸در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸محمدباقر قالیباف، مذاکره‌کننده ارشد جمهوری اسلامی، شامگاه سه‌شنبه با طرح ادعای تسلط ایران بر تنگه هرمز در پی جنگ ۴۰ روزه هشدار داد که «نباید تنگه را به ضد خودش تبدیل کنیم».
+
+🔸او افزود: «تنگه هرمز زمانی ارزشمند است که روز‌به‌روز تردد در آن بیشتر شود، نه کمتر.»
+
+🔸در پی آغاز حملات آمریکا و اسرائیل در نهم اسفند سال گذشته، ایران این آبراه حیاتی را مسدود کرد. بر اساس تفاهم ایران و آمریکا« تهران متعهد شده که «ترتیبات لازم را برای عبور ایمن کشتی‌های تجاری، بدون دریافت هیچ هزینه‌ای و صرفاً برای مدت ۶۰ روز، از خلیج فارس به دریای عمان و بالعکس فراهم خواهد کرد.»
+
+🔸با باز شدن تنگه هرمز، قیمت نفت به شدت پایین آمد و آمریکا و عمان مسیری جدید برای حرکت کشتی‌ها در نظر گرفتند. ایران هفته گذشته با حمله به دو کشتی سعی کرد این مسیر را مسدود کند. در پی این حملات، ارتش آمریکا در بامداد روزهای شنبه و یکشنبه اهداف نظامی در جنوب ایران را هدف قرار داد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸محمدباقر قالیباف، مذاکره‌کننده ارشد جمهوری اسلامی، شامگاه سه‌شنبه اعلام کرد در حال حاضر «اصلا مذاکره‌ای با آمریکا نداریم».
+
+🔸او در گفت‌وگویی با تلویزیون حکومتی ایران محاصره دریایی آمریکا علیه بنادر ایران را که بعد از آتش‌بس و از فروردین‌ماه آغاز شد، «شدیدترین نوع جنگ» خواند که به گفته او «مردم و نان مردم» را محاصره کرده بود.
+
+🔸قالیباف افزود که برداشته شدن این محاصره «از موفقیت‌های بزرگ» تفاهم‌نامه امضا شده بین ایران و آمریکا بود.
+
+🔸او اعلام کرد که مذاکرات فقط تا زمان امضای یادداشت تفاهم ادامه داشت و سفر به سوئیس برای گفت‌وگو درباره «اجرای بندهای» همین تفاهم‌نامه بود که ۲۵ خرداد بین ایران و آمریکا امضا شد.
+
+🔸هیئت‌های مذاکره‌کننده به ریاست جی‌دی ونس، معاون رئیس‌جمهور آمریکا، و محمدباقر قالیباف از طرف ایران روز ۳۱ خرداد گفت‌وگوهایی را در اقامتگاه بورگن‌اشتوک سوئیس آغاز کردند.
+
+🔸در پی این مذاکرات، قطر و پاکستان به عنوان میانجی‌ها اعلام کردند که ایران و ایالات متحده آمریکا توافق کردند که برای نظارت سیاسی بر روند مذاکرات طرفین، یک «کمیته عالی» تشکیل شود.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو:
+
+من می‌خواهم کمک‌های آمریکا را متوقف کنم. این مثل کمک‌های رفاهی است؛ من آن را نمی‌خواهم.
+
+اقتصاد ما دیگر یک اقتصاد کوچک نیست؛ ما می‌توانیم همین بخش کوچک از درصد تولید ناخالص داخلی‌مان که از ایالات متحده دریافت می‌کنیم را خودمان تأمین مالی کنیم.
+
+می‌خواهم این روند امسال شروع شود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بی‌بی نتانیاهو:
+
+کارهای بیشتری در ایران باقی مانده است، حزب‌الله یک «پنتاگون» زیر زمین ساخته است.
+
+آماده‌سازی برای گسترش توافقات ابراهیم در دستور کار است و همزمان با چند کشور گفتگو می‌کنیم!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23594
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قالیباف :
+
+یادداشت تفاهم، سند شکست آمریکا و اسرائیله و مذاکرات سوئیس برای توافق جدید نبود، بلکه درباره نحوه اجرای بندهای این تفاهم انجام شد.
+
+درباره مقاومت، توان موشکی و حق غنی‌سازی هیچ مذاکره‌ای انجام نمیشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جی‌دی ونس:
+
+ایرانی ها یه تاکتیک عجیب برای مذاکره دارن.
+توی رسانه ها میگن مذاکره نمیکنیم ولی وقتی به ما زنگ میزنن برای مذاکره خواهش میکنن.
+خب این یعنی چی؟
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال استریت ژورنال:
+
+سپاه پاسداران به واسطه‌های قطری پیام داد که اگر تضمینی برای کنترل انحصاری تنگه هرمز دریافت نکنند و آمریکا و سایر کشورها از حرکت در مسیر جنوبی عمان دست برندارند، دوباره تنگه هرمز را خواهند بست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23591
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23591_1782854285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ نروژ به مرحله یک هشتم نهایی جام جهانی صعود کرد!
+نروژ پس از پیروزی در مقابل ساحل عاج با 2 گل زده و 1 گل خورده به مرحله یک هشتم نهایی جام جهانی راه یافت.
+نروژ vs برزیل
+يکشنبه 14 تیر ساعت 23:30
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23590
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23590_1782854285.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو:
+
+جنگ هرگز پایان نخواهد یافت.
+
+ما با تایید دولت حضور خود را در لبنان تقویت کرده ایم.
+
+اتفاقی که در ترکیه می افتد مرا نگران می کند.
+
+من در مورد آنچه در سینا اتفاق می افتد با مصر تماس گرفتم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23589
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23589_1782854287.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂صداوسیما از رو لج پخش مستقیم مصاحبه قالیباف رو قطع کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 همچنین بی‌بی نتانیاهو گفت:
+
+اگر لازم باشد برای بار سوم به ایران حمله خواهیم کرد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما از رو لج پخش مستقیم مصاحبه قالیباف رو قطع کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23586
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23586_1782854288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنیامین نتانیاهو:
+
+بگذارید چیزی به شما بگویم؛
+جنگ هرگز تمام نمی‌شود.
+
+می‌خواهید زنده بمانید؟
+در خاورمیانه و در جهان، باید بسیار قوی باشید.
+ما بسیار قوی هستیم، اسرائیل قوی‌تر از همیشه است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23585
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23585_1782854289.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات سنگین اسرائیل به جنوب لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منابع داخلی گزارش دادند بخشی از یگان‌های نیروی زمینی ارتش جمهوری اسلامی، ازجمله واحدهای زرهی، پیاده، توپخانه و تکاوران نوهد در مرزهای غرب و شمال غرب کشور مستقر شده‌اند.
+
+گفته می‌شود این اقدام واکنش به افزایش تحرکات مرزی گروه‌های مسلح مستقر در کوهستان‌های اقلیم کردستان و عراق است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285443
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285443_1782854289.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تیم ملی نروژ با شکست دو بر یک ساحل عاج به جمع ۱۶ تیم جام جهانی پیوست و حالا اریک هالند باید برابر برزیل خود را مجددا ثابت کند.
+
+گل اول مسابقه را نروژ در نیمه اول زد اما ساحل عاج در دقیقه ۷۴ بازی را به تساوی کشید تا نوبت اریک هالند برسد. این فوق ستاره نروژ در دقیقه ۸۴ گل دوم نروژ را زد تا این مسابقه در همان ۹۰ دقیقه برنده داشته باشد.
+
+نروژ با شکست ساحل عاج حریف برزیل در مرحله یک هشتم شد.
+
+برزیل دیروز در یک مسابقه دشوار و در حالی که یک نیمه از ژاپن شکست خورده بود در نهایت دو بر یک سامورایی‌ها را شکست داد.
+
+📷 Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 285442
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/285442" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙پادکست برنامه شصت دقیقه سه‌شنبه ۹ تیر ۱۴۰۵
+
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+
+با هشتگ BBCPersianRadio با ما در ارتباط باشید.
+</div>
+
+## BBCPersian — post 285441
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_285441_1782854290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم سه‌شنبه ۹ تیر ۱۴۰۵
+@BBCPersian
+</div>
+
+## idfinfarsi — post 11943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پس از فعالیت در نزدیکی نیروها: ارتش اسرائیل یک تروریست وابسته به سازمان تروریستی حزب‌الله را در منطقه المنزله به هلاکت رساند.
+
+❌ارتش اسرائیل امروز (سه‌شنبه) یک تروریست وابسته به سازمان تروریستی حزب‌الله را که در منطقه المنزله و در نزدیکی منطقه امنیتی محل فعالیت نیروهای ارتش اسرائیل فعالیت می‌کرد، شناسایی کرد. فعالیت این تروریست تهدیدی برای نیروها محسوب می‌شد.
+
+🔻پس از شناسایی، ارتش اسرائیل برای رفع این تهدید، این تروریست را هدف قرار داده و به هلاکت رساند.
+
+🔻ارتش اسرائیل به فعالیت خود برای رفع هرگونه تهدید علیه نیروهایش ادامه خواهد داد و اجازه نخواهد داد که سازمان تروریستی حزب‌الله به شهروندان کشور اسرائیل آسیب برساند.
+</div>
+
+## Dirty_Kids — post 393509
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393509_1782854292.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نازنین، یکی از شرکت کننده‌های فصل جدید عشق ابدی، نامزد جاویدنام مهران سماک هست که توی اعتراضات ۴۰۱ به قتل رسید...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393508
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393508_1782854292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از سری معجزتات رهبر شهید:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393507
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393507_1782854293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صرفا جهت تزریق حال خوب *_*
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393506
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393506_1782854294.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادمین بعضی از انلاین شاپ ها😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393505
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393505_1782854295.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما از رو لج پخش مستقیم مصاحبه قالیباف رو قطع کرد 😂😂😂مخالفان مذاکره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران اینترنشنال:
+مجتبی خامنه‌ای از محسنی اژه ای اصلا راضی نیست و قراره اونو بر کنار کنه😂😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393503
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393503_1782854297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین عکس از تابوت خالی موشعلی خامنه‌ای و خونوادش منتشر شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393502
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393502_1782854297.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جیگرم سوخت؛ اشک و زاری یه دختر کنکوری بخاطر به تعویق نیفتادن کنکور.
+
+برای ۸ نفر المپیادی جلسه تشکیل دادن که تایم کنکور و المپیادشون یکی نباشه، ولی ما ۱۳۰ هزار نفر که کارزار امضا کردیم هیچی.
+میگه زندگیم رو نابود کردین و پیام داده خسروپناه و التماس میکنه یه کاری کنه💔
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 131175
+
+<div align="center">
+  <a href="telegram/content/alonews_131175_1782854298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حال بچه‌های کنکوری خوب نیست...
+
+
+🔴یعنی مسئولین این صحنه‌ها رو می‌بینن و سکوت می‌کنن؟
+
+
+🔴سهمیه برای ۸ نفر المپیادی ردیف شد...
+
+
+🔴ولی برای کنکوری‌های ۴۰۵، با این همه فشار و آسیب روحی
+
+
+🔴کسی به تعویق امتحانات توجهی نکرد.
+
+
+🔴کاش یه سهمیه اعصاب و روان هم برای کنکوری‌های ۴۰۵ وجود داشت...
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131174
+
+<div align="center">
+  <a href="telegram/content/alonews_131174_1782854300.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: قالیباف امشب خیلی حرف زد، بقیه حرفاش فردا شب پخش میشه
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131173
+
+<div align="center">
+  <a href="telegram/content/alonews_131173_1782854300.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بخش سانسور شده صحبت‌های قالیباف در صداوسیما: قالیباف: خریدهای قبلی این اقلام که در طول ۱۵ سال گذشته انجام می‌شده، از کجا بوده؟ آیا ال‌سی اینها در لندن باز می شد یا نه؟ چرا الان مهم شد و این حرف‌ها را میزنند؟
+
+
+🔴چون نمی‌خواهند بپذیرند با مجوز اوپک صادرات نفت انجام می‌شود.
+
+
+
+🔴۲۰دقیقه از این مصاحبه توسط صداوسیما سانسور شده است !
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131172
+
+<div align="center">
+  <a href="telegram/content/alonews_131172_1782854302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دولت ونزوئلا : یه کودک ۳ ساله رو از زیر آوار، بعد شیش روز نجات دادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 131171
+
+<div align="center">
+  <a href="telegram/content/alonews_131171_1782854302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روزنامه «العربی الجدید»: تلویزیون ایران به‌طور ناگهانی گفت‌وگوی زنده با محمدباقر قالیباف، رئیس مجلس شورای اسلامی، را بدون ارائه هیچ توضیحی قطع و پایان داد.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131170
+
+<div align="center">
+  <a href="telegram/content/alonews_131170_1782854302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: ما باید از طریق بازرسی‌های مداوم، برچیده شدن برنامه هسته‌ای ایران را تأیید کنیم!
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131169
+
+<div align="center">
+  <a href="telegram/content/alonews_131169_1782854302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو درباره غزه: «مهاجرت داوطلبانه» از غزه همچنان روی میز است.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131168
+
+<div align="center">
+  <a href="telegram/content/alonews_131168_1782854302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو درباره ترکیه: اردوغان درباره تمایلش به نابودی اسرائیل و کنترل دوباره اورشلیم صحبت می‌کند.
+
+
+🔴فکر می‌کنم فراموش کرده که ۴۰۰ سال حکومت عثمانی به پایان رسیده است. امروز یک دولت قدرتمند اسرائیل وجود دارد.
+
+
+🔴او باید آرام شود. ما اجازه نمی‌دهیم کسی وجود یا امنیت ما را تهدید کند، و فکر می‌کنم نشان داده‌ایم که چه توانایی‌هایی داریم
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131167
+
+<div align="center">
+  <a href="telegram/content/alonews_131167_1782854302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: نتیجه مذاکرات مستقیم لبنان با اسرائیل، احترام به تمامیت ارضی لبنان است
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131166
+
+<div align="center">
+  <a href="telegram/content/alonews_131166_1782854303.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امیر رولکس : ما نرفتیم مرحله بعدی ولی کلی دست آورد بدست آوردیم اینم عزتی بود که خدا به ما داد
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131158
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع اسرائیل اعلام کرد که سامانه دفاع هوایی گنبد آهنین پس از یک سری آزمایش‌های گسترده که با همکاری سامانه‌های دفاعی پیشرفته رافائل انجام شده و شامل درس‌های عملیاتی از جنگ و عملیات اخیر علیه ایران است، ارتقا یافته است
+
+
+🔴 این سامانه ارتقا یافته در برابر تهدیدات پیشرفته از جمله راکت‌ها، موشک‌های کروز و پهپادها آزمایش شد، این آزمایش‌ها همچنین شامل سناریوهای عملیاتی مشترک با سامانه رهگیری لیزری پرتو آهنین بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 131157
+
+<div align="center">
+  <a href="telegram/content/alonews_131157_1782854304.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف وقتی گفت توافق خرید غلات و گندم در ازای پولای بلوکه شده مال دولت سیزدهم(رئیسی) بوده است، مصاحبه اش در صداوسیما قطع شد
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131156
+
+<div align="center">
+  <a href="telegram/content/alonews_131156_1782854305.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفتگوی قالیباف نصف و نیمه در شبکه خبر قطع شد 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/09 22:52
 ---
 
