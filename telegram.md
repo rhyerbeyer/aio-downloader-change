@@ -7,6 +7,512 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/09 05:23
+---
+
+## VahidOOnLine — post 247944
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247944_1782784431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دولت عراق به گروه‌های مسلح نزدیک به حکومت ایران تا ۳۰ سپتامبر مهلت داده است تا خلع سلاح شوند؛ تاریخی که هم‌زمان با پایان ماموریت ائتلاف بین‌المللی به رهبری آمریکا علیه گروه‌های شبه نظامی اعلام شده است. سخنگوی دولت عراق گفت پس از این تاریخ، هرگونه سلاح خارج از چارچوب دولت با اقدامات قانونی روبه‌رو خواهد شد.
+این تصمیم در آستانه سفر علی الزیدی، نخست‌وزیر جدید عراق، به آمریکا اعلام شده است؛ سفری که در شرایط افزایش فشار واشنگتن بر بغداد برای کنترل و ادغام گروه‌های مسلح مورد حمایت ایران انجام می‌شود.
+به گزارش رویترز،عراق میزبان ده‌ها گروه مسلح نزدیک به حکومت ایران است که بسیاری از آنها بخشی از نیروهای حشدالشعبی هستند. این گروه‌ها پس از حمله آمریکا به عراق در سال ۲۰۰۳ شکل گرفتند و در جریان جنگ با داعش از سال ۲۰۱۴ نفوذ بیشتری پیدا کردند.
+دولت عراق در ماه‌های اخیر تلاش کرده است اعضای این گروه‌ها را به نیروهای رسمی کشور ادغام کند تا مالکیت و استفاده از سلاح تنها در اختیار دولت باشد. این طرح شامل برخی تیپ‌هایی نیز می‌شود که خارج از ساختار رسمی حشدالشعبی فعالیت می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247943
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247943_1782784432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد ماریا کورینا ماچادو، رهبر مخالفان ونزوئلا، اعلام کرد برای کمک به روند امدادرسانی و بازسازی مناطق زلزله‌زده به این کشور بازخواهد گشت.
+
+ماچادو که اکنون در پاناما به سر می‌برد، دولت ونزوئلا را متهم کرد مانع بازگشت او شده است. او گفت «حاضرم هر کاری لازم باشد انجام دهم» تا در این شرایط اضطراری به شهروندان ونزوئلا کمک کند.
+
+رویترز پیش‌تر گزارش داده بود ماچادو برای تسهیل بازگشت خود با مقام‌های کاخ سفید، وزارت خارجه آمریکا و اعضای کنگره در تماس بوده است. با این حال، وزارت خارجه آمریکا در واکنش به این گزارش اعلام کرد تمرکز واشینگتن در حال حاضر بر ادامه کمک‌رسانی به آسیب‌دیدگان زلزله‌های مرگبار ونزوئلا است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247942
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247942_1782784432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد ارزش ین ژاپن در برابر دلار به پایین‌ترین سطح خود از سال ۱۹۸۶ رسید و گمانه‌زنی‌ها درباره مداخله دولت ژاپن در بازار ارز افزایش یافت.
+
+بر اساس این گزارش، هر دلار در معاملات روز سه‌شنبه به ۱۶۲.۲۷ ین رسید. تحلیلگران می‌گویند اختلاف نرخ بهره میان آمریکا و ژاپن و انتظار برای ادامه سیاست‌های انقباضی فدرال رزرو، همچنان فشار بر ارزش ین را حفظ کرده است.
+
+سرمایه‌گذاران همچنین در انتظار انتشار آمار اشتغال آمریکا و تحولات مربوط به گفت‌وگوهای جمهوری اسلامی و آمریکا هستند که می‌تواند بر بازارهای مالی و چشم‌انداز نرخ بهره تاثیر بگذارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247941
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247941_1782784433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اختلاف بر سر خاستگاه باقلوا بار دیگر بالا گرفته است؛ در حالی که یونان این شیرینی را بخشی از میراث فرهنگی خود می‌داند، ترکیه و آذربایجان نیز برای ثبت مشترک آن در فهرست میراث فرهنگی ناملموس یونسکو اقدام کرده‌اند.
+به گزارش روزنامه «حریت»، ترکیه و آذربایجان در پرونده‌ای مشترک، باقلوا را برای ثبت در فهرست میراث فرهنگی ناملموس یونسکو نامزد کرده‌اند. میراث فرهنگی ناملموس به آیین‌ها، سنت‌ها، مهارت‌ها و دانش فرهنگی گفته می‌شود که از نسلی به نسل دیگر منتقل می‌شوند. قرار است کمیته میراث فرهنگی ناملموس یونسکو در نشست آتی خود که از ۳۰ نوامبر تا ۵ دسامبر در شهر شیامن چین برگزار می‌شود، درباره این پرونده تصمیم‌گیری کند.
+یونان با استناد به پیشینه تهیه شیرینی‌های لایه‌ای با خمیر نازک، عسل و گردو در دوران امپراتوری بیزانس و جزایر دریای اژه، باقلوا را بخشی از هویت فرهنگی خود می‌داند. در مقابل، ترکیه به اسناد تاریخی دوران عثمانی درباره پخت این شیرینی در آشپزخانه‌های دربار استناد می‌کند و اکنون همراه با آذربایجان در تلاش است این میراث را به‌صورت مشترک در یونسکو به ثبت برساند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247940
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247940_1782784433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال آلمان با شکست در ضربات پنالتی مقابل پاراگوئه، در مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶ به شکلی بی‌سابقه و ناباورانه از گردونه رقابت‌ها حذف شد. این مسابقه پس از تساوی ۱-۱ در وقت‌های قانونی و اضافی، در ضربات پنالتی با برتری ۴ بر ۳ پاراگوئه به پایان رسید تا مانشافت برای نخستین بار در تاریخ خود، در ضیافت پنالتی‌های جام جهانی طعم شکست را بچشد. با این ناکامی، قهرمان چهار دوره جهان برای سومین دوره متوالی از رسیدن به مرحله یک‌هشتم نهایی جام جهانی بازماند.
+کای هاورتز در دقیقه ۵۳ گل تساوی آلمان را به ثمر رساند تا گل دقیقه ۴۲ خولیو انسیسو برای پاراگوئه جبران شود. آلمان‌ها در دقیقه ۱۰۲ وقت‌های اضافی توسط جاناتان تاه به گل برتری رسیدند، اما داور پس از بازبینی ویدئویی (VAR)، این گل را به دلیل خطای والدما آنتون روی دروازه‌بان پاراگوئه مردود اعلام کرد. در ضربات پنالتی، اورلاندو گیل، دروازه‌بان پاراگوئه، با مهار ضربات هاورتز و وولتماده ستاره میدان شد و در نهایت با ضربه ناموفق جاناتان تاه که به بالای تیرک دروازه رفت، پاراگوئه پس از ۱۶ سال دوباره به جمع ۱۶ تیم برتر جهان صعود کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247939
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247939_1782784434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به دنبال یورش بامداد یکشنبه نیروهای امنیتی عراق به منطقه سبز بغداد، خبرگزاری رسمی عراق اعلام کرد در چارچوب این پرونده فساد، ۴۷ نفر بازداشت شده‌اند.
+نیروهای امنیتی عراق بامداد یکشنبه همه ورودی‌های منطقه به‌شدت حفاظت‌شده سبز بغداد را بستند و در این منطقه، که مقر نهادهای اصلی دولتی و سفارتخانه‌های خارجی است، عملیات یورش و بازداشت انجام دادند.
+در تصاویر منتشر شده از این بازداشت‌ها، مقادیر زیادی پول نقد، دلار و طلا دیده می‌شود که در نقاط مختلف محل زندگی یا کار متهمان از جمله دیوارها و سقف پنهان شده‌اند. برخی تصاویر نیز چمدان‌هایی را پر از اسکناس نشان می‌دهد. خبرگزاری دولتی عراق نام ۱۵ نفر از بازداشت‌شدگان را منتشر کرد که شامل ۱۲ نماینده فعلی پارلمان، یک نماینده پیشین، یکی از مشاوران سابق محمد شیاع السودانی، نخست‌وزیر پیشین عراق، و یک مقام ارشد دیگر وزارت نفت است. برخی از نمایندگان بازداشت‌شده عضو ائتلاف سیاسی شیعی محمد شیاع السودانی هستند.ائتلاف سیاسی السودانی در انتخابات پارلمانی ماه نوامبر بیشترین کرسی‌ها را به دست آورد،
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343600
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343600_1782784435.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"No wonder they've been talking about me... they don't see anybody."
+
+Stephen A. Smith says Democrats have a leadership problem.
+
+Speaking with Sean Hannity, Smith argued the party lacks anyone with the energy and communication skills to match Zohran Mamdani—and says he's still waiting for someone to "step up and galvanize the troops." |@seanhannity
+</div>
+
+## FoxNewsTwitter — post 343599
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343599_1782784436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: 🏀"CAITLIN CLARK IS THE GOLDEN GOOSE OF THE WNBA."
+
+@Riley_Gaines_ says Caitlin Clark transformed the WNBA when she joined it. Now she says the league is taking its biggest star for granted. "If you remove her entirely, the league goes back to ground zero."
+</div>
+
+## FoxNewsTwitter — post 343598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 343597
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343597_1782784439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"You bear a significant amount of responsibility for global warming and the consequences we, in France, are experiencing."
+
+Paris' deputy mayor has a message for Americans criticizing the city's lack of air conditioning during a deadly heat wave: You're part of the problem.
+
+Audrey Pulvar argued the United States shares blame for the crisis because of its greenhouse gas emissions and widespread use of air conditioning.
+
+Paris felt record-setting heat during the week with temperatures climbing above 104 degrees Fahrenheit, AP reported. At least 48 people in France have drowned while attempting to cool off outside designated swimming areas.
+</div>
+
+## FoxNewsTwitter — post 343596
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343596_1782784439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @JesseBWatters: 🚨 BREAKING! Barstool's Dave Portnoy says he MIGHT RUN for ELECTION 🚨
+
+"I might run against Mamdani... I feel like I could make a change." 🔥
+
+"I've had a real job, I've done real things, unlike these clown politicians who have never had a job" 🔥
+</div>
+
+## FoxNewsTwitter — post 343595
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343595_1782784441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The illegal alien Haitians are going back to Haiti."
+
+Stephen Miller says the Trump administration is ending what he called the Biden administration's misuse of Temporary Protected Status.
+
+On The Ingraham Angle, Miller said recent court rulings and changes to TPS will speed up immigration enforcement, while highlighting record ICE arrests and historically low illegal border crossings under President Trump. |@IngrahamAngle
+</div>
+
+## FoxNewsTwitter — post 343594
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343594_1782784442.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The official cause of death for Lilo & Stitch actress Daveigh Chase has been released nearly two weeks after the former child star died at age 35.
+
+According to the Los Angeles County Medical Examiner, Chase's primary cause of death was acquired immunodeficiency syndrome (AIDS), with chronic polysubstance use—a long-term pattern of using multiple substances—listed as a contributing condition. Her manner of death was ruled natural.
+
+Chase was best known for voicing Lilo in Disney's Lilo & Stitch and for her chilling performance as Samara in the horror film The Ring.
+</div>
+
+## FoxNewsTwitter — post 343593
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343593_1782784442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"We're on the lookout for them, and I'm happy to prosecute."
+
+U.S. Attorney Jeanine Pirro is warning would-be vandals that federal authorities are closely watching Washington, D.C.'s national monuments.
+
+On The Ingraham Angle, Pirro said the U.S. Park Police are actively monitoring the area and stressed that people who damage federal monuments could face prison sentences of up to 10 years. | @IngrahamAngle
+</div>
+
+## pm_afshaa — post 95085
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95085_1782784444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ناو آبی خاکی یو اس اس باکسر آمریکا درحال نزدیک شدن به ایران هست :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95082
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95082_1782784444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پول‌های کشف شده در پرونده مربوط به متهم بازداشت‌شده علی معارج صویدج البهادلی، معاون وزیر نفت در امور توزیع عراق :
+
+در جریان تحقیقات مربوط به پرونده فساد مالی علیه علی معارج صویدج البهادلی، معاون وزیر نفت در امور توزیع، مبلغ 11 میلیون دلار، 4 میلیارد دینار و تعدادی املاک توقیف شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 345030
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345030_1782784445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد ماریا کورینا ماچادو، رهبر مخالفان ونزوئلا، اعلام کرد برای کمک به روند امدادرسانی و بازسازی مناطق زلزله‌زده به این کشور بازخواهد گشت.
+
+ماچادو که اکنون در پاناما به سر می‌برد، دولت ونزوئلا را متهم کرد مانع بازگشت او شده است. او گفت «حاضرم هر کاری لازم باشد انجام دهم» تا در این شرایط اضطراری به شهروندان ونزوئلا کمک کند.
+
+رویترز پیش‌تر گزارش داده بود ماچادو برای تسهیل بازگشت خود با مقام‌های کاخ سفید، وزارت خارجه آمریکا و اعضای کنگره در تماس بوده است. با این حال، وزارت خارجه آمریکا در واکنش به این گزارش اعلام کرد تمرکز واشینگتن در حال حاضر بر ادامه کمک‌رسانی به آسیب‌دیدگان زلزله‌های مرگبار ونزوئلا است.
+https://iranintl.com/202606306599
+</div>
+
+## IranIntlTV — post 345029
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345029_1782784445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد ارزش ین ژاپن در برابر دلار به پایین‌ترین سطح خود از سال ۱۹۸۶ رسید و گمانه‌زنی‌ها درباره مداخله دولت ژاپن در بازار ارز افزایش یافت.
+
+بر اساس این گزارش، هر دلار در معاملات روز سه‌شنبه به ۱۶۲.۲۷ ین رسید. تحلیلگران می‌گویند اختلاف نرخ بهره میان آمریکا و ژاپن و انتظار برای ادامه سیاست‌های انقباضی فدرال رزرو، همچنان فشار بر ارزش ین را حفظ کرده است.
+
+سرمایه‌گذاران همچنین در انتظار انتشار آمار اشتغال آمریکا و تحولات مربوط به گفت‌وگوهای جمهوری اسلامی و آمریکا هستند که می‌تواند بر بازارهای مالی و چشم‌انداز نرخ بهره تاثیر بگذارد.
+https://iranintl.com/202606300432
+</div>
+
+## IranIntlTV — post 345028
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345028_1782784446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن قنبریان، استاد حوزه علمیه، در تجمع شبانه حامیان جمهوری اسلامی گفت اگر جمهوری اسلامی قاتل رهبرش را قصاص نکند، رهبر کنونی و دیگر رهبران جمهوری اسلامی ناچار خواهند بود همواره در مخفیگاه زندگی کنند.
+
+او با اشاره به قرار گرفتن محمدباقر قالیباف، رییس مجلس، در فهرست ترور، افزود «قصاص» و «انتقام» برای تامین امنیت امروز و آینده جمهوری اسلامی ضروری است.
+@iranintltv
+</div>
+
+## FarsiVOA — post 222278
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222278_1782784447.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رونمایی از چهره رئیس حراستی که ویزا نگرفت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هرج و مرج حکومتی موجب افزایش قیمت ارز های خارجی شد؛ گفت‌وگو با علی دادپی، اقتصاددان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺فعالان از کشته شدن چند «نیروی سپاه» در یک درگیری مسلحانه در پاوه خبر می‌دهند
+
+▪️سایت حقوق بشری هه‌نگاو گزارش داد در جریان حمله‌ای در شامگاه دوشنبه ۷ تیر در شهر پاوه در استان کرمانشاه، دست‌کم دو نفر از نیروهای سپاه پاسداران کشته و دو نفر دیگر به‌شدت مجروح شدند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166359.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222275
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222275_1782784448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بازی اتریش و الجزایر زیر سایه اتهام تبانی؛ گفت‌وگو با کوشا دلشاد مربی فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بریتانیا بیش از ۵۰۰ میلیون پوند برای تجهیز نیروهای ویژه به پهپادهای تهاجمی، قایق‌های بسیار سریع و فناوری‌های بدون سرنشین اختصاص داده است. این بخشی از برنامه نوسازی ارتش، با الهام از تجربه جنگ اوکراین و افزایش تهدیدهای روسیه طراحی شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222273
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222273_1782784449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ رئيس‌جمهوری آمریکا، دوشنبه شب با انتشار این تصویر در شبکه اجتماعی تروت‌سوشال نوشت «هدیه‌ای طلایی به کاخ سفید به مناسبت دویست و پنجاهمین سالگرد تولد آن!»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تیراندازی در آلمان شش نفر را کشت
+
+▪️در پی تیراندازی در یک مرکز خدمات رفاه کودکان و نوجوانان در شمال آلمان در روز دوشنبه، شش نفر کشته شدند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/five-people-shot-dead-northern-germany/8166001.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222271
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222271_1782784449.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ادعای تبانی در بازی اتریش و الجزایر؛ گفت‌وگو با امید نمازی، مربی سابق فوتبال ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222270
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شمارش معکوس برای خلع‌سلاح در عراق؛ آیا الزیدی می‌تواند از سد شبه‌نظامیان جمهوری اسلامی عبور کند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222269
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222269_1782784449.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چند دستگی بی سابقه در مواجهه با تیم فوتبال ایران؛ گفت‌وگو با جلال ایجادی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222268
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222268_1782784450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بازگشایی هرمز؛ آیا پول نفت دوباره اقتصاد ایران را بیمار می‌کند؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222267
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222267_1782784451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جشن و پایکوبی کانادایی‌ها پس از پیروزی و صعود به مرحله‌ی بعدی رقابت‌های جام جهانی
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶جام جهانی ۲۰۲۶؛ پاراگوئه با شکست آلمان در پنالتی به یک‌هشتم نهایی رفت
+
+تیم ملی فوتبال آلمان در مرحله یک‌شانزدهم نهایی در ورزشگاه ۶۵ نفری "ژیلت" در ماساچوست به مصاف پاراگوئه رفت. پیکار دو تیم در وقت قانونی با همین نتیجه یک بر یک به پایان رسید. ملی‌پوشان آلمان با آغاز وقت اضافه کوشیدند حریف را زیر فشار گذارند و برتری خود را به گل بدل کنند.تلاش و دوندگی دو تیم در وقت قانونی گلی در پی نداشت و سرنوشت بازی در ضربات پنالتی رقم خورد. پارگوئه در مجموع تنها دو ضربه را هدر داد و آلمان در به ثمر رساندن سه ضربه ناموفق بود. به این ترتیب ملی‌پوشان پاراگوئه با پیروزی بر آلمان شگفتی‌آفرین شده و حریفی قدرتمند را از گردونه خارج کردند.
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 285397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برآورد یک اقتصاددان: جنگ ایران برای هر خانواده آمریکایی هزار دلار هزینه داشته است
+
+بر اساس برآوردی که هفته گذشته مارک زندی، اقتصاددان ارشد موسسه مودیز آنالیتیکس منتشر کرده و شبکه خبری سی‌بی‌اس، شریک کاری بی‌بی‌سی در آمریکا، روز دوشنبه آن را منتشر کرده، جنگ ایران از زمان آغاز درگیری‌ها در ماه فوریه تاکنون به طور متوسط حدود ۱۰۰۰ دلار هزینه اضافی بابت سوخت، مواد غذایی و سایر کالاها به هر خانوار آمریکایی تحمیل کرده است.
+
+این برآورد در حالی منتشر می‌شود که تازه‌ترین آمار دولت آمریکا نشان می‌دهد نرخ تورم در ماه مه به بالاترین سطح خود در سه سال گذشته رسیده است. همزمان، آمریکا و ایران هنوز نتوانسته‌اند به توافقی پایدار برای پایان دادن به درگیری‌ها دست یابند.
+
+دو کشور در آخر هفته حملات نظامی متقابلی انجام دادند که آتش‌بس شکننده میان آنها را با تهدید روبرو کرد. دونالد ترامپ، رئیس جمهور آمریکا روز دوشنبه گفت که مذاکرات دو طرف برای پایان دادن به درگیری‌ها روز سه شنبه در قطر ادامه خواهد یافت.
+
+اما سخنگوی وزارت خارجه ایران - اسماعیل بقایی - گفت نمایندگان ایران هیچ مذاکره‌ای در هیچ سطحی طی چند روز آینده با آمریکا نخواهند داشت.
+
+آمریکایی ها بابت چه چیزهایی هزینه بیشتری می پردازند؟
+
+بنا بر برآورد مارک زندی، بیشترین هزینه ناشی از جنگ برای آمریکایی ها مربوط به سوخت (بنزین) بوده است. قیمت هر گالن بنزین در ۲۱ مه به ۴ دلار و ۵۶ سنت رسید، اما اوایل همین ماه دوباره به کمتر از ۴ دلار کاهش یافت.
+
+بر اساس برآورد او، از زمان آغاز جنگ در ۲۸ فوریه، هر آمریکایی به طور متوسط حدود ۳۰۰ دلار بیشتر برای سوخت خودرو پرداخت کرده است. این برآورد تنها افزایش هزینه بنزین معمولی را در نظر می‌گیرد و شامل بنزین‌های گران‌تر مانند سوپر نمی‌شود در حالی که بخش قابل توجهی از خودروهای لوکس آمریکایی چون بنز و بی‌ام‌و، از سوخت‌ سوپر که تا یک دلار در گالن گران‌تر است استفاده می‌کنند.
+
+آقای زندی همچنین می‌گوید افزایش قیمت گازوییل هزینه حمل کالا از مزارع، کارخانه‌ها و بنادر را بالا برده و در نتیجه باعث افزایش قیمت کالاها در فروشگاه‌ها شده است. او برآورد می‌کند که هر خانوار آمریکایی از آغاز جنگ تاکنون به دلیل افزایش هزینه سوخت، حدود ۲۰۰ دلار بیشتر برای خرید مواد غذایی پرداخت کرده است.
+https://bbc.in/4455z6L
+@BBCPersian
+</div>
+
+## BBCPersian — post 285396
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285396_1782784452.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+مسعود پزشکیان، رئیس جمهور ایران، که روز گذشته برای دیدار با روحانیون برجسته و مراجع تقلید این کشور به شهر قم رفته بود، در تازه‌ترین موضع‌گیری درباره تفاهمنامه پایان درگیری با آمریکا گفته است: «تفاهم امری طرفینی است. اگر طرف آمریکایی به تفاهم نامه پایبند باشد ما هم به تعهداتمان عمل می‌کنیم.»
+
+خبرگزاری ایرنا به نقل از آقای پزشکیان نوشته است: «رویکرد ما در مقابل رجزخوانی‌های نامعقول و تهدیدهای بی‌پشتوانه، تکیه بر عقلانیت و کرامت انسانی در تصمیم‌گیری‌ها و دفاع قاطع و بی‌پروا به هنگام عمل است.»
+
+به گزارش ایرنا، آقای پزشکیان همچنین در دیدار با آیت‌الله شبیری زنجانی گفته است که «۶ میلیارد دلار از مجموع ۱۲ میلیارد دلار منابع ایران در قطر آزاد و به کشور بازگردانده خواهد شد.»
+
+آزادسازی دارایی‌های مسدودشده ایران یکی از مفاد تفاهمنامه میان این کشور و آمریکا است.
+📷IRNA
+https://bbc.in/4455z6L
+@BBCPersian
+</div>
+
+## BBCPersian — post 285392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+🖊بهرنگ تاج‌دین
+خبرنگار اقتصادی بی‌بی‌سی فارسی
+
+آمارهای رسمی نشان می‌دهد که درصد شاغلان از جمعیت ایران در سال ۱۴۰۴ نسبت به سال قبل کاهش یافته و نابرابری جنسیتی در بازار کار ایران شدیدتر شده است.
+
+گزارش سالانه مرکز آمار ایران نشان می‌دهد جمعیت بالای ۱۵ سال ایران با حدود هشتصد هزار نفر افزایش از ۶۵ میلیون و ۳۳۸ هزار نفر در سال ۱۴۰۳ به ۶۶ میلیون و ۱۴۸ هزار نفر در سال ۱۴۰۴ افزایش یافته است. با وجود این افزایش تعداد شاغلان حدود ۲۴ میلیون و هشتصد هزار نفر باقی مانده است.
+
+در نتیجه رشد جمعیت و ثابت ماندن شمار شاغلان، نرخ اشتغال از ۳۷.۹ درصد به ۳۷.۵ درصد کاهش یافته است.
+
+این رکود بازار کار در کل ناشی از رکود کلی اقتصاد ایران است که طبق آمارهای بانک مرکزی، در سال ۱۴۰۴ نرخ رشد اقتصادی‌ منفی را تجربه کرد و تولید ناخالص داخلی‌اش هفت دهم درصد کمتر از سال ۱۴۰۳ بود.
+
+📷Getty images
+
+از لینک ⬇️ این مطلب را در سایت بی‌بی‌سی فارسی بخوانید.
+https://bbc.in/3SA5zJy
+@BBCPersian
+</div>
+
+## BBCPersian — post 285391
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/285391" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برزیل موفق شد با شکست تیم ژاپن به مرحله یک شانزدهم جام جهانی در سال ۲۰۲۶ برود. ژاپن توانست گل اول بازی را بزند اما نتوانست از برتری خود دفاع کند.
+
+خبرنگارمان سام فرزانه این بازی را به همراه گروهی از هواداران تیم ژاپن تماشا کرد و با آنها صحبت کرد و این گزارش را تهیه کرد.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285390
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285390_1782784453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دیدار تیم ملی آلمان و پاراگوئه پس از آن که در ۹۰ دقیقه با تساوی یک بر یک به وقت اضافی رفت و تا پایان ۱۲۰ دقیقه هم گلی از خط دروازه ها رد نشد، به ضربات پنالتی کشیده شد تا جام جهانی شاهد نخستین ضربات پنالتی در دور حذفی باشد.
+
+در ضربات پنالتی آلمان که با امانوئل نوئر ضریب اطمینان بالایی به خود داشت نتوانست ضربات اول و چهارم خود را گل کند ولی پاراگوئه هم ضربه چهارم را گل نکرد تا همه چی به ضربه پنجم پاراگوئه کشیده شود.
+
+ندیم امیری ضربه پنجم را برای آلمان گل کرد و امانوئل نوئر هم ضربه پنجم پاراگوئه را مهار کرد تا آلمان در ۵ ضربه اول بازنده نشود.
+
+اما ضربه ششم مدافع آلمان توپ را به هوا زد تا با گل شدن ضربه پاراگوئه، آلمان نخستین غول حذف شده جام لقب بگیرد.
+
+
+📷Reuters
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/09 03:15
 ---
 
