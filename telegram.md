@@ -7,6 +7,753 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/11 03:28
+---
+
+## VahidOOnLine — post 248195
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_248195_1782950321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی، دردر گفتگویی تلویزیونی با صداوسیما گفت وظیفه دارد به همه مردم ایران، با هر سلیقه و دین که در جمهوری اسلامی زندگی می‌کنند، خدمت کند.قالیباف با بیان اینکه «وظیفه دارم برای همه مردم ایران نوکری کنم»، افزود مسئولان باید مشکلات اقتصادی مردم را حل کنند و امنیت کشور را تامین کنند و این دو موضوع را از مهم‌ترین وظایف حاکمیت دانست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه‌شب در جریان بازدید از کتابخانه ریاست‌جمهوری تئودور روزولت در شهر مدورا، ایالت داکوتای شمالی، با «هولوگرام» (شبیه‌‌سازی سه‌بعدی) مجهز به هوش مصنوعی بیست‌و‌ششمین رئیس‌جمهوری ایالات متحده گفتگو کرد.
+
+ترامپ از روزولت که از سال‌های ۱۹۰۱ تا ۱۹۰۹ رئیس‌جمهوری آمریکا بود، پرسید آیا کانال پاناما بزرگ‌ترین دستاورد او بوده؟ و روزولت پاسخ داد، «کانال پاناما یکی از افتخارآمیزترین دستاوردهایش بوده، اما بزرگ‌ترین موفقیت خود را بهبود زندگی مردم، ایجاد پارک‌های ملی، ایمن‌سازی مواد غذایی و دارویی و اجرای عدالت برای همه شهروندان می‌داند.»
+
+در بخش دیگری از این گفتگو، روزولت ساخته هوش مصنوعی به ترامپ توصیه کرد در برابر چالش‌های ریاست‌جمهوری استوار بماند و همواره منافع کشور را در اولویت قرار دهد. ترامپ نیز از این توصیه‌ها قدردانی کرد و آنها را «فوق‌العاده» خواند.
+
+این «شبیه‌‌سازی سه‌بعدی» با همکاری مایکروسافت و آزمایشگاه هوش مصنوعی «لمون اسلایس» (LemonSlice) ساخته شده و بر پایه صدها هزار سند مربوط به تئودور روزولت آموزش دیده است. کتابخانه ریاست‌جمهوری تئودور روزولت قرار است چهارم ژوئیه، هم‌زمان با دویست‌وپنجاهمین سالگرد استقلال آمریکا، به‌طور رسمی برای عموم افتتاح شود.
+تئودور روزولت نقش مهمی در ساخت کانال پاناما داشت و به‌دلیل میانجیگری در پایان جنگ روسیه و ژاپن، نخستین آمریکایی بود که جایزه نوبل را دریافت کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248193
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248193_1782950322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ماجد الانصاری، سخنگوی وزارت امور خارجه قطر، پنجشنبه‌شب ۱۱ تیرماه در شبکه اجتماعی اکس نوشت میانجی‌گران قطری و پاکستانی در دوحه نشست‌های جداگانه‌ای با مذاکره‌کنندگان آمریکایی و ایرانی برگزار کردند.
+به گفته الانصاری، در این نشست‌ها درباره موضوع‌های مرتبط با تفاهم‌نامه امضاشده در اسلام‌آباد و بر پایه نتایج نشست دریاچه لوسرن، «پیشرفت مثبتی» حاصل شده است.
+او افزود طرف‌ها توافق کردند گفت‌وگوها را در دوره آینده ادامه دهند و نشست بعدی در نخستین فرصت پس از پایان مراسم تشییع علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، برگزار شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248192
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248192_1782950323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجت کرمانی، وکیل دادگستری در ایران، به وب‌سایت «امتداد» گفت ماموران امنیتی عصر چهارشنبه هومن جوکار و سپیده کاشانی، زوج فعال محیط‌زیست، را دوباره بازداشت و وسایل الکترونیکی آنها را ضبط کردند. ماموران همچنین سیما کاشانی، خواهر سپیده کاشانی را نیز بازداشت کردند.
+کرمانی گفت تاکنون درباره نهاد بازداشت‌کننده اطلاعی در دست نیست. او با ابراز نگرانی از تعطیلات پیش رو گفت: «با توجه به تعطیلی طولانی پیش‌رو و بسته شدن مراکز قضایی، این بازداشت، نگرانی‌ها را برای خانواده این افراد افزایش داده است.
+اطلاعات سپاه پیش‌تر نیز در سال ۱۳۹۶ این زوج را بازداشت کرده بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248191
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248191_1782950323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، در واکنش به انتقادها از اعلام اختصاص ۲۰ میلیون بشکه نفت به نیروی هوافضای سپاه گفت اگر دوباره چنین شرایطی پیش بیاید، «نه ۲۰ میلیون بشکه، بلکه ۱۰۰ میلیون بشکه» هم در اختیار آنان قرار می‌دهد و به این حمایت افتخار می‌کند.
+پزشکیان گفت: «ما ۲۰ میلیون بشکه نفت متعلق به دولت را به نیروی هوافضای سپاه دادیم تا بتواند خود را تجهیز کند؛ یعنی از منابع ارزی دولت در اختیار آن‌ها قرار دادیم.»
+او افزود: «اگر ما پشتیبانی نمی‌کردیم، نیروهای مسلح ما نمی‌توانستند بجنگند. مگر می‌شود ما پشتیبانی نکرده باشیم و نیروهای مسلح به تنهایی جنگیده باشند؟»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+</div>
+
+## FoxNewsTwitter — post 343714
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343714_1782950324.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+You don't see police work like this every day.
+
+New video released by NYPD Commissioner Jessica Tisch shows Emergency Service Unit officers making the dangerous climb to remove two people from the top of the Empire State Building spire after an unauthorized stunt.
+
+"God bless these officers," Tisch wrote on X.
+
+The couple, later identified as Netflix's Skywalkers: A Love Story stars Angela Nikolau and Ivan Beerkus, were taken into custody after displaying a banner and getting engaged atop the landmark.
+</div>
+
+## FoxNewsTwitter — post 343713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: A dangerous heat wave is spreading across much of the country, with triple-digit temperatures expected from Chicago to the Gulf Coast and east to the Atlantic.
+
+Roughly 230 million Americans are expected to be affected as dangerous heat settles in ahead of the holiday weekend.
+
+Meanwhile, President Trump says de-escalation talks with Iran are continuing and progress is being made, but he has not ruled out full-scale military action if necessary. @BillMelugin_ reports.
+</div>
+
+## FoxNewsTwitter — post 343712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 343711
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343711_1782950326.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: WILL CAIN'S VIKING TRAINING IS COMPLETE. 🇳🇴😂
+
+@willcain got the full Norwegian fan experience. Good luck to Norway—and Team USA! 🇳🇴🇺🇸
+</div>
+
+## FoxNewsTwitter — post 343710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxNewsEnt: Vanilla Ice says concerts should be about celebrating America and bringing people together.
+
+The rapper told Fox News Digital he's proud to honor the country's veterans by raising the American flag at every show, adding that music is meant to unite people, not divide them.
+</div>
+
+## FoxNewsTwitter — post 343709
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343709_1782950328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+EXCLUSIVE: Babies born during America’s 250th birthday celebration will receive a special piece of history.
+
+The Social Security Administration is launching a limited-edition commemorative Social Security card featuring the Freedom 250 logo for children born in the U.S. between July 2 and Dec. 31, 2026.
+
+According to an announcement exclusively shared with FOX Business, the card functions just like a standard Social Security card, but will serve as a unique keepsake marking the nation’s 250th anniversary.
+
+@foxnewspolitics @JasmineBaehr
+</div>
+
+## pm_afshaa — post 95192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار های شدید در کی‌یف اوکراین
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95191
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تمام بلژیک با کامبک رفت مرحله بعد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلژیک کابک زد 2.2
+</div>
+
+## DEJradio — post 6117
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6117_1782950328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 گرانی و مشکلات معیشتی، شهروندان را عاصی کرده است. در شرایطی که بعد از کشته شدن علی خامنه‌ای وضعیت پسرش مشخص نیست، مردم مشکلات را از چشم قالیباف و پزشکیان می‌بیننر و علنی آنها را به باد ناسزا می‌گیرند زیرا معتقدند که از وضعیت مردم بی‌خبرند و حزب‌الله برای آنها مهم‌تر است.
+
+#تورم #موشعلی
+@DEJradio
+</div>
+
+## IranIntlTV — post 345362
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345362_1782950330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یوری تیلمانس، کاپیتان بلژیک با گل دقیقه ۱۲۴:۴۴ در پیروزی ۳ بر ۲ بلژیک مقابل سنگال در مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶، دیرهنگام‌ترین گل تاریخ جام‌های جهانی را به ثمر رساند.
+
+🔹پیش از او، عبدالمومن جابو در شکست ۲ بر ۱ الجزایر مقابل آلمان در مرحله یک‌هشتم نهایی جام جهانی ۲۰۱۴، در دقیقه ۱۲۰:۵۰ گلزنی کرده بود.
+
+🔹الساندرو دل پیرو نیز در پیروزی ۲ بر صفر ایتالیا برابر آلمان در نیمه‌نهایی جام جهانی ۲۰۰۶، در دقیقه ۱۲۰:۱۳ گل زد.
+
+🔹جف هرست در پیروزی ۴ بر ۲ انگلیس مقابل آلمان غربی در فینال جام جهانی ۱۹۶۶، دقیقه ۱۱۹:۴۸ گلزنی کرد و دیوید پلات هم در پیروزی یک بر صفر انگلیس برابر بلژیک در مرحله یک‌هشتم نهایی جام جهانی ۱۹۹۰، در دقیقه ۱۱۹:۲۲ دروازه حریف را باز کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345361
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345361_1782950331.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی، گفت دونالد ترامپ در نهایت با آزادسازی ۱۲ میلیارد دلار از دارایی‌های ایران موافقت کرد.
+
+او افزود اگر آمریکا به تفاهم‌نامه پایبند نباشد، جمهوری اسلامی با آن خواهد جنگید.
+
+قالیباف همچنین تاکید کرد خون‌خواهی علی خامنه‌ای آزادی قدس است و لبنان باید با قدرت حفظ شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345360
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345360_1782950332.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«گندم و جو ارزونیتون؛ تنگه نمی‌دیم بهتون!»
+
+از «انرژی هسته‌ای حق مسلم ماست» رسیدیم به «گندم و جو ارزونیتون؛ تنگه نمی‌دیم بهتون!»
+
+چند روز پیش مخالفان حکومت با کنایه گفتند: «گندم و جو آوردیم، رهبرتون رو بردیم.» حالا ویدئوهایی منتشر شده که در آن، حامیان جمهوری اسلامی شعار می‌دهند: «گندم و جو ارزونیتون؛ تنگه نمی‌دیم بهتون!»
+
+کامبیز حسینی در «برنامه» به این موضوع می پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/yHZRWJ8mWLc
+@iranintltv
+</div>
+
+## IranIntlTV — post 345359
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345359_1782950333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مژگان از تهران: ۴۷ سال است که با آخوند مقابله می‌کنیم و کارمان به دشمنی کشیده است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/yHZRWJ8mWLc
+@iranintltv
+</div>
+
+## IranIntlTV — post 345358
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345358_1782950335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی از تهران: ما در دوره جمهوری اسلامی مجبور بودیم برخلاف جریان رودخانه شنا کنیم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/yHZRWJ8mWLc
+@iranintltv
+</div>
+
+## IranIntlTV — post 345357
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345357_1782950336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیامند از هامبورگ: مهم‌ترین درس برای مردم ایران این است که حالا می دانند آزادی واقعی چیست
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/yHZRWJ8mWLc
+@iranintltv
+</div>
+
+## IranIntlTV — post 345355
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345355_1782950338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان گفت به‌طور کامل تابع نظر مجتبی خامنه‌ای است و اگر رهبر دستور می‌داد، مذاکره‌ای با آمریکا انجام نمی‌شد. کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال، گفت: «به نظر می‌رسد پزشکیان در حال انجام یک بازی سیاسی برای افزایش وزن و نفوذ خود در ساختار قدرت است اما این بازی که نه به افزایش مشروعیت مجتبی خامنه‌ای کمکی می‌کند و نه برای دستاوردی برای خود او به همراه خواهد داشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345354
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345354_1782950339.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال بلژیک در یک بازی تماشایی در مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶ سنگال را با نتیجه ۳ بر ۲ شکست داد و به مرحله بعد صعود کرد.
+
+🔹حبیب دیارا در دقیقه ۲۴ و اسماعیلا سار در دقیقه ۵۱ برای سنگال و روملو لوکاکو در دقیقه ۸۶ و یوری تیلمانس در دقایق ۸۹ و ۵+۱۲۰ برای بلژیک گلزنی کردند.
+
+🔹سنگال بازی را با گل زودهنگام حبیب دیارا، هافبک ساندرلند، آغاز کرد و سپس اسماعیلا سار با شوتی قدرتمند در نیمه دوم اختلاف را به دو گل رساند.
+
+🔹اما روملو لوکاکو با ضربه‌ای ظریف یکی از گل‌ها را جبران کرد و سپس یوری تیلمانس، کاپیتان بلژیک، تنها چند دقیقه مانده به پایان وقت قانونی، با ضربه سر گل تساوی را به ثمر رساند.
+
+🔹یوری تیلمانس در وقت‌های تلف‌شده نیمه دوم وقت اضافه، پنالتی را به گل تبدیل کرد تا صعود بلژیک را قطعی کند
+
+🔹بلژیک در مرحله بعد به مصاف آمریکا یا بوسنی و هرزگوین خواهد رفت.
+
+🔹گزارشی از بازی را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345353
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345353_1782950340.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «وقتی خامنه‌ای کشته می‌شود و جنازه‌اش ۱۲۰ روز روی دست حکومت می‌ماند، واکنش مردم فقط یک اتفاق ساده نیست؛ نشانه شکاف عمیقی است که میان مردم و جمهوری اسلامی وجود دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345352
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345352_1782950341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس گفت پس از «عملیات خشم حماسی»، آمریکا اکنون از موضع قدرت با جمهوری اسلامی مذاکره می‌کند.
+
+معاون سخنگوی کاخ سفید نیز گفت ایالات متحده مسیر خلع سلاح هسته‌ای جمهوری اسلامی را هموار کرده و توانایی‌های نظامی و موشکی تهران را به طور کامل از بین برده است.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 345351
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/345351" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: راز برتری اسراییل
+@iranintlTV
+</div>
+
+## Shin_Persian — post 7331
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7331_1782950343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Status-6 (War & Military News) ✓ @Archer83Able
+Wed, 01 Jul 2026 23:17:24 UTC
+
+A multi-storey residential building in Kyiv took a direct hit from a Russian missile.
+
+Around a dozen of Iskander and Tsirkon missiles launched by the Russians at the Ukrainian capital within the last hour.
+
+ترجمه خودکار فارسی
+
+یک ساختمان مسکونی چند طبقه در کی‌یف مورد اصابت مستقیم موشک روسیه قرار گرفت.
+
+حدود ده فروند موشک اسکندر و زیرکن در یک ساعت گذشته توسط روس‌ها به سمت پایتخت اوکراین شلیک شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+OSINTtechnical ✓ @Osinttechnical
+Wed, 01 Jul 2026 22:47:51 UTC
+
+Ukrainian underground metro stations in Kyiv are packed tonight as residents take shelter from a major Russian air attack.
+
+ترجمه خودکار فارسی
+
+ایستگاه‌های متروی زیرزمینی اوکراین در کی‌یف امشب مملو از جمعیت است، زیرا ساکنان در برابر یک حمله هوایی گسترده روسیه پناه گرفته‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7327
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7327_1782950343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Status-6 (War & Military News) ✓ @Archer83Able
+Wed, 01 Jul 2026 21:54:38 UTC
+
+The CityHotel Residence, a four-star hotel in the center of Kyiv, caught fire during the ongoing Russian drone attack on the Ukrainian capital.
+
+ترجمه خودکار فارسی
+
+هتل سیتی‌هتل رزیدنس (CityHotel Residence)، یک هتل چهار ستاره در مرکز کی‌یف، در جریان حمله پهپادی جاری روسیه به پایتخت اوکراین، دچار آتش‌سوزی شد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 222462
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222462_1782950345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شور جام جهانی در میان هواداران فرانسه، مکزیک و اکوادور در واشنگتن دی سی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222461
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222461_1782950345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مذاکره جمهوری اسلامی با آمریکا با «پای لنگان» و متاثر از اختلافات داخلی؛ گفت‌وگو با سعید پیوندی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222460
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222460_1782950346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سلطه فرانسه و درخشش امباپه ادامه دارد؛ گفت‌وگو با کوروش بازیار مربی و کارشناس فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آکسیوس: مذاکره‌کنندگان آمریکایی به جمهوری اسلامی می‌گویند درآمد نفتی ایران با لغو تحریم‌ها «۱۰۰ برابر» بیشتر از گرفتن عوارض خواهد بود
+
+▪️مذاکره‌کنندگان آمریکایی و جمهوری اسلامی در دوحه، پایتخت قطر، برای گفت‌وگوهایی حضور دارند که تمرکز اصلی آن‌ها بر تنگه هرمز است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166944.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222458
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222458_1782950347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حقوق بشر غایب بزرگ در مذاکرات آمریکا و جمهوری اسلامی؛ گفت‌وگو با محمود امیری مقدم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222457
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222457_1782950348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️منابع امنیتی عراق اعلام کردند یک پهپاد حامل مواد منفجره، اردوگاه متعلق به یک گروه کُرد مخالف ایرانی را در شهرستان کوی‌سنجق، در شرق اربیل در اقلیم کردستان عراق، هدف قرار داد که در پی آن آتش‌سوزی در اردوگاه رخ داد. به گزارش رویترز در اوایل روز پنجشنبه به وقت تهران، تاکنون اطلاعاتی درباره تلفات احتمالی یا عامل این حمله منتشر نشده است.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 23658
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23658_1782950348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آخرین وضعیت جدول حذفی جام جهانی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کامبک بلژیکی ها مقابل سنگال در دقایق آخر وقت های اضافه تکمیل شد صعود فوق دراماتیک بلژیک به دور بعدی رقابت ها.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23656
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23656_1782950349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخوند قاسمیان:
+
+واشنگتن رو اشغال کنید. این سگِ زرد(ترامپ) رو کت‌بسته بیارید خدمت آقا مجتبی. اگه خواستن میبخشن اگه نخواستن نمیبخشن؛ دیگه هرکاری خواست میکنه باهاش.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال 14 اسرائیل: مرکز فرماندهی منتسب به سپاه پاسداران در لبنان توسط ارتش اسرائیل (IDF) تصرف شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285533
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285533_1782950350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ماجد الانصاری، سخنگوی وزارت خارجه قطر، از پایان مذاکرات غیرمستقیم میان هیئت ایرانی و آمریکایی که در پایتخت قطر حضور دارند، خبر داده است.
+
+خبرگزاری دولت ایران - ایرنا - به نقل از سخنگوی وزارت خارجه قطر نوشته است: «طرف‌های مذاکره‌کننده بر سر تداوم رایزنی‌ها و بحث و تبادل نظر پیرامون موضوعات باقی‌مانده توافق کردند و مقرر شد تاریخ نشست آینده در کوتاه‌ترین زمان ممکن تعیین و مشخص شود.»
+
+پیش از این در حالی که دونالد ترامپ از مذکرات میان ایران و آمریکا در قطر ابراز رضایت کرده و گفته بود با پیشرفت همراه بوده، تهران تاکید کرده بود که هیچ برنامه‌ای برای دیدار و مذاکره در روزهای جاری ندارد.
+
+با این حال روز سه‌شنبه، گزارش شد نمایندگان دو کشور از طریق میانجیان قطری و پاکستانی گفتگوهای غیرمستقیمی داشته‌اند و همان طور که برایتان اینجا گزارش کردیم دونالد ترامپ، رئیس‌جمهور آمریکا، روز چهارشنبه گفت که موضوعات با ایران خیلی خوب پیش می‌رود و جلسات تازه در قطر هم به خوبی پیش رفته است.
+
+📷 Reuters
+https://bbc.in/4wmL7KM
+@BBCPersian
+</div>
+
+## BBCPersian — post 285532
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285532_1782950351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در یک مسابقه دراماتیک که تا دقایق پایانی دو بر صفر به سود سنگال بود، بلژيک توانست با به تساوی کشاندن بازی در وقت تلف شده دوم سومین گل را هم بزند و در عین ناباوری سنگالی‌ها، راهی مرحله یک هشتم شود.
+
+سنگال نیمه اول را یک هیچ برد و نیمه دوم هم با گل سار تقریبا مطمين شده بود که بلژیک را شکست داده است اما برای تیم پرستاره بلژيک ورق از دقیقه ۸۵ به بعد برگشت.
+
+آنها در دقیقه ۸۶ گل اول را زدند و در دقیقه ۸۹ گل دوم را یوری تیلمانس زد تا ورزشگاه منفجر شود.
+
+بازی به وقت‌های اضافه رفت و در نیمه دوم آن بلژیک صاحب یک ضربه پنالتی شد تا سند حذف سنگال را دوباره یوری تیلمانس بزند و با دبل خود بلژیک را رستگار کند.
+
+بلژیک که در گروه ایران حضور داشت بعد از دو تساوی انتقادبرانگیز برابر ایران و مصر، تنها با شکست نیوزیلند راهی مرحله حذفی شده بود اما حالا با این پیروزی به جمع ۱۶ تیم پایانی رفت.
+
+📷 EPA
+@BBCPersian
+</div>
+
+## BBCPersian — post 285524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋سعیده هاشمی
+بی‌بی‌سی
+
+اخیرا به مدت هشت هفته در یکی از دادگاه‌های لندن، هر روز در کنار یازده شهروند دیگر بریتانیا نشستم تا درباره پرونده‌ای تصمیم بگیریم که زندگی چند نفر را برای همیشه تحت تأثیر قرار می‌داد. پیش از آن، هیئت منصفه برایم مفهومی بود که بیشتر در فیلم‌ها و سریال‌های جنایی دیده بودم. اما تجربه حضور در این فرایند، نگاهم را نه فقط به عدالت، بلکه به روزمرگی‌های زندگی و نیز به مردمی که هر روز از کنارشان عبور می‌کنم تغییر داد.
+
+آلبوم را ورق بزنید و ادامه مطلب را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 Getty Images
+https://bbc.in/4vHpcxZ
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393594
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/393594" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#پیشبینی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## Dirty_Kids — post 393593
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393593_1782950351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎁 بالاترین نرخ پریمیوم ووچر در ریتزوبت 🔥
+
+
+🥇 با Premium Voucher حساب خودت رو سریع، راحت و امن شارژ کن ✅
+
+
+🎰 استفاده از پریمیوم ووچر ⬅️ سریع ، امن و مطمئن برای شرطبندی مسابقات جام جهانی در ریتزوبت.
+
+
+🎯 دانلود اپلیکیشن بدون فیلتر اندروید
+
+🎯 لینک ورود به ریتزوبت
+
+💎 امکان شارژ حساب با کریپتو ، انواع ووچر و کارت بانکی. 
+✅
+
+🌍 ریتزوبت؛ همراه شب‌های فراموش‌نشدنی جام جهانی 2026
+A10
+🆔 @RitzoBet_ir
+</div>
+
+## Dirty_Kids — post 393592
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393592_1782950352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393591
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393591_1782950352.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند روز پیش تو یکی از مراسم محرم، مداح کنترلشو از دست داد و یهو داد زد به کیررررم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393590
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393590_1782950353.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیروز عصر فورسیزنِ دمشق سوریه؛
+
+انگار نه انگار در عمق استراتژیک آخوند محرمه 😂!
+
+#سوریه_پر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393588
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393588_1782950354.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ای بابا، آقا مثل اینکه قضیه خیلی جدیه و واقعا یه اتفاقی برای حضرت آقا افتاده،
+اینا خیلی ناراحتن،
+امیدوارم اگرم صانحه‌ای برای آقا پیش اومده حداقل بی رنگ در بیاد اینا بیشتره اذیت نشن،
+کاش حداقل بیمه بدنه داشته باشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393587
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393587_1782950355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این فیلم obsession 2026 رو دیشب دیدم و عجب چیزی بود!
+
+بشینید آخرشب ببینید که تا صبح خوابتون نبره :))
+عالی و پشم ریزون!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 131373
+
+<div align="center">
+  <a href="telegram/content/alonews_131373_1782950355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بخشایش اردستانی،نماینده مجلس: تجمعات شبانه باید فورا جمع بشه
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131372
+
+<div align="center">
+  <a href="telegram/content/alonews_131372_1782950356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش ایالات متحده آمریکا اعلام کرد که در پی فرود اضطراری یک فروند بالگرد از نوع «ام اچ-60 اس سی هاوک» در دریای عرب، یک نظامی آمریکایی مفقود شده و سه نظامی دیگر خدمه این بالگرد نیز زخمی شده اند که وضعیت جسمانی آن ها پایدار گزارش شده است.
+
+
+خبرگزاری «رویترز» به نقل از ارتش آمریکا همچنین تاکید کرد که هیچ دلیلی در دست نیست که نشان دهد این حادثه ناشی از اقدام خصمانه بوده است.
+
+در بیانیه ناوگان پنجم نیروی دریایی آمریکا آمده است: «شناورهای نیروی دریایی هم اکنون در حال انجام عملیات جست وجو در منطقه برای یافتن یکی دیگر از اعضای خدمه پروازی هستند که همچنان مفقود است. همچنین تحقیقات درباره چگونگی وقوع این حادثه ادامه دارد.»
+
+در این بیانیه همچنین آمده است که این بالگرد در منطقه بر روی ناو هواپیمابر «یواس اس جورج اچ. دبلیو. بوش» مستقر و به مأموریت اعزام شده بود.
+
+فرود اضطراری بالگردها روی آب می تواند حتی برای خلبانان با تجربه نیز بسیار خطرناک باشد؛ زیرا بالگردهایی که بخش فوقانی آن ها سنگین تر است، هنگام برخورد با آب معمولاً به واژگون شدن متمایل می شوند و ممکن است به حالت وارونه در آب قرار گیرند.
+
+
+
+✅ @AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/04/11 02:12
 ---
 
