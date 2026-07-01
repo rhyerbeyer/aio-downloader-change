@@ -7,6 +7,1412 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/11 00:40
+---
+
+## VahidOOnLine — post 248185
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248185_1782940234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماجد الانصاری، سخنگوی وزارت خارجه قطر، اعلام کرد میانجی‌های قطر و پاکستان چهارشنبه در دوحه نشست‌های جداگانه‌ای با مذاکره‌کنندگان آمریکا و جمهوری اسلامی برگزار کردند و در موضوع‌های مرتبط با یادداشت تفاهم اسلام‌آباد پیشرفت مثبتی حاصل شد.
+او افزود طرف‌ها توافق کردند گفت‌وگوها در دوره پیش رو ادامه یابد و نشست بعدی در نخستین فرصت ممکن پس از مراسم تشییع جنازه علی خامنه‌ای برگزار شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی، اعلام کرد به‌زودی به چین سفر خواهد کرد تا روند ارتقای روابط تهران و پکن از سطح همکاری‌های تجاری به مشارکت راهبردی را پیگیری کند.
+او گفت این سفر در چارچوب مسئولیتی انجام می‌شود که از سوی رهبر جمهوری اسلامی و دولت به او واگذار شده است و هدف آن، تبدیل روابط ایران و چین از سطح همکاری‌های تجاری به یک مشارکت راهبردی است.
+رئیس مجلس شورای اسلامی افزود گسترش همکاری با چین در حوزه‌های سیاسی، اقتصادی و بین‌المللی می‌تواند فرصت‌های تازه‌ای برای ایران و کشورهای منطقه فراهم کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248183
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248183_1782940235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سی‌ان‌ان گزارش داد بر اساس داده‌های «مارین‌ترافیک» (MarineTraffic)، وب‌سایتی که تردد کشتی‌ها در جهان را رهگیری می‌کند، دست‌کم ۳۵ کشتی تجاری در ۲۴ ساعت گذشته از تنگه هرمز عبور کرده‌اند. این در حالی است که هم‌زمان مقام‌های ارشد آمریکا و جمهوری اسلامی با میانجی‌گری قطر در دوحه در حال گفتگو هستند.
+در این مدت، ۲۰ کشتی شامل ۱۱ کشتی باری و ۹ نفتکش وارد خلیج فارس شدند و ۱۵ کشتی دیگر، شامل ۹ نفتکش و ۶ کشتی باری، از خلیج فارس خارج شدند.
+بر اساس این گزارش، این آمار با میزان تردد هفته‌های اخیر مطابقت دارد، هرچند پیش از آغاز جنگ، به‌طور میانگین روزانه حدود ۱۱۰ کشتی از تنگه هرمز عبور می‌کردند.
+این گزارش همچنین می‌افزاید اختلال در سامانه موقعیت‌یابی ماهواره‌ای کشتی‌ها که در ماه‌های گذشته باعث نمایش نادرست موقعیت آن‌ها می‌شد، در هفته‌های اخیر به‌طور قابل‌توجهی کاهش یافته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️با گذشت یک هفته از دو زمین‌لرزه ویرانگر در ونزوئلا، تعداد جان‌باختگان به ۲۲۹۵ نفر افزایش یافت و دولت این کشور هفت روز عزای عمومی اعلام کرد.
+
+دلسی رودریگز، رئیس‌جمهوری موقت ونزوئلا، با اعلام عزای عمومی گفت: «این فاجعه «زخم عمیقی بر پیکر کشور» بر جای گذاشته است.» هم‌زمان، مقام‌های ونزوئلایی اعلام کردند ده‌ها هزار نفر همچنان در شمار مفقودان قرار دارند.
+
+در شهر لا گوایرا، کانون اصلی زلزله، عملیات جست‌وجو در بسیاری از ساختمان‌های فروریخته پایان یافته و ساختمان‌هایی که امیدی به یافتن بازمانده در آن‌ها وجود نداشته، با حرف «D»(اشاره به death) به معنای «جان‌باخته» علامت‌گذاری شده‌اند.
+
+با وجود نجات معجزه‌آسای یک کودک سه‌ساله شش روز پس از زلزله، امدادگران می‌گویند با گذشت بیش از یک هفته از این حادثه، احتمال یافتن بازماندگان جدید بسیار اندک است. در همین حال، بسیاری از زلزله‌زدگان نیز با کمبود مواد غذایی و امکانات اولیه روبه‌رو هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248181
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248181_1782940236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان گزارش داد بر اساس داده‌های موسسه مارین ترافیک، در ۲۴ ساعت گذشته دست‌کم ۳۵ کشتی تجاری از تنگه هرمز عبور کردند؛ هم‌زمان با دیدار مقام‌های قطری با مقام‌های ارشد آمریکا و جمهوری اسلامی در دوحه.
+در این مدت، ۲۰ کشتی شامل ۱۱ کشتی باری و ۹ نفتکش وارد خلیج فارس شدند و ۱۵ کشتی شامل ۹ نفتکش و ۶ کشتی باری از آن خارج شدند.
+این آمار همچنان با سطح پایین تردد کشتی‌ها در هفته‌های اخیر مطابقت دارد. پیش از جنگ، به‌طور میانگین روزانه حدود ۱۱۰ کشتی از تنگه هرمز عبور می‌کردند.
+سی‌ان‌ان افزود اختلال در سامانه موقعیت‌یاب که طی ماه‌های گذشته باعث نمایش نادرست موقعیت کشتی‌ها می‌شد، در هفته‌های اخیر به‌طور محسوسی کاهش یافته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی در گفتگوی با صداوسیما، اخبار مربوط به دسترسی بازرسان آژانس بین‌المللی انرژی اتمی به سایت‌های بمباران‌شده ایران را رد کرد و گفت بر اساس قانون، هیچ‌گونه دسترسی به این مراکز داده نخواهد شد.
+قالیباف همچنین اعلام کرد که در شرایط فعلی، آژانس بین‌المللی انرژی اتمی تنها مجاز به دسترسی به دو مرکز است: نیروگاه اتمی بوشهر و راکتور تحقیقاتی تهران. او افزود جمهوری اسلامی نسبت به همین میزان دسترسی نیز مطابق تعهدات خود عمل می‌کند، اما دسترسی به سایت‌هایی که در جریان حملات آسیب دیده‌اند، بر اساس قانون ممنوع است.
+قالیباف با اشاره به مصوبه مجلس و تصمیم شورای عالی امنیت ملی تاکید کرد که چارچوب همکاری با آژانس به‌طور کامل در قانون مشخص شده و هیچ امتیازی فراتر از آن به این نهاد بین‌المللی داده نمی‌شود. به گفته او، تعیین سطح و حدود دسترسی‌ها صرفا در اختیار شورای عالی امنیت ملی است و تمامی اقدامات در همین چارچوب انجام می‌شود.
+این اظهارات در بخشی از گفتگوی تلویزیونی قالیباف مطرح شد که پخش آن شب گذشته به‌طور ناگهانی متوقف شده بود. قطع این برنامه با اعتراض مرکز رسانه‌ای مجلس همراه شد و این نهاد اعلام کرد بخش‌هایی از مصاحبه، از جمله توضیحات درباره بازرسی‌های آژانس، پیش از پخش بدون هماهنگی حذف شده است. صداوسیما در پاسخ اعلام کرد که این بخش‌ها مطابق برنامه در قسمت دوم گفتگو پخش خواهد شد و اظهارات تازه قالیباف نیز در همین بخش دوم مطرح شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248179
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248179_1782940237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما بخش تازه‌ای از گفت‌وگوی ضبط‌شده محمدباقر قالیباف را که شامگاه سه‌شنبه پخش آن را به‌طور ناگهانی متوقف کرده بود، حدود ۲۴ ساعت بعد منتشر کرد.
+
+قالیباف با تاکید بر این که «دسترسی بازرسان آژانس به سایت‌های بمباران شده کذب است»، گفت در مجلس قانون تصویب کردیم، شورای عالی امنیت ملی هم تصویب کرد که به هیچ عنوان به سایت‌هایی که بمباران شده و آسیب دیده‌اند، دسترسی داده نخواهد شد.
+
+او افزود آژانس فقط در دو مورد حق دسترسی دارد؛ نیروگاه بوشهر و راکتور تهران.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248178
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_248178_1782940238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ایالات متحده و اسرائیل روز چهارشنبه توافق‌نامه ساخت مجتمع دائمی سفارت آمریکا در اورشلیم را امضا کردند؛ اقدامی که مقام‌های اسرائیلی آن را نشانه‌ای از «ائتلاف ناگسستنی» میان دو کشور توصیف کردند.
+این مجتمع قرار است در محوطه «آلِنبی» در جنوب قدس ساخته شود. از زمان انتقال سفارت آمریکا از تل‌آویو به قدس در سال ۲۰۱۸، خدمات سفارت در چند ساختمان مختلف ارائه می‌شد و اکنون با امضای این توافق، روند ساخت یک مجموعه دائمی آغاز شده است.
+مایک هاکبی، سفیر آمریکا در اسرائیل، در مراسم امضای این توافق‌نامه با تاکید بر موضع واشنگتن گفت آمریکا اورشلیم را «پایتخت ابدی، تاریخی و بومی مردم یهود» می‌داند و این پروژه را گامی عملی در راستای این سیاست توصیف کرد.
+انتقال سفارت آمریکا به اورشلیم، نخستین‌بار در دوره اول ریاست‌جمهوری دونالد ترامپ و پس از به رسمیت شناختن این شهر به‌عنوان پایتخت اسرائیل در سال ۲۰۱۷ اعلام شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248177
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248177_1782940241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجت کرمانی، وکیل دادگستری، خبر داد ماموران امنیتی با مراجعه به منزل هومن جوکار و سپیده کاشانی، زوج فعال محیط‌زیست و زندانیان سیاسی پیشین، آنان را بازداشت و وسایل الکترونیکی‌شان را ضبط کردند.
+
+سایت امتداد چهارشنبه ۱۰ تیر به نقل از کرمانی گزارش داد بازداشت این زوج فعال محیط‌زیست حدود ساعت چهار و نیم عصر و پس از ضبط تمامی وسایل الکترونیکی آن‌ها انجام شد.
+
+این وکیل دادگستری افزود نیروهای امنیتی سیما، خواهر سپیده کاشانی را نیز بازداشت کرده‌اند. به گفته کرمانی، تا این لحظه اطلاعی درباره نهاد بازداشت‌کننده این سه شهروند در دسترس نیست.
+
+او با اشاره به تعطیلی طولانی پیش رو و بسته شدن مراکز قضایی گفت این بازداشت‌ها نگرانی خانواده‌های آنان را افزایش داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا،روز چهارشنبه اول ژوئیه(ده تیرماه)، با «قطار آزادی» وارد شهر مدورا در ایالت داکوتای شمالی شد و مورد استقبال گروهی از هوادارانش قرار گرفت.
+
+در ویدیوهای منتشرشده، حاضران هنگام ورود ترامپ با سر دادن شعار «آمریکا! آمریکا! آمریکا!» از او استقبال می‌کنند.
+
+ترامپ برای شرکت در مراسم افتتاح کتابخانه ریاست‌جمهوری تئودور روزولت به مدورا سفر کرده است. این سفر در آستانه دویست‌وپنجاهمین سالگرد استقلال ایالات متحده انجام شد. هم‌زمان، در ویدیوها و پست‌های منتشرشده در شبکه‌های اجتماعی با عبارت «دو رئیس‌جمهور؛ با فاصله ۱۱۶ سال» به شباهت نمادین سفر ترامپ با سفر تاریخی تئودور روزولت به داکوتای شمالی اشاره شده است.
+
+عبارت «قطار آزادی» نامی است که برای قطار ویژه مورد استفاده در این سفر به کار رفته و یادآور سنت سفرهای ریلی در تاریخ سیاسی آمریکا است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16297
+
+<div align="center">
+  <img src="telegram/content/WithYashar_16297_1782940241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق نظرسنجی شورای جهانی طلا از ۶۹ بانک مرکزی، رکورد ۹۰٪ از بانک‌های مرکزی عملکرد طلا در زمان‌های بحران را به عنوان عامل کلیدی در تصمیم خود برای نگهداری طلا ذکر کردند.
+@withyashar
+</div>
+
+## WithYashar — post 16296
+
+<div align="center">
+  <a href="telegram/content/WithYashar_16296_1782940242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش شبکه آی24: سیا و موساد در طرح استفاده از نیروهای کرد به عنوان بخشی از تلاش گسترده‌ علیه ایران نقش داشته‌اند
+@withyashar
+</div>
+
+## WithYashar — post 16295
+
+<div align="center">
+  <a href="telegram/content/WithYashar_16295_1782940246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: کانال پاناما گران‌ترین چیزی بود که تا به حال ساختیم و همچنین سودآورترین چیزی بود که تا به حال ساختیم. این ترکیب خوبی است.
+کمی شبیه ونزوئلا. ما در واقع با جمهوری اسلامی ایران هم به همان اندازه خوب پیش می‌رویم. شاید شنیده باشید؟
+@withyashar
+</div>
+
+## WithYashar — post 16294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش های زیاد از شلیک لانچر در ارومیه 🚨
+@withyashar
+</div>
+
+## WithYashar — post 16293
+
+<div align="center">
+  <a href="telegram/content/WithYashar_16293_1782940248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحلیلگر ژئوپلیتیک چینی: امضای تفاهم توسط ترامپ، فقط برای عبور از گرمای تابستان منطقه است!
+۶۰ هزار سرباز آمریکایی آماده حمله زمینی به ایران هستند.
+@withyashar
+</div>
+
+## mwarmonitor — post 11818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت خارجه قطر اعلام کرد که پس از دیدارهای جداگانه میان میانجی‌گران قطری و پاکستانی با هیأت‌های آمریکایی و ایرانی در دوحه، در موضوعات مرتبط با یادداشت تفاهم (MoU) «پیشرفت‌های مثبتی» حاصل شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11817
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11817_1782940251.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هشدار هواشناسی؛ شمارش معکوس برای استقرار دومین «گنبد حرارتی» سهمگین در قلب اروپا
+
+🔴آژانس‌های هواشناسی بین‌المللی با اتکا به جدیدترین خروجی مدل‌های عددی پیش‌بینی وضع هوا، نسبت به وقوع یک کلان‌موج گرمای بی‌سابقه و شکل‌گیری دومین گنبد حرارتی (Heat Dome) در قاره اروپا طی روزهای آینده هشدار دادند.
+
+
+🔴به گزارش سرویس تحلیل اقلیمی، بررسی آخرین داده‌های مدل پیشرفته ECMWF نشان می‌دهد که الگوهای جوی در نیمه اول ماه جولای به سمت یک آرایش فرین (Extreme) و مخاطره‌آمیز حرکت می‌کنند. این نقشه که ناهنجاری دمایی تراز ۸۵۰ هکتوپاسکال (حدود ۱.۵ کیلومتری سطح زمین) را پایش می‌کند، نشان‌دهنده انحراف شدید و نگران‌کننده دما از میانگین بلندمدت است.
+
+
+🔴تکامل الگو؛ از شرق به غرب
+تحلیل سناریوی پیش‌رو نشان می‌دهد این بحران گرمایشی در دو فاز مجزا قاره اروپا و کشورهای همجوار را تحت تأثیر قرار می‌دهد:
+فاز نخست (بحران در شرق مدیترانه): در روزهای ابتدایی جولای، هسته اولیه هوای داغ بر روی منطقه بالکان، یونان، ترکیه و بخش‌هایی از شمال‌غرب ایران متمرکز است. در این بازه، اروپای غربی موقتاً در پناه یک کانال خنک‌تر قرار دارد.
+فاز دوم (شکل‌گیری کلان‌گنبد حرارتی در مرکز اروپا): از تاریخ ۵ جولای، ورق برمی‌گردد. با صعود پشته پرفشار از شمال آفریقا و اقیانوس اطلس، توده هوای به شدت داغ به سمت شمال و شرق پمپاژ می‌شود. اوج این وضعیت بین ۹ تا ۱۱ جولای خواهد بود؛ جایی که یک گنبد حرارتی عظیم و تاریک، کشورهایی چون فرانسه، آلمان، ایتالیا، بریتانیا و کل اروپای مرکزی را به کام خود می‌کشد.
+
+
+🔴گنبد حرارتی؛ لایه محبوس‌کننده مرگبار
+اصطلاح «گنبد حرارتی» زمانی به کار می‌رود که یک سیستم پرفشار و قدرتمند در لایه‌های فوقانی جو، مانند یک درپوش صلب روی منطقه عمل کند. این سیستم، هوای گرم در حال صعود را مجدداً به سمت پایین فشرده می‌کند. طبق قوانین فیزیک جو، این فشردگی باعث افزایش مضاعف دما و خشکی مفرط هوا می‌شود.
+نمودار رنگی نقشه (ورود به محدوده رنگ‌های قهوه‌ای تیره و سیاه) حاکی از آن است که دمای تراز میانی جو بین ۱۲ تا ۱۶ درجه سانتی‌گراد بالاتر از نرمال ۳۰ ساله قرار خواهد گرفت که در سطح زمین می‌تواند به معنای جابه‌جا شدن رکوردهای تاریخی دما باشد.
+
+
+🔴پیامدها و مخاطرات پیش‌رو
+کارشناسان هشدار می‌دهند که استقرار این توده هوای سنگین و سوزان می‌تواند پیامدهای زیر را به همراه داشته باشد:
+بحران سلامت عمومی: خطر جدی گرمازدگی شدید و مرگ‌ومیر ناشی از آن، به‌ویژه در بریتانیا و اروپای غربی که زیرساخت‌های خانگی کمتری برای مقابله با سرمایش دارند.
+تنش شدید در شبکه انرژی: ناترازی برق به دلیل استفاده حداکثری از سیستم‌های سرمایشی.
+آتش‌سوزی‌های جنگلی: خشکی شدید اتمسفر و زمین، پتانسیل اشتعال جنگل‌ها را در حاشیه مدیترانه و نوار مرکزی اروپا به طرز بارزی افزایش می‌دهد.
+تصاویر دریافتی نشان می‌دهند که تابستان امسال، هشدارهای تغییرات اقلیمی به واقعیت‌هایی ملموس و خشن در اتمسفر زمین تبدیل شده‌اند و روزهای سختی در انتظار مدیریت بحران کشورهای اروپایی خواهد بود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گزارش روزنامه جروزالم پست، ژنرال زامیر، رئیس ستاد ارتش اسرائیل، روز چهارشنبه با ژنرال آمریکایی کلیرفیلد دیدار کرد تا سازوکارهای هماهنگی مرتبط با لبنان را که بر اسرائیل، ارتش لبنان و حزب‌الله تأثیر می‌گذارد، پیش ببرد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343704
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343704_1782940256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: "I know they got it wrong, but that's okay."
+
+President Trump renewed his push to end birthright citizenship and criticized the Supreme Court after it struck down his attempt to eliminate the practice.
+
+Trump touted his administration's push for a merit-based society, saying "our country now is based again on merit."
+</div>
+
+## FoxNewsTwitter — post 343703
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343703_1782940259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+TRUMP: "Other people wouldn't have done what he did... He never sat, he never rested. He just kept going."
+
+President Trump celebrates Teddy Roosevelt's legendary endurance, praising the former president for pushing through severe illness when many believed he wouldn't survive.
+
+"As America turns 250 years old, we look at this remarkable man. And we recall that with effort, determination and drive, there is nothing that Americans of competence cannot do. Nothing."
+</div>
+
+## FoxNewsTwitter — post 343702
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343702_1782940261.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The life of Theodore Roosevelt reminds us that Americans never give up."
+
+President Trump says Theodore Roosevelt's story still has something to teach America.
+
+Speaking ahead of the country's 250th year, Trump pointed to Roosevelt as an example of resilience, saying, "We don't give up."
+
+"He never stopped, never quit, never surrendered in pursuit of his dreams," Trump said as he outlined lessons from the 26th president's life.
+</div>
+
+## FoxNewsTwitter — post 343701
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343701_1782940264.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump says the U.S. never should have handed over the Panama Canal, warning that China is now trying to take control of the strategic waterway.
+
+"We're not going to let that happen."
+
+Speaking at the dedication of the Roosevelt Presidential Library, Trump criticized Panama for repeatedly raising canal transit fees while continuing to collect massive revenues and vowed the United States would not allow China to gain influence over the canal.
+
+"And that was not part of the script..." Trump joked after going off on the issue.
+</div>
+
+## FoxNewsTwitter — post 343700
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343700_1782940267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump praised the 26th president during remarks at the opening of the Theodore Roosevelt Presidential Library in North Dakota, calling Roosevelt "very special."
+
+"That's the man who I have long admired. He's one of the few. I don't admire too many people, I have to tell you. It's not a lot of people out there."
+
+Trump then thanked the crowd, noting he won North Dakota with the most votes of any presidential candidate in the state's history.
+
+"I'm back in North Dakota because I won this state with the most votes in the history of the presidency. Thank you very much!"
+</div>
+
+## FoxNewsTwitter — post 343698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump and Interior Secretary Doug Burgum cut the ribbon to officially open the Theodore Roosevelt Presidential Library in North Dakota.
+
+During the ceremony, Theodore Roosevelt's Medal of Honor was presented alongside Congressional Medal of Honor Society President Britt Slabinski. The medal will remain on display at the library as part of its tribute to the 26th president.
+
+Roosevelt and his son, Theodore Roosevelt Jr., are the only father-son pair to both receive the Medal of Honor, and this marked the first time the two medals were displayed together.
+</div>
+
+## FoxNewsTwitter — post 343697
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343697_1782940270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump participates in Theodore Roosevelt Library opening https://twitter.com/i/broadcasts/1lKQRRLvpqWGE
+</div>
+
+## pm_afshaa — post 95175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف خطاب به جلیلی و مخالفین توافق :نه در دیپلماسی به کشور کمک می‌کنید، و نه در جنگ. بیشتر از این آزار ندید، و حرف‌های ترامپ رو هم غرغره نکنید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قائم‌پناه(معاون پزشکیان):اگر قرار باشد نظر رهبری هر آنچه که می‌گوید اجرا کنیم که دیگر نهادی نباید وجود داشته باشد. دیگر مجلس و شعام معنا ندارد رهبری نظر می‌دهد و نظرش کارشناسی می‌ شود @WSIRNews
+</div>
+
+## pm_afshaa — post 95173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حادثه امنیتی در ناو هواپیمابر جورج اچ دبلیو بوش در نزدیکی ایران و دریای عرب 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حادثه امنیتی در ناو هواپیمابر جورج اچ دبلیو بوش در نزدیکی ایران و دریای عرب
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 6116
+
+<div align="center">
+  <a href="telegram/content/DEJradio_6116_1782940270.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 شطرنج ترامپ و خبرهای خوب خاورمیانه؛ نبود سازماندهی مردم ایران
+
+*پژمان گلچین، پژوهشگر فلسفه
+
+#مردم_ایران #سازماندهی #ترامپ
+@DEJradio
+</div>
+
+## DEJradio — post 6115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️🕘 خبر ۲۱
+چهارشنبه ۱۰ تیر ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## kianmeli1 — post 88250
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88250_1782940271.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حسین پاک، خبرنگار جبهه مقاومت: حمله به دکل مخابراتی در سیریک قابل تسری در کشور است/ از حمله به دکل شروع می‌شود و به پایتخت می‌رسد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مصطفی هجری دبیر کل حزب دموکرات در مصاحبه با صدای آمریکا
+حمله زمینی به ایران مطرح است اما پیشروی تا تهران در دستور کار ما نیست، اگر شرایط محیا باشد تا ارومیه پیشروی خواهیم کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 345336
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345336_1782940273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماجد الانصاری، سخنگوی وزارت خارجه قطر، اعلام کرد میانجی‌های قطر و پاکستان چهارشنبه در دوحه نشست‌های جداگانه‌ای با مذاکره‌کنندگان آمریکا و جمهوری اسلامی برگزار کردند و در موضوع‌های مرتبط با یادداشت تفاهم اسلام‌آباد پیشرفت مثبتی حاصل شد.
+او افزود طرف‌ها توافق کردند گفت‌وگوها در دوره پیش رو ادامه یابد و نشست بعدی در نخستین فرصت ممکن پس از مراسم تشییع جنازه علی خامنه‌ای برگزار شود.
+https://iranintl.com/202607010888
+</div>
+
+## IranIntlTV — post 345335
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/345335" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: اول بمباران، بعد مذاکره؛ روایت تازه ترامپ از ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 345334
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345334_1782940275.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان گزارش داد بر اساس داده‌های موسسه مارین ترافیک، در ۲۴ ساعت گذشته دست‌کم ۳۵ کشتی تجاری از تنگه هرمز عبور کردند؛ هم‌زمان با دیدار مقام‌های قطری با مقام‌های ارشد آمریکا و جمهوری اسلامی در دوحه.
+در این مدت، ۲۰ کشتی شامل ۱۱ کشتی باری و ۹ نفتکش وارد خلیج فارس شدند و ۱۵ کشتی شامل ۹ نفتکش و ۶ کشتی باری از آن خارج شدند.
+این آمار همچنان با سطح پایین تردد کشتی‌ها در هفته‌های اخیر مطابقت دارد. پیش از جنگ، به‌طور میانگین روزانه حدود ۱۱۰ کشتی از تنگه هرمز عبور می‌کردند.
+سی‌ان‌ان افزود اختلال در سامانه موقعیت‌یاب که طی ماه‌های گذشته باعث نمایش نادرست موقعیت کشتی‌ها می‌شد، در هفته‌های اخیر به‌طور محسوسی کاهش یافته است.
+https://iranintl.com/202607012038
+</div>
+
+## IranIntlTV — post 345333
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345333_1782940276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما بخش تازه‌ای از گفت‌وگوی ضبط‌شده محمدباقر قالیباف را که شامگاه سه‌شنبه پخش آن را به‌طور ناگهانی متوقف کرده بود، حدود ۲۴ ساعت بعد منتشر کرد.
+
+قالیباف با تاکید بر این که «دسترسی بازرسان آژانس به سایت‌های بمباران شده کذب است»، گفت در مجلس قانون تصویب کردیم، شورای عالی امنیت ملی هم تصویب کرد که به هیچ عنوان به سایت‌هایی که بمباران شده و آسیب دیده‌اند، دسترسی داده نخواهد شد.
+
+او افزود آژانس فقط در دو مورد حق دسترسی دارد؛ نیروگاه بوشهر و راکتور تهران.
+https://iranintl.com/202607013986
+</div>
+
+## IranIntlTV — post 345332
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345332_1782940277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هواداران تیم فوتبال انگلیس پس از پیروزی این تیم برابر کنگو در مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶، خوشحالی بی‌پایانی داشتند.
+
+🔹رضا محدث، خبرنگار ایران اینترنشنال از نیویورک گزارش می‌دهد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 345331
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/345331" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: زمینه‌سازی اسرائیل برای جنگ سوم با جمهوری اسلامی؟!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 345330
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345330_1782940279.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمینه‌سازی اسرائیل برای جنگ سوم با جمهوری اسلامی؟!
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/0-TpsDs1KVc
+@iranintltv
+</div>
+
+## IranIntlTV — post 345329
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345329_1782940282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما علت توقف پخش مصاحبه محمدباقر قالیباف را «مشکل فنی در فایل ضبط‌شده» اعلام کرده و گفته نسخه کامل این مصاحبه امشب پخش خواهد شد. در مقابل، مرکز رسانه مجلس می‌گوید فایل مصاحبه دو ساعت پیش از زمان پخش در اختیار صداوسیما قرار گرفته بود. رسانه‌های داخلی این اتفاق را نشانه‌ای از تشدید اختلافات درون حاکمیت ارزیابی کرده‌اند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345328
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345328_1782940284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجت کرمانی، وکیل دادگستری، خبر داد ماموران امنیتی با مراجعه به منزل هومن جوکار و سپیده کاشانی، زوج فعال محیط‌زیست و زندانیان سیاسی پیشین، آنان را بازداشت و وسایل الکترونیکی‌شان را ضبط کردند.
+
+سایت امتداد چهارشنبه ۱۰ تیر به نقل از کرمانی گزارش داد بازداشت این زوج فعال محیط‌زیست حدود ساعت چهار و نیم عصر و پس از ضبط تمامی وسایل الکترونیکی آن‌ها انجام شد.
+
+این وکیل دادگستری افزود نیروهای امنیتی سیما، خواهر سپیده کاشانی را نیز بازداشت کرده‌اند. به گفته کرمانی، تا این لحظه اطلاعی درباره نهاد بازداشت‌کننده این سه شهروند در دسترس نیست.
+
+او با اشاره به تعطیلی طولانی پیش رو و بسته شدن مراکز قضایی گفت این بازداشت‌ها نگرانی خانواده‌های آنان را افزایش داده است.
+https://iranintl.com/202607010106
+</div>
+
+## Shin_Persian — post 7326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 01 Jul 2026 21:08:32 UTC
+
+UAV strike on Kurdish positions in Erbil province
+KRI, Iraq
+
+ترجمه خودکار فارسی
+
+حمله پهپادی به مواضع کُردها در استان اربیل
+اقلیم کردستان عراق، عراق
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7325
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7325_1782940285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 01 Jul 2026 19:42:25 UTC
+
+#USN 🇺🇸 Triton RTB after mission over the Persian Gulf and Gulf of Oman
+
+ترجمه خودکار فارسی
+
+#USN 🇺🇸 تریتون در حال بازگشت به پایگاه (RTB) پس از مأموریت برفراز خلیج فارس و دریای عمان
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 01 Jul 2026 19:38:36 UTC
+
+Ghalibaf: "IAEA inspectors have no access to bombed sites. Currently inspectors only have access to two locations: Bushehr power plant and Tehran reactor."
+
+ترجمه خودکار فارسی
+
+قالیباف: «بازرسان آژانس بین‌المللی انرژی اتمی (IAEA) هیچ دسترسی به سایت‌های بمباران شده ندارند. در حال حاضر بازرسان فقط به دو مکان دسترسی دارند: نیروگاه بوشهر و رآکتور تهران.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+החדשות - N12 ✓ @N12News
+Wed, 01 Jul 2026 19:21:09 UTC
+
+63 בעד, 53 נגד: חוק יסוד לימוד תורה אושר בקריאה ראשונה
+@DaphnaLiel
+
+English
+
+63 in favor, 53 against: The Basic Law: Torah Study has been approved in its first reading.
+@DaphnaLiel_
+
+ترجمه خودکار فارسی
+
+۶۳ موافق، ۵۳ مخالف: قانون پایه آموختن تورات در قرائت اول تصویب شد
+@DaphnaLiel_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 222450
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222450_1782940286.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش برنامه تفسیر خبر از فریبکاری جمهوری اسلامی در اطلاق اتهامات واهی امنیتی به زندانیان سیاسی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ با اشاره به خروج کشتی‌ها از تنگه هرمز: قیمت سوخت مثل افتادن سنگ به روی زمین سقوط می‌کند
+
+▪️دونالد ترامپ روز چهارشنبه به ایالت داکوتای شمالی رفت تا از «کتابخانه ریاست جمهوری تئودور روزولت» که به تازگی ساخته شده است، بازدید کند. آقای ترامپ همچنین در شهر مدورا در جمع گروهی از مردم سخنرانی کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166910.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222448
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222448_1782940288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس‌جمهوری آمریکا، روز چهارشنبه در یک سخنرانی در داکوتای شمالی گفت: کمونیسم مانند سرطان است که پخش می‌شود، و بهتر است سریعتر جلویش را بگیرید. ما هرگز نخواهیم گذاشت ایالات متحده یک کشور کمونیستی شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222447
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222447_1782940288.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تفاهم سیاسی ممکن است فشار خارجی بر جمهوری اسلامی را کم کند، اما برای جوانانی که کار، ازدواج، مهاجرت و آینده‌شان در تعلیق است، هنوز پاسخ روشنی ندارد: این توافق چه چیزی را در زندگی واقعی آنها تغییر می‌دهد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222446
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222446_1782940290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه طی یک سخنرانی در جمع شماری از مردم ایالت داکوتای شمالی گفت: کوبا پس از چندین دهه به سمت ما می‌آید.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222445
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222445_1782940290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیام صوتی حشمت الله طبرزدی از زندان خطاب به جمهوری اسلامی: با مردم ایران هم گفت‌وگو کنید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222444
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222444_1782940292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس‌جمهوری آمریکا، در یک سخنرانی در جمع شماری از مردم ایالت داکوتای شمالی گفت: «ما در ونزوئلا کار خوبی انجام دادیم. اما، در حقیقت ما به همان اندازه در مورد جمهوری اسلامی ایران هم خوب عمل می‌کنیم. شاید اسمش را شنیده باشید.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تانکر ترکز: کشتی به ‌گل نشسته در تنگه هرمز متعلق به شبکه قاچاق شمخانی است
+
+▪️شرکت رصد حمل‌و‌نقل دریایی «تانکر ترکز» در پاسخ به ادعای رسانه‌ای جمهوری اسلامی مبنی بر «به گل نشستن» یک فروند کشتی پس از عبور از «مسیری غیر از مسیر تعیین‌شده سپاه» اعلام کرد که این کشتی بخشی از ناوگان «شبکه قاچاق شمخانی» است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/shipwreck-shamkhani-iran-smuggling-/8166857.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شورای هماهنگی تشکل‌های صنفی فرهنگیان، احکام سنگین علیه معلمان را محکوم کرد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هومن جوکار و سپیده کاشانی، زوج فعال محیط‌زیست، بازداشت شدند
+
+▪️حجت کرمانی، وکیل دادگستری در ایران، از بازداشت دوباره هومن جوکار و سپیده کاشانی، زوج فعال امور محیط‌زیست، خبر داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166894.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روایت جمهوری اسلامی از حمله سایبری به بانک‌ها تنها در یک روز از کوچک‌نمایی به ابهام رسید. همزمان با تعطیلی تهران برای مراسم تشییع علی خامنه‌ای، گزارش‌هایی از ادامه حملات به نیروهای حکومتی، بحران قطع برق در خوزستان و تداوم فشار بر فعالان و معلمان منتشر شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️«بازار کار ایران و حذف خاموش زنان»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آموزش مخفیانه نیروهای نظامی روسیه در چین برای جنگ با اوکراین؛ اروپا ابراز نگرانی کرد
+
+▪️خبرگزاری رویترز چهارشنبه ۱۰ تیر، در گزارشی اعلام کرد: «به یک سند طبقه‌بندی شده دست یافته است که نشان می‌دهد گروهی از نیروهای مسلح روسیه برای جنگ با اوکراین در پایگاه‌های ارتش چین آموزش دیده‌اند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/war-china-russia-ukraine-russian-military-forces/8166852.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ: ما و ایران در مذاکرات تاکنون به خوبی کنار آمدیم و دیدار اخیر در قطر به خوبی پیش رفته است
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126766
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126766_1782940292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶بنت: دولت آینده‌ام برای سرنگونی حکومت ایران برنامه خواهد داشت
+
+فتالی بنت، نخست‌وزیر پیشین اسرائیل و رهبر حزب "با هم"، در کنفرانس هرتزلیا گفت پس از "هزار روز جنگ"، باید واقعیت را گفت: حماس در جنوب در حال تجدید قواست، حزب‌الله قدرتمندتر می‌شود و به نیروهای اسرائیلی حمله می‌کند و شهروندان این کشور را تهدید می‌کند، و در عین حال "سر اختاپوس"، یعنی حکومت تهران، همچنان پابرجاست. او گفت در صورت پیروزی در انتخابات آینده، هدف راهبردی اسرائیل تحت رهبری او، "سرنگونی حکومت ایران، پیش از دستیابی ایران به سلاح هسته‌ای" خواهد بود.
+
+بنت گفت برای رسیدن به این هدف، فقط حملات نظامی کافی نیست.
+
+او افزود دولت او یک کارزار جامع را آغاز خواهد کرد که ضعف‌های اقتصاد ایران را عمیق‌تر بکند، سامانه‌های سایبری توسعه می‌دهد تا توان حکومت جمهوری اسلامی برای سرکوب شهروندان خود را مختل کند، از گروه‌های اقلیت بزرگ در ایران که به گفته او زیر فشار حکومت هستند حمایت می‌کند و فساد حکومت جمهوری اسلامی را افشا خواهد کرد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 18463
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18463_1782940293.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شب همه بخیر
+
+بچه های تراست vpn بازم برای پرشین ترند کاهش قیمت دادن
+
+سرورای نامحدودی که دارن چندین لوکیشینه و سرویس های هوش مصنوعی روهم راحت باز میکنه
+
+اکانت های هوش مصنوعی هم دارن
+بهشون پیام بدین و قیمت بگیرین👇
+
+کاملا مطمئنن با خیال راحت خرید کنین👇👇
+
+@trusstvpnn_admin
+</div>
+
+## Persian_Trend_Official — post 18462
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18462_1782940294.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: 6 میلیارد دلار ما در قطر بود و 6 میلیارد دلار بعدی را آن‌ها تقبل کردند!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18461
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18461_1782940296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: اگر به سوئیس نمی‌رفتم و برخی شروط محقق نمی‌شد آیا نمی‌گفتند قالیباف شروط چه شد؟
+
+در گفت‌وگوهای زوریخ آزادسازی اموال تسریع و تعلیق تحریم‌ها انجام شد، اگر نمی‌رفتیم نمی‌گفتند قالیباف شروط چه شد؟
+
+رهبر انقلاب در پیام خود با درایت تاکید کردند که ایشان و مردم منتظر تحقق شروط تفاهم هستند، در این شرایط من چه کنم؟ شروط را پیگیری نکنم؟!
+
+کسانی هستند که نه در دیپلماسی به کشور کمک می‌کنند و نه در جنگ  اما من ایستاده‌ام تا هم بجنگم و هم دیپلماسی را انجام دهم.
+
+بیشتر از این آزار ندهید و حرف‌های ترامپ را هم قرقره نکنید و اجازه دهید مردم آرامش داشته باشند و به جمهوری اسلامی افتخار کنند.
+
+خونخواهی امام شهید ما آزادی قدس است و برای آن باید لبنان را حفظ کنیم و با شعار نمی‌شود خون‌خواهی کرد.
+
+دشمن ما جز زبان قدرت فهم دیگری ندارد و ما باید باقدرت با او برخورد کنیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18460
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18460_1782940298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: بحث دسترسی بازرسان آژانس به سایت‌های بمباران شده کذب است
+
+ما خودمان در مجلس قانون تصویب کردیم؛ شورای عالی امنیت ملی هم مصوبه دارد. بر اساس این قانون، به هیچ عنوان به سایت‌هایی که بمباران شده و آسیب دیده‌اند، دسترسی داده نمی‌شود. این قانون است.
+
+ما هیچ امتیازی بیشتر از دسترسی‌هایی که شورای عالی امنیت ملی تعیین کرده، نمی‌دهیم. طبق قانون، تعیین سطح دسترسی‌ها بر عهده شورای عالی امنیت ملی است و آن هم چارچوب آن را مشخص کرده است.
+
+در حال حاضر، آن‌ها فقط در دو مورد حق دسترسی دارند؛ یکی نیروگاه بوشهر و دیگری راکتور تهران. دسترسی‌ها فقط در همین حد بوده است و ما نسبت آن متعهد هستیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 18459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/GJ6hK6OUDEw?feature=share»
+</div>
+
+## RadioFarda — post 158983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انگلیس با دو گل هری کین به یک هشتم نهایی جام جهانی صعود کرد
+
+🔸در یک بازی مهیج در دور یک شانزدهم نهایی جام جهانی ۲۰۲۶، انگلیس در حالی که تا دقیقه ۷۵ از جمهوری دموکراتیک کنگو یک بر صفر عقب افتاده بود، با دو گل هری کین، مهاجم سرشناس خود، به پیروزی رسید و به جمع شانزده تیم برتر صعود کرد.
+
+🔸جمهوری دموکراتیک کنگو در این بازی که در شهر آتلانتا برگزار شد، خیلی زود پیش افتاد؛ برایان سیپنگا نخستین گل ملی خود را به ثمر رساند. شانسل ممبا با یک پاس بلند توپ را به محوطه جریمه فرستاد؛ توپ پس از عبور از میان دو بازیکن به سیپنگا رسید و او با شوتی محکم از کنار جردن پیکفورد توپ را وارد دروازه کرد.
+
+🔸انگلیس پس از آن حملات متعددی برای جبران نتیجه ترتیب داد، اما لیونل امپاسی، دروازه‌بان جمهوری دموکراتیک کنگو، با پنج مهار درخشان اجازه نداد تیمش تا پایان نیمه نخست گل بخورد.
+
+🔸او دو بار با واکنش‌های سریع، ضربات سر جود بلینگام را از فاصله نزدیک مهار کرد و در ثانیه‌های پایانی نیمه نیز شوت بسیار خطرناک کین را دفع کرد.
+
+🔸جمهوری دموکراتیک کنگو در دقیقه ۴۲ تا آستانه دو بر صفر کردن بازی پیش رفت، اما یوان ویسا روی یک ارسال دقیق، توپ را به تیر دروازه کوبید.
+
+🔸بلافاصله پس از آن، درخواست پنالتی هری کین نیز، در حالی که به نظر می‌رسید توسط امپاسی در محوطه جریمه سرنگون شده است، از سوی داور رد شد.
+
+🔸هری کین سرانجام در دقیقه ۷۵ با یک ضربه سر از روی سانتر آنتونی گوردون گل تساوی را به ثمر رساند.
+
+🔸یازده دقیقه بعد، او با به ثمر رساندن گل دوم این بازی، سیزدهمین گل خود در تاریخ جام جهانی را زد؛ او با دریافت توپ در پشت محوطه جریمه، با یک شوت تماشایی در حال حرکت، توپ را به گوشه بالای سمت راست دروازه فرستاد.
+
+🔸انگلیس تا پیش از گل نخست کین، تنها یک شوت در چارچوب در نیمه دوم ثبت کرده بود.
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دو نفر که از بخش فوقانی برج امپایر استیت در نیویورک بالا رفته بودند و بنری با پیام حمایت از صلح جهانی را به نمایش گذاشتند، ظاهراً در همان ارتفاع صحنه‌ای غیرمنتظره را رقم زدند.
+
+🔸در ویدئویی که روز چهارشنبه دهم تیرماه منتشر شده، یکی از این دو نفر پس از برافراشتن بنری با شعار «وقتی قدرت عشق بر عشق به قدرت غلبه کند، جهان صلح را خواهد شناخت»، مقابل همراه خود زانو می‌زند و به نظر می‌رسد به او پیشنهاد ازدواج می‌دهد. سپس این دو یکدیگر را در آغوش می‌گیرند.
+
+🔸این دو نفر با لباس‌های مشکی بدون آستین، در نزدیکی چراغ قرمز بالای برجک برج امپایر استیت و در ارتفاع حدود ۴۴۳ متری از سطح خیابان قرار گرفته بودند.
+
+🔸هویت این افراد و اینکه چگونه به این بخش از برج دسترسی پیدا کرده‌اند، تاکنون مشخص نشده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23648
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23648_1782940301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه خواستید کارما رو به یک نفر توضیح بدید این عکسو نشونش بدید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قالیباف:
+
+به هیچ عنوان دسترسی در سایت‌هایی که بمباران شده نمی‌دهیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تحلیلگر ژئوپلیتیک چینی:
+
+امضای تفاهم توسط ترامپ فقط برای عبور از گرمای تابستان منطقه است!
+۶۰ هزار سرباز آمریکایی آماده حمله زمینی به ایران هستند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285521
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285521_1782940301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حجت کرمانی، وکیل هومن جوکار و سپیده کاشانی، از بازداشت مجدد این دو فعال محیط زیست خبر داد. نیروهای امنیتی سیما کاشانی خواهر سپیده کاشانی را هم دستگیر کردند.
+
+آقای کرمانی به شرق گفت: «ماموران امنیتی با حضور در منزل هومن جوکار و سپیده کاشانی، زوج فعال محیط‌زیستی، ضمن ضبط تمامی وسایل الکترونیکی آن‌ها، بازداشتشان کردند.»
+
+وکیل آنها گفته است که «با توجه به تعطیلی طولانی پیش‌رو و بسته شدن مراکز قضایی، این بازداشت، نگرانی‌ها را برای خانواده این افراد افزایش داده است.»
+
+هنوز روشن نیست آنها در بازداشت چه نهادی هستند.
+
+سپیده کاشانی و هومن جوکار اولین بار در سال ۱۳۹۶ شمسی به اتهام «جاسوسی» بازداشت شدند و مدتها در انفرادی و تحت بازجویی قرار داشتند.
+
+در آن زمان سپاه پاسداران پرونده این فعالان محیط زیست را در دست داشت.
+
+در سال ۹۶، هشت فعال محیط‌ زیست به همراه کاووس سید امامی بازداشت شدند بودند اما آقای سیدامامی مدت کوتاهی بعد از بازداشت در زندان درگذشت و مقام‌های رسمی قوه قضائیه علت آن را «خودکشی» اعلام کردند.
+
+ادامه خبر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 Handout
+https://bbc.in/446Bns0
+@BBCPersian
+</div>
+
+## BBCPersian — post 285520
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایران در نامه‌ای به شورای امنیت تهدید اسرائیل علیه مجتبی خامنه‌ای را محکوم کرد
+نماینده دائم ایران در سازمان ملل متحد در نامه‌ای رسمی‌ به دبیرکل و رئیس شورای امنیت، تهدید علنی رهبر ایران از سوی اسرائیل را محکوم کرد.
+
+امیرسعید ایروانی، نماینده ایران، در این نامه تهدید اسرائیل کاتس، وزیردفاع اسرائیل، علیه مجتبی خامنه‌ای را «مصداق بارز تروریسم دولتی و نقض آشکار منشور ملل متحد دانست.»
+
+آقای ایروانی در این نامه نوشت که اظهارات آقای کاتس که گفته است مجتبی خامنه‌ای «برای مرگ نشان شده است» بخشی از «سیاست نظام‌مند اسرائیل برای ترور مقامات عالی‌رتبه ایران است و سکوت شورای امنیت، اسرائیل را در ادامه جنایات خود گستاخ‌تر کرده است.»
+
+پیش از این هم عباس عراقچی، وزیر خارجه ایران، در واکنش به اظهارات وزیر دفاع اسرائیل گفت که هرگونه تهدید علیه مردم و رهبران ایران با «پاسخی فوری و قدرتمند» روبه‌رو خواهد شد.
+
+او افزود رئیس‌جمهور آمریکا، متعهد شده است که اسرائیل را مهار کند و گفت اگر اسرائیل از این چارچوب عدول کند، ایران واکنش نشان خواهد داد
+
+https://bbc.in/3Tcaj8i
+@BBCPersian
+</div>
+
+## BBCPersian — post 285519
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_285519_1782940302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم چهارشنبه ۱۰ تیر ۱۴۰۵
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه جوری صدا سیما با افتخار از چال کردن خامنه‌ای صحبت می‌کنه، انگار ترامپ رو دارن خاک میکنن😂😂😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393578
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393578_1782940305.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ وقت از مجازی تقلید نکنید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393577
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393577_1782940307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشتِ صحنۀ عکس یادگاری با ببرها که یک توریست آمریکایی که به تایلند رفته بوده، به اشتراک گذاشته است!!!
+چه ریسک و مشقتی!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393576
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393576_1782940311.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقد کیوت دعوا میکنن 🥹
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393575
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393575_1782940313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینستاگرام فارسی رسماً به عنوان هشتمین عجایب دنیا، ثبت شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393574
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393574_1782940315.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این ویدیو از شاهکار این هموطن تو یه روز، بالای 20 میلیون ویو خورده؛
+
+جزئیاتِ حرکات برادر : 10/10
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393573
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393573_1782940318.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتم شما هم از ترند‌ها باخبر بشید:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393572
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393572_1782940318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیر خلاص زنها حتی به زور هم نمیتونن یه قطره اشک گریه کنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 131358
+
+<div align="center">
+  <a href="telegram/content/alonews_131358_1782940320.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: در مورد کوبا، پس از دهه‌ها و دهه‌ها، به سمت ما می‌آید.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131357
+
+<div align="center">
+  <a href="telegram/content/alonews_131357_1782940320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره مدال افتخار: من پسران زیبایم را می‌بینم. فکر می‌کنم می‌خواهم یکی را به خودم و یکی را به آن‌ها بدهم و یک سه‌نفره خواهیم داشت.
+
+
+🔴من به آن‌ها مدال افتخار کنگره را برای چیزی می‌دهم... برای نبوغ آن‌ها در شکار.
+
+
+🔴و من یکی را برای پذیرش «روسیه روسیه روسیه» یا چیزی شبیه به آن دریافت خواهم کرد
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131356
+
+<div align="center">
+  <a href="telegram/content/alonews_131356_1782940323.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کشتی‌ها با تعداد بی‌سابقه‌ای که تا به حال کسی ندیده است از تنگه هرمز خارج می‌شوند، ما در حال ثبت آمارهای بی‌سابقه هستیم و قیمت نفت در حال کاهش است
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131355
+
+<div align="center">
+  <a href="telegram/content/alonews_131355_1782940323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : کنترل کامل. ما کنترل کامل همه چیز را داریم.
+
+
+🔴این فقط آغاز دوران طلایی آمریکا است.
+
+
+🔴بهترین‌ها هنوز در راه است
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131354
+
+<div align="center">
+  <a href="telegram/content/alonews_131354_1782940326.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما بزرگ‌ترین زیردریایی‌های جهان را می‌سازیم.
+
+
+🔴ما در زمینه زیردریایی‌ها و دیگر موارد ۱۵ سال جلوتر هستیم
+
+
+🔴ما دوباره با کشتی‌ها شروع خواهیم کرد. قبلاً روزی یک کشتی می‌ساختیم
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131353
+
+<div align="center">
+  <a href="telegram/content/alonews_131353_1782940329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس: آمریکا تلاش دارد ایران را از دریافت عوارض از تنگه هرمز منصرف کند
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131352
+
+<div align="center">
+  <a href="telegram/content/alonews_131352_1782940330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اسپانیایی‌ها — اعضای ناتو اما نه اعضای خیلی خوبی از ناتو.
+
+
+🔴آن‌ها به خوبی رفتار نمی‌کنند، اما یاد خواهند گرفت
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131351
+
+<div align="center">
+  <a href="telegram/content/alonews_131351_1782940332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی دی ونس: در حال حاضر، مذاکرات به خوبی پیش می‌رود
+
+
+🔴کسانی که به دولت به‌خاطر مذاکره حمله می‌کنند، همان افرادی هستند که ما را تشویق می‌کردند چند بمب دیگر هم روی جاهایی مثل افغانستان بیندازیم
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131350
+
+<div align="center">
+  <a href="telegram/content/alonews_131350_1782940332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: عربستان سعودی و دیگران در حال نگاه کردن به چین و سایر کشورها برای محافظت از آن‌ها در طول دوره مدیریت بایدن بودند.
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131349
+
+<div align="center">
+  <a href="telegram/content/alonews_131349_1782940333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: ما اجازه نمی‌دهیم کمونیست‌ها راهمان را ببندند.
+
+
+🔴آن مردم، کاری که انجام می‌دهند، واقعاً احمقانه است. آن‌ها واقعاً احمق هستند.
+
+✅ @AloNews
+</div>
+
+## alonews — post 131348
+
+<div align="center">
+  <a href="telegram/content/alonews_131348_1782940336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: در 4 جولای، دمای هوا تقریباً 107 درجه خواهد بود.
+
+
+🔴و من می روم، و یک سخنرانی واقعا طولانی دارم فقط برای اینکه نشان دهم که می توانم هر کاری انجام دهم.
+
+✅ @AloNews
+</div>
+
+## alonews — post 131347
+
+<div align="center">
+  <a href="telegram/content/alonews_131347_1782940339.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: کانال پاناما گران‌ترین چیزی بود که تا به حال ساختیم و همچنین سودآورترین چیزی بود که تا به حال ساختیم. این ترکیب خوبی است.
+
+
+🔴کمی شبیه ونزوئلا. ما در واقع با جمهوری اسلامی ایران هم به همان اندازه خوب پیش می‌رویم. شاید شنیده باشید؟
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131346
+
+<div align="center">
+  <a href="telegram/content/alonews_131346_1782940342.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اخبار جعلی اخیراً نسبت به من بسیار مهربان بوده‌اند.
+
+
+🔴وقتی شما همان کاری را انجام می‌دهید که ما انجام می‌دهیم، آن‌ها باید مهربان باشند، حدس می‌زنم.
+
+
+🔴من حتی با تئودور روزولت صحبت کردم.
+گفت: «نظر شما درباره کانال پاناما چیست؟ آیا آن را بزرگترین دستاورد خود می‌دانید و در مورد این واقعیت که دموکرات‌ها کانال پاناما را به قیمت ۱ دلار به پاناما دادند، چه حسی دارید؟»
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131345
+
+<div align="center">
+  <a href="telegram/content/alonews_131345_1782940343.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اجازه نمی‌دهیم چین آبراه پاناما را تصاحب کند
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131344
+
+<div align="center">
+  <a href="telegram/content/alonews_131344_1782940343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره داگ برگام، وزیر داخله:
+فکر می‌کردم بسیار تأثیرگذار باشد. راستش را بخواهید، فکر می‌کردم همسرش کاترین حتی تأثیرگذارتر باشد
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131343
+
+<div align="center">
+  <a href="telegram/content/alonews_131343_1782940346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: من دو تله‌پرامپتر (دستگاه نمایش متن سخنرانی) دارم که کار نمی‌کنند، و اینجا ایستاده‌ام
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131342
+
+<div align="center">
+  <a href="telegram/content/alonews_131342_1782940349.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف علنا به تندروها گفت خفه بشید
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131341
+
+<div align="center">
+  <a href="telegram/content/alonews_131341_1782940349.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف خطاب به مخالفین مذاکره: بیشتر از این آزار ندهید و حرف‌های ترامپ را هم غرغره نکنید.
+
+
+🔴نه در دیپلماسی کمک می‌کنید؛ نه در جنگ!
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131340
+
+<div align="center">
+  <a href="telegram/content/alonews_131340_1782940350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ: «باید به شما بگویم این پرواز افتتاحیه‌ی هواپیمایی به نام ایر فورس وان پس از ۳۷ سال بود. این یک هواپیمای عالی است.»
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131339
+
+<div align="center">
+  <a href="telegram/content/alonews_131339_1782940354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: ما خودمان در مجلس قانون تصویب کردیم؛ شورای عالی امنیت ملی هم مصوبه دارد. بر اساس این قانون، به هیچ عنوان به سایت‌هایی که بمباران شده و آسیب دیده‌اند، دسترسی داده نمی‌شود. این قانون است.
+
+
+🔴ما هیچ امتیازی بیشتر از دسترسی‌هایی که شورای عالی امنیت ملی تعیین کرده، نمی‌دهیم. طبق قانون، تعیین سطح دسترسی‌ها بر عهده شورای عالی امنیت ملی است و آن هم چارچوب آن را مشخص کرده است.
+
+
+🔴 در حال حاضر، آن‌ها فقط در دو مورد حق دسترسی دارند؛ یکی نیروگاه بوشهر و دیگری راکتور تهران. دسترسی‌ها فقط در همین حد بوده است و ما نسبت آن متعهد هستیم
+
+
+✅ @AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/04/10 22:51
 ---
 
