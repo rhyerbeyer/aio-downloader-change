@@ -7,6 +7,668 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/10 03:43
+---
+
+## VahidOOnLine — post 248065
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248065_1782864793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال فرانسه با یک نمایش درخشان و هجومی، سوئد را با نتیجه ۳ بر صفر شکست داد و مقتدرانه راهی مرحله یک‌هشتم نهایی جام جهانی ۲۰۲۶ شد تا در دور بعد به مصاف پاراگوئه برود. این پیروزی قاطع در هوای بسیار گرم و ۳۲ درجه سانتی‌گراد ورزشگاه نیوجرسی رقم خورد، جایی که سوئدی‌ها تحت تاثیر حملات بی‌امان فرانسوی‌ها کاملا زمین‌گیر شدند.
+ستاره بی‌چون‌وچرای این مسابقه کیلیان امباپه، کاپیتان فرانسه بود که با به ثمر رساندن ۲ گل، شمار گل‌های خود در این تورنمنت را به عدد ۶ و مجموع گل‌های دوران حرفه‌ای خود در جام‌های جهانی را به ۱۸ گل رساند تا تنها یک گل با رکورد لیونل مسی فاصله داشته باشد. گل دیگر فرانسه را برادلی بارکولا وارد دروازه سوئد کرد. از صحنه‌های عاطفی این دیدار، دویدن امباپه و اعضای تیم به سمت نیمکت برای در آغوش کشیدن دیدیه دشان بود؛ سرمربی فرانسه که به تازگی از مراسم خاکسپاری مادرش به آمریکا بازگشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248064
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248064_1782864794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، نماینده آمریکا در سازمان ملل، از انتصاب الی کوهانیم، دیپلمات ایرانی‌تبار آمریکایی، به عنوان مشاور ارشد سیاست‌گذاری در نمایندگی ایالات متحده در سازمان ملل خبر داد.
+
+کوهانیم متولد تهران است و خانواده یهودی او پس از انقلاب ۱۳۵۷ ایران به آمریکا مهاجرت کردند. او در دولت نخست دونالد ترامپ معاون فرستاده ویژه وزارت خارجه آمریکا در امور مقابله با یهودستیزی بود و از منتقدان شناخته‌شده جمهوری اسلامی به شمار می‌رود.
+
+والتز با اعلام این انتصاب نوشت: «کمتر کسی به اندازه الی رژیم ایران را می‌شناسد» و افزود که از حضور او در تیم خود خرسند است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248063
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248063_1782864794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز رسانه مجلس جمهوری اسلامی اعلام کرد سازمان صداوسیما پخش گفت‌وگوی ضبط‌شده محمدباقر قالیباف، رییس مجلس جمهوری اسلامی و رییس هیات مذاکره‌کننده را که برای ارائه گزارش درباره روند اجرای یادداشت تفاهم با آمریکا تهیه شده بود، از میانه برنامه متوقف کرده است.
+
+در اطلاعیه مرکز رسانه مجلس آمده است این گفت‌وگو بیش از دو ساعت پیش از زمان پخش در اختیار صداوسیما قرار گرفته بود و اگر قرار بود بخشی از آن پخش نشود، مسئولان این سازمان باید پیش از پخش موضوع را با مجلس هماهنگ می‌کردند.
+
+بر اساس این اطلاعیه، بخش‌های پخش‌نشده شامل پاسخ به موضوع بازرسی آژانس از تاسیسات هسته‌ای، جزییات پیگیری آزادسازی اموال بلوکه‌شده، اعتبار ۳۰۰ میلیارد دلاری بازسازی در متن تفاهم، پاسخ به اظهارات دونالد ترامپ و تبیین پیام رهبر جمهوری اسلامی در ۲۸ خرداد بوده است.
+
+همزمان، قطع ناگهانی این برنامه واکنش رسانه‌های داخلی را در پی داشت. رسانه‌هایی از جمله انتخاب، جماران و اقتصادآنلاین گزارش دادند گفت‌وگوی قالیباف بدون توضیح از شبکه خبر قطع شده است و درباره علت این اقدام گمانه‌زنی‌هایی مطرح کردند، اما صداوسیما تاکنون توضیحی در این باره منتشر نکرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248062
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248062_1782864795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی در ایکس از دیدار خود با «مقام‌های ارشد عراق» در سفر به بغداد خبر داد و گفت: عراق نیز مانند جمهوری اسلامی در حال آماده شدن برای برگزاری «یک مراسم تشییع عمومی گسترده» برای علی خامنه‌ای است و این رویداد به «تقویت پیوندهای برادری و روابط ریشه‌دار» دو کشور کمک خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل با انتشار تصاویری در شبکه اجتماعی اکس اعلام کرد نیروهای این کشور مسدودسازی یک تونل زیرزمینی به طول بیش از ۱۶ کیلومتر در جنوب رفح را به پایان رسانده‌اند. ارتش اسرائیل اعلام کرد این تونل محل نگهداری جسد ستوان هدار گلدین، نظامی اسرائیلی، بود که در سال ۲۰۱۴ در جریان عملیات «صخره استوار» ربوده شده بود. به گفته ارتش اسرائیل، این مسیر زیرزمینی حدود ۸۰ اتاق داشت و به‌عنوان مرکز فرماندهی و کنترل حماس مورد استفاده قرار می‌گرفت. ارتش اسرائیل همچنین اعلام کرد برای مسدودسازی این تونل طی سه ماه گذشته بیش از ۳۰ هزار متر مکعب بتن استفاده شده و این مسیر از زیر یک محله مسکونی، مسجد، مهدکودک، مدرسه، درمانگاه و یک مرکز وابسته به آنروا عبور می‌کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16246
+
+<div align="center">
+  <a href="telegram/content/WithYashar_16246_1782864795.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه تسلیم شدن قوی ترین ارتش جهان رایش سوم (نازی ها) , سپاه پاسداران که بیضه های این ارتش هم نمیشه
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343650
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343650_1782864797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I unfortunately fear that's the direction the Democrats are heading. It is communism."
+
+Vice President JD Vance reacted to a string of Democratic Socialist primary victories on @IngrahamAngle, warning that he believes the Democratic Party is moving further to the left.
+
+Vance argued that recent election results reflect a broader ideological shift within the party after several Democratic Socialist-backed ca
+</div>
+
+## FoxNewsTwitter — post 343649
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343649_1782864798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Vice President JD Vance says the fight over birthright citizenship is far from over.
+
+Speaking on The Ingraham Angle after the Supreme Court's decision, Vance said the Trump administration is exploring ways to "close down that loophole" while arguing the Court created the problem in the first place.
+
+"We have the better of the case. We've just got to keep fighting at this," he said, adding that future Supreme Court vacancies could have major implications for the issue. |@IngrahamAngle
+</div>
+
+## FoxNewsTwitter — post 343648
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343648_1782864800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This is a very disappointing ruling from the Supreme Court."
+
+Vice President JD Vance reacted on @IngrahamAngle after the Supreme Court upheld birthright citizenship, calling the decision a "major, major mistake."
+
+Vance said the administration will continue looking at its legal options and argued the issue is far from settled as the White House pushes for changes to U.S. immigration policy.
+
+The ruling marks a major legal defeat for President Trump's effort to end automatic birthright citizenship for children born in the United States to parents who are in the country unlawfully or temporarily.
+</div>
+
+## pm_afshaa — post 95139
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95139_1782864802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال استریت ژورنال به نقل از مقامات آمریکایی:
+
+ترامپ در حال مذاکره با وزیر دفاع و رئیس ستاد مشترک ارتش آمریکا درباره احتمال تجدید حملات نظامی گسترده علیه ایرانه، اما فعلا ادامه مذاکرات دیپلماتیک رو انتخاب کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95138
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95138_1782864802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال‌استریت ژورنال:
+سپاه به میانجی‌های قطری پیام داده اگر تضمین‌های مدنظر جمهوری اسلامی درباره کنترل انحصاری تنگه هرمز داده نشه، تنگه هرمز رو دوباره خواهد بست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 345202
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345202_1782864803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، گفت در داخل ایالات متحده نیز اختلاف وجود دارد. او در این زمینه به تفاوت دیدگاه میان مارکو روبیو، وزیر خارجه آمریکا، و جی‌دی ونس، معاون رییس‌جمهوری آمریکا، اشاره کرد و گفت هر یک از آنها رویکرد‌های متفاوتی را دنبال می‌کنند.
+
+قالیباف در ادامه افزود که آمریکا به دنبال عادی‌سازی روابط لبنان و اسرائیل است، اما به گفته او، تفاهم‌نامه جمهوری اسلامی قرار است «استقلال لبنان» را حفظ کند؛ عبارتی که در ادبیات مقام‌های جمهوری اسلامی به نقش و جایگاه حزب‌الله در ساختار سیاسی و امنیتی لبنان اشاره دارد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345201
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345201_1782864804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیلا از کرج: من مادر یک جاویدنام ۱۷ ساله‌ام؛ به پسرم می‌بالم که روی آرزوهایش پا گذاشت
+
+یک ایران صدای شما را می‌شنود
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/vgKx8sCdbxY
+@iranintltv
+</div>
+
+## IranIntlTV — post 345200
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345200_1782864805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیهان از تهران:محرم امسال فرق داشت؛مردم با هر ظاهری بیرون آمدند و پرچم شیر و خورشید داشتند
+
+یک ایران صدای شما را می‌شنود
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/vgKx8sCdbxY
+@iranintltv
+</div>
+
+## IranIntlTV — post 345199
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345199_1782864807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی، پدرزنش را فرستاد جلو!
+
+ماجرا از یک عبارت شروع شد؛ «علی‌الاصول».
+
+واژه‌ای که در یکی از پیام‌های منتسب به مجتبی خامنه‌ای آمده و حالا به موضوع اختلاف میان حامیان حکومت تبدیل شده است.
+
+عده‌ای می‌گویند این عبارت یعنی او با توافق مخالف بوده است. گروهی دیگر، از جمله غلامعلی حدادعادل، می‌گویند برعکس، این جمله برای تقویت دست مذاکره‌کنندگان نوشته شده است.
+
+اگر مجتبی خامنه‌ای زنده است و این پیام را خودش نوشته، چرا خودش توضیح نمی‌دهد؟ چرا پدرزنش باید نقش سخنگوی او را بازی کند؟
+
+کامبیز حسینی در «برنامه»، با نگاهی طنز، به این ماجرا می‌پردازد.
+
+یک ایران صدای شما را می‌شنود
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/vgKx8sCdbxY
+@iranintltv
+</div>
+
+## IranIntlTV — post 345198
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345198_1782864808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهناز از کرج: مردم خیلی دوست دارند به هم کمک کنند، ولی نمی‌توانند
+
+یک ایران صدای شما را می‌شنود
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/vgKx8sCdbxY
+@iranintltv
+</div>
+
+## IranIntlTV — post 345197
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345197_1782864809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسول از هلند: به همسر جاویدنام حمیدرضا برومند رادکانی گفتند امضا کند که شوهرش تصادف کرده
+
+یک ایران صدای شما را می‌شنود
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/vgKx8sCdbxY
+@iranintltv
+</div>
+
+## IranIntlTV — post 345196
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345196_1782864811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهناز از کرج: مردم خیلی دوست دارند به هم کمک کنند، ولی نمی‌توانند
+
+یک ایران صدای شما را می‌شنود
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/vgKx8sCdbxY
+@iranintltv
+</div>
+
+## IranIntlTV — post 345195
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345195_1782864812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، نماینده آمریکا در سازمان ملل، از انتصاب الی کوهانیم، دیپلمات ایرانی‌تبار آمریکایی، به عنوان مشاور ارشد سیاست‌گذاری در نمایندگی ایالات متحده در سازمان ملل خبر داد.
+
+کوهانیم متولد تهران است و خانواده یهودی او پس از انقلاب ۱۳۵۷ ایران به آمریکا مهاجرت کردند. او در دولت نخست دونالد ترامپ معاون فرستاده ویژه وزارت خارجه آمریکا در امور مقابله با یهودستیزی بود و از منتقدان شناخته‌شده جمهوری اسلامی به شمار می‌رود.
+
+والتز با اعلام این انتصاب نوشت: «کمتر کسی به اندازه الی رژیم ایران را می‌شناسد» و افزود که از حضور او در تیم خود خرسند است.
+https://iranintl.com/202606307167
+</div>
+
+## IranIntlTV — post 345194
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345194_1782864813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز رسانه مجلس جمهوری اسلامی اعلام کرد سازمان صداوسیما پخش گفت‌وگوی ضبط‌شده محمدباقر قالیباف، رییس مجلس جمهوری اسلامی و رییس هیات مذاکره‌کننده را که برای ارائه گزارش درباره روند اجرای یادداشت تفاهم با آمریکا تهیه شده بود، از میانه برنامه متوقف کرده است.
+
+در اطلاعیه مرکز رسانه مجلس آمده است این گفت‌وگو بیش از دو ساعت پیش از زمان پخش در اختیار صداوسیما قرار گرفته بود و اگر قرار بود بخشی از آن پخش نشود، مسئولان این سازمان باید پیش از پخش موضوع را با مجلس هماهنگ می‌کردند.
+
+بر اساس این اطلاعیه، بخش‌های پخش‌نشده شامل پاسخ به موضوع بازرسی آژانس از تاسیسات هسته‌ای، جزییات پیگیری آزادسازی اموال بلوکه‌شده، اعتبار ۳۰۰ میلیارد دلاری بازسازی در متن تفاهم، پاسخ به اظهارات دونالد ترامپ و تبیین پیام رهبر جمهوری اسلامی در ۲۸ خرداد بوده است.
+
+همزمان، قطع ناگهانی این برنامه واکنش رسانه‌های داخلی را در پی داشت. رسانه‌هایی از جمله انتخاب، جماران و اقتصادآنلاین گزارش دادند گفت‌وگوی قالیباف بدون توضیح از شبکه خبر قطع شده است و درباره علت این اقدام گمانه‌زنی‌هایی مطرح کردند، اما صداوسیما تاکنون توضیحی در این باره منتشر نکرده است.
+</div>
+
+## IranIntlTV — post 345193
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345193_1782864813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی در ایکس از دیدار خود با «مقام‌های ارشد عراق» در سفر به بغداد خبر داد و گفت: عراق نیز مانند جمهوری اسلامی در حال آماده شدن برای برگزاری «یک مراسم تشییع عمومی گسترده» برای علی خامنه‌ای است و این رویداد به «تقویت پیوندهای برادری و روابط ریشه‌دار» دو کشور کمک خواهد کرد.
+https://iranintl.com/202606308280
+</div>
+
+## IranIntlTV — post 345192
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345192_1782864814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال فرانسه در مرحله یک‌شانزدهم نهایی جام جهانی ۲۰۲۶، سوئد را با نتیجه سه بر صفر شکست داد.
+
+🔹گل‌های بازی را کیلیان امباپه در دقایق ۴۵ و ۷۴ و برادله بارکلا در دقیقه ۵۳ برای فرانسه به ثمر رساندند.
+
+🔹این تیم ۱۴ تیرماه در فیلادلفیا به مصاف پاراگوئه خواهد رفت.
+
+🔹گزارشی از این بازی را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 7314
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_7314_1782864814.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 30 Jun 2026 23:42:07 UTC
+
+Greenzone, Baghdad
+Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+منطقه سبز، بغداد
+عراق 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 30 Jun 2026 23:39:32 UTC
+
+UAV towards the Green Zone of Baghdad, reportedly downed by the US forces.
+Iraq 🇮🇶
+
+ترجمه خودکار فارسی
+
+پهپاد به سمت منطقه سبز بغداد، بنا بر گزارش‌ها توسط نیروهای آمریکایی سرنگون شد.
+عراق 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 30 Jun 2026 23:30:46 UTC
+
+Explosion / gunfire in Baghdad, Iraq
+
+ترجمه خودکار فارسی
+
+انفجار / تیراندازی در بغداد، عراق
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 222352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وال‌استریت ژورنال: دونالد ترامپ درباره گزینه از سرگیری عملیات گسترده نظامی علیه جمهوری اسلامی با دستیارانش صحبت کرد
+
+▪️روزنامه وال‌استریت ژورنال در گزارشی که سه‌شنبه شب به وقت واشنگتن (۹ تیر) منتشر کرد گفت دونالد ترامپ، رئيس‌جمهوری آمریکا مشغل بررسی بازگشت به انجام عملیات گسترده نظامی علیه جمهوری اسلامی بوده است و درباره این موضوع با برخی مقام‌های ارشد از جمله پیت هگست، وزیر جنگ و دن کین، رئیس ستاد مشترک ارتش آمریکا گفت‌وگو کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166527.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222351
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222351_1782864815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جدال فرانسه و سوئد؛ شانزه‌لیزه در تب فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222350
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_222350_1782864815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس‌جمهوری آمریکا، در آستانه ۲۵۰سالگی آمریکا، تصویری از گذرنامه‌های جدید آمریکا را در تروت‌سوشال منتشر کرد. در گذرنامه‌های جدید تصویری از آقای ترامپ، و بنیانگذاران آمریکا دیده می‌شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222349
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222349_1782864816.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی‌دی ونس: باید به مذاکرات با جمهوری اسلامی فرصت داد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222348
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تعداد میلیونرهای جهان افزایش یافت؛ بیش از ۴۴۰هزار نفر به تعداد میلیونرهای آمریکایی افزوده شدند
+
+▪️بر اساس یک گزارش تازه، تعداد میلیونرهای جهان (دلار آمریکا) در سال ۲۰۲۵ افزایش یافته و نسبت به سال قبل ۱.۵ درصد رشد داشته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166526.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جشن‌های «۲۵۰ سالگی آمریکا» درواشنگتن ادامه دارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222346
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_222346_1782864817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شوک حذف آلمان از جام جهانی و گل به خودی هلند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شوک بزرگ جام، آلمان به خانه برگشت؛ گفت‌وگو با فرید اشرفیان خبرنگار ورزشی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 23604
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23604_1782864818.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مراحل حذفی تا به اینجای جام جهانی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23603
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23603_1782864819.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فرانسه با شکست ۳-۰ سوئد به دور بعد جام جهانی صعود کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## BBCPersian — post 285447
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285447_1782864820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تیم ملی فوتبال فرانسه موفق شد با پیروزی سه بر صفر مقابل سوئد به مرحله بعدی جام جهانی راه پیدا کند.
+
+شاگردان دیدیه دشان در این بازی عملکرد فوق‌العاده‌ای داشتند و توانستند با ارائه یک بازی هماهنگ و سریع، سه بار دروازه سوئدی‌ها را باز کنند.
+
+کیلین امباپه، یکی از بخت‌های توپ طلای این جام جهانی، گل اول و سوم خروس‌ها را زد و بردلی بارکولا، مهاجم پاری‌سن‌ژرمن، هم گل دوم را برای تیم ملی فرانسه به ثمر رساند.
+
+سوئد در بیشتر لحظات این بازی مقهور فرانسه بود و الکساندر ایساک، مهاجم سوئد نتوانست چندان موفق ظاهر شود.
+
+فرانسه در بازی بعدی خود در مرحله یک هشتم به مصاف پاراگوئه می‌رود. پاراگوئه دیشب موفق شد آلمان را در ضربات پنالتی از پیش رو بردارد.
+
+📷 AFP via Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 285446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پس از آن که مصاحبه تلویزیونی محمدباقر قالیباف درباره جنگ، تنگه هرمز و مذاکرات با آمریکا، در میانه آن به طور ناگهانی قطع شد، مرکز رسانه‌ای مجلس شورای اسلامی اطلاعیه‌ای به رسانه‌های داخل این کشور فرستاده و به این موضوع اعتراض کرده است. در اطلاعیه مرکز رسانه‌ای…
+</div>
+
+## BBCPersian — post 285445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پس از آن که مصاحبه تلویزیونی محمدباقر قالیباف درباره جنگ، تنگه هرمز و مذاکرات با آمریکا، در میانه آن به طور ناگهانی قطع شد، مرکز رسانه‌ای مجلس شورای اسلامی اطلاعیه‌ای به رسانه‌های داخل این کشور فرستاده و به این موضوع اعتراض کرده است.
+در اطلاعیه مرکز رسانه‌ای مجلس آمده است: «به اطلاع هم‌وطنان عزیز می‌رساند در راستای اجرای امر رهبری معظم انقلاب مبنی بر پیگیری شروط مشخص شده در یادداشت تفاهم اسلام آباد، جناب آقای دکتر قالیباف، رئیس قوه مقننه و رئیس هیئت مذاکره‌کننده کشورمان برای ارائه گزارش به مردم، گفتگویی تبیینی را طبق هماهنگی با سازمان صداوسیما انجام دادند که این گفتگو بیش از ۲ ساعت قبل از زمان پخش به آن سازمان تحویل داده شد؛ اما متاسفانه پخش این گفتگو از میانه آن متوقف شد».
+در ادامه این اطلاعیه امده است: «این در حالی است که این گفتگو به شکل ضبطی بوده و کمترین وظیفه مسئولین سازمان صداوسیما این بود که اگر خلاف رویه ها تصمیم به عدم پخش بخشی از گفتگو داشتند، آن را با این مرکز هماهنگ می کردند».
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393519
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393519_1782864820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥این شبا همه از جام جهانی دارن پول درمیارن
+🔥 
+💖اگه توم دوس داری فوتبال جام جهانی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو
+💖 
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری
+🔥
+💵 A9 
+‼️توم میتونی از…
+</div>
+
+## Dirty_Kids — post 393518
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393518_1782864820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥این شبا همه از جام جهانی دارن پول درمیارن
+🔥
+
+
+💖اگه توم دوس داری فوتبال جام جهانی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو
+💖
+
+
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری
+🔥
+💵
+A9
+
+‼️توم میتونی از پیش بینی جام جهانی یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو
+💖
+💖
+
+💖https://t.me/+zensxr2UqAk2NzA0
+
+💖https://t.me/+zensxr2UqAk2NzA0
+</div>
+
+## Dirty_Kids — post 393517
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393517_1782864821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393516
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393516_1782864821.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من هرچی سعی کردم حدس بزنم شغلش چیه نتونستم، شما متوجه شدین شغلش چیه؟؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393515
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393515_1782864822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس کی چالم میکنید کزکژا....
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393514
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393514_1782864823.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه بیشعوری خاصی تو سیاوش خیرابی و محسن مسلمان بود که بد نیست ببینید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393513
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393513_1782864825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسلط این بانوی ایرانی روی عضلات شکمش، عجیب و خفن‌ترین چیزیه که امشب میتونین ببینین.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/04/10 02:22
 ---
 
