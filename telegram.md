@@ -7,6 +7,820 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/11 02:12
+---
+
+## VahidOOnLine — post 248190
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248190_1782945758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده آمریکا، چهارشنبه ۱۰ تیر در جریان یک سخنرانی در داکوتای شمالی گفت کمونیسم بزرگ‌ترین تهدید برای آمریکا است.
+ترامپ گفت: «کمونیسم بزرگ‌ترین تهدید برای کشور ما است. این تهدید حتی از جنگ جهانی اول، جنگ جهانی دوم، حمله به پرل هاربر (حمله غافلگیرانه ژاپن به پایگاه دریایی آمریکا در هاوایی در سال ۱۹۴۱) و حملات ۱۱ سپتامبر هم بزرگ‌تر است، زیرا مانند سرطانی گسترش می‌یابد و باید هرچه سریع‌تر جلوی آن را گرفت. ما هرگز اجازه نخواهیم داد ایالات متحده به یک کشور کمونیستی تبدیل شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه‌شب پس از ورود با «قطار آزادی» به شهر مدورا در ایالت داکوتای شمالی، در سخنانی درباره کانال پاناما گفت آمریکا این کانال را پس از ساخت و بهره‌برداری موفق، واگذار کرد.
+
+ترامپ گفت کانال پاناما «گران‌ترین» و در عین حال «سودآورترین» پروژه‌ای بود که آمریکا ساخته بود. او با مقایسه این موضوع با ونزوئلا و حکومت ایران افزود: «ما در ونزوئلا کار خوبی انجام دادیم و درباره حکومت ایران هم به همان اندازه موفق عمل می‌کنیم.»
+
+رئیس‌جمهوری آمریکا گفت پس از واگذاری کانال پاناما، هزینه عبور کشتی‌ها چهار برابر افزایش یافت و سپس دوباره دو برابر شد، اما با وجود این افزایش تعرفه‌ها، هیچ کشتی‌ای از این مسیر خارج نشد و درآمدهای هنگفتی نصیب اداره‌کنندگان کانال شد.
+
+ترامپ در ادامه چین را به تلاش برای در دست گرفتن کنترل کانال پاناما متهم کرد و تاکید کرد: «ما اجازه نخواهیم داد این اتفاق بیفتد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248188
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248188_1782945758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از منابع امنیتی عراق گزارش داد یک پهپاد حامل مواد منفجره به اردوگاه یک گروه مخالف کُرد ایرانی در شرق اربیل عراق برخورد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248187
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248187_1782945759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از یک سال وقفه، شهرداری مرودشت بار دیگر تلاش خود برای الحاق شهرک مهدیه به حریم شهری را آغاز کرده است؛ منطقه ای که در حریم درجه ۲ میراث جهانی تخت جمشید قرار دارد و شورای راهبردی پایگاه های میراث جهانی پارسه - پاسارگاد پیش تر به طور قاطع با هرگونه گسترش شهر مرودشت در این محدوده مخالفت کرده بود.
+به گزارش ایرنا، محمدجواد جعفری، سرپرست پایگاه میراث جهانی تخت جمشید، اعلام کرد شهرداری مرودشت برای توسعه شهری در حریم تخت جمشید با یک مشاور قرارداد بسته و در حال طراحی و تعیین محدوده است؛ این در حالی است که پیش تر به آنها ابلاغ شده بود امکان گسترش شهری در این منطقه وجود ندارد.
+جعفری گفت شهرداری مرودشت با وجود همه مخالفت ها، در ۱۵ اردیبهشت ۱۴۰۵ طی مکاتبه ای با پایگاه میراث جهانی تخت جمشید اعلام کرده است که تهیه طرح مطالعات شهری محور مهدیه را در دست اقدام دارد.
+بر اساس این گزارش و به گفته سرپرست پایگاه میراث جهانی تخت جمشید، اداره کل میراث فرهنگی، گردشگری و صنایع دستی فارس پس از دریافت نامه شهرداری مرودشت، بار دیگر در مکاتبه ای با قائم مقام وزیر و معاون میراث فرهنگی کشور، خواستار پیگیری لغو این مصوبه شده است، اما این مکاتبه تاکنون پاسخی از وزارتخانه دریافت نکرده است.
+جعفری تاکید کرد حریم درجه ۲ تخت جمشید علاوه بر حفاظت از منظر این اثر جهانی، بیش از ۱۱۰ اثر تاریخی دیگر در دشت مرودشت را نیز در بر می گیرد و هرگونه توسعه شهری در این محدوده می تواند بر حفاظت از این آثار تاثیر بگذارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 248186
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_248186_1782945759.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ماجد الانصاری، سخنگوی وزارت امور خارجه قطر، پنجشنبه‌شب ۱۱ تیرماه در شبکه اجتماعی اکس نوشت میانجی‌گران قطری و پاکستانی در دوحه نشست‌های جداگانه‌ای با مذاکره‌کنندگان آمریکایی و ایرانی برگزار کردند.
+
+به گفته الانصاری، در این نشست‌ها درباره موضوع‌های مرتبط با تفاهم‌نامه امضاشده در اسلام‌آباد و بر پایه نتایج نشست دریاچه لوسرن، «پیشرفت مثبتی» حاصل شده است.
+
+او افزود طرف‌ها توافق کردند گفتگوها را در دوره آینده ادامه دهند و زمان نشست بعدی در نخستین فرصت پس از پایان مراسم تشییع علی خامنه‌ای،‌ رهبر پیشین جمهوری اسلامی تعیین خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 16304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه حزب آزادی کردستان ( پاک ) مستقر در منطقه کردستان عراق نیز در بیانیه‌ای اعلام کرد که دفتر مرکزی آن در استان اربیل هدف موشک بالستیک قرار گرفته است.
+@withyashar
+</div>
+
+## WithYashar — post 16303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 14 اسرائیل: مرکز فرماندهی منتسب به سپاه پاسداران در لبنان توسط ارتش اسرائیل (IDF) تصرف شد
+@withyashar
+</div>
+
+## WithYashar — post 16302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های رژیم : در ساعات گذشته دو مقر گروهک های تجزیه طلب متعلق به گروه‌های تروریستی در اقلیم کردستان عراق هدف حمله قرار گرفته‌اند.
+
+بر این اساس، یکی از حملات مقر گروهک تروریستی دمکرات در منطقه کویه را هدف قرار داده و حمله دیگر نیز مقر گروهک تروریستی پاک در منطقه بالکایتی را مورد اصابت قرار داده است.
+‎@withyashar
+</div>
+
+## WithYashar — post 16301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: در پاسخ به اقدامات گروهک‌های کرد که منجر به کشته‌شدن سه نیروی فراجا شد، یکی از مقرهای این گروهک در منطقه دِیکله (شمال کردستان عراق) هدف حمله قرار گرفت.
+@withyashar
+</div>
+
+## WithYashar — post 16300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش هایی از ارسال تجهیزات گسترده ارتش جمهوری اسلامی به خصوص نیروی زمینی به منطقه غرب کشور
+این حجم تجهیزات  بعد از زمان درگیری با داعش بی سابقه هست
+@withyashar
+</div>
+
+## WithYashar — post 16299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از منابع امنیتی عراق گزارش داد یک پهپاد حامل مواد منفجره به اردوگاه یک گروه مخالف کُرد ایرانی در شرق اربیل عراق برخورد کرد.
+@withyashar
+</div>
+
+## WithYashar — post 16298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش های زیاد از شلیک لانچر در ارومیه 🚨 @withyashar
+</div>
+
+## FoxNewsTwitter — post 343708
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343708_1782945760.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Sen. Mitch McConnell was reportedly found unconscious at his Washington, D.C., home on June 14 before being taken to a hospital, according to newly released emergency dispatch audio.
+
+The longtime Kentucky Republican was treated by emergency responders, but details about what led to the medical episode have not been released.
+
+McConnell has been absent from the Senate since the incident, and his office has not said when he is expected to return or provided an update on his condition.
+</div>
+
+## FoxNewsTwitter — post 343707
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343707_1782945760.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Aerial footage captures the moment a suspected bike thief sprints from deputies after allegedly stealing a GPS-equipped bait bike in Oregon.
+
+Authorities say the suspect took the decoy bicycle, triggering a foot chase through a neighborhood near Portland before deputies moved in to make an arrest.
+
+The bait bike operation was part of the Washington County Sheriff's Office's effort to crack down on bicycle theft.
+</div>
+
+## FoxNewsTwitter — post 343706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more about Fox News Digital's exclusive look at the long-secretive limestone mine 👉
+</div>
+
+## FoxNewsTwitter — post 343705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+EXCLUSIVE: Elon Musk and DOGE put this underground Pennsylvania mine in the spotlight — making it a national symbol of federal bureaucracy.
+
+Now, the Trump administration says it's reached a major milestone in finally bringing this outdated system to the modern era.
+
+Fox News Digital got rare access inside the once-secret Pennsylvania limestone mine, 230 feet underground, where officials say an efficiency breakthrough is beginning to retire one of the federal government's most notorious symbols of red tape.
+
+Under Trump, DOGE helped drive the digitization, marking what officials are calling the "Last Day of Paper" this week for federal retirements.
+
+Elon Musk praised the progress in an exclusive statement to Fox News Digital: "Now people can retire as soon as they want, instead of waiting 6 months for paper to be carried into a mine."
+
+@AshleyJDiMella @foxnewspolitics
+</div>
+
+## pm_afshaa — post 95189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل: مرکز فرماندهی منتسب به سپاه پاسداران در لبنان توسط ارتش اسرائیل (IDF) تصرف شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 95187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠حمله سنگین پهبادی و موشکی روسیه به کی یف
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کصکش اعظم زندش که به دردمون نخور حداقل خاکسترش باعث شد سر کار نریم بشینیم بازیای جام جهانیو ببینیم🥴
+</div>
+
+## pm_afshaa — post 95185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلژیک کابک زد 2.2
+</div>
+
+## pm_afshaa — post 95184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل دوم برا سنگال
+</div>
+
+## pm_afshaa — post 95183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش هایی از ارسال تجهیزات گسترده ارتش جمهوری اسلامی به خصوص نیروی زمینی به منطقه غرب کشور
+
+این حجم تجهیزات  بعد از زمان درگیری با داعش بی سابقه هست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک پهپاد سپاه به ساختمان حزب دموکرات کردستان ایران در منطقه مرزی کویه، استان اربیل، کردستان عراق حمله کرد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک پهپاد سپاه به ساختمان حزب دموکرات کردستان ایران در منطقه مرزی کویه، استان اربیل، کردستان عراق حمله کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترور الارم : از امشب حمله گروهک های کرد علیه ایران آغاز می شود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات سپاه به اقلیم کردستان عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95178
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل اول سنگال به بلژیک
+</div>
+
+## pm_afshaa — post 95177
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95177_1782945762.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت خارجه قطر:
+میانجی‌های قطری و پاکستانی در نشست‌های جداگانه با هیات‌های ایران و آمریکا در دوحه، به پیشرفت مثبتی درباره اجرای تفاهم‌نامه اسلام‌آباد رسیدن.
+
+طبق این گزارش، طرفین توافق کردن مذاکرات پس از پایان مراسم تشییع خامنه‌ای در زمان نزدیک از سر گرفته بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 95176
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_95176_1782945763.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پوتین در مراسم تشییع جنازه علی خامنه‌ای شرکت نخواهد کرد و به‌جای خودش دیمیتری مدودف رو به تهران می‌فرسته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 88251
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88251_1782945763.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی‌دی‌ونس:فکر می‌کنم کاری که رئیس‌جمهور به ما گفته این است که از این تفاهم‌نامه برای پرکردن مجدد ذخایر نفت جهان استفاده کنیم و بعد ببینیم اوضاع دست کیه
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 345350
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/345350" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی | مهم‌ترین درسی که مردم از ۳۷ سال حکومت خامنه‌ای گرفتند چیست؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 345349
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345349_1782945766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «بسیاری بعد از حمله ۷ اکتبر تصور می‌کردند اسرائیل دیگر توان بازگشت ندارد اما تنها در دو سال، نه‌تنها خود را بازیابی کرد، بلکه موازنه قدرت در خاورمیانه را نیز تغییر داد. سوال اینجاست که راز این بازگشت و برتری از کجا می‌آید؟»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345348
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345348_1782945767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامرضا قاسمیان، مداح و استاد حوزه، درباره صلح با آمریکا گفت مذاکره زمانی قابل قبول است که جمهوری اسلامی در موضع برتر قرار داشته باشد.
+
+او با اشاره به «صلح حدیبیه» افزود جمهوری اسلامی باید واشینگتن را اشغال کند و دونالد ترامپ را «کت‌بسته» نزد مجتبی خامنه‌ای ببرد؛ آن‌گاه تصمیم‌گیری درباره بخشش یا مجازات او بر عهده «مقام ولایت» خواهد بود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 345347
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_345347_1782945769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «راز برتری اسرائیل در خودانتقادی، ارزیابی بی‌وقفه و اصلاح بی‌امان نهفته است؛ جایی که هیچ نقطه‌ضعفی پنهان یا نادیده گرفته نمی‌شود و رضایت به وضع موجود یا پیروزی‌های گذشته وجود ندارد. یکی از مهم‌ترین بسترهای این رویکرد، کنفرانس هرتزلیا است؛ جایی که هر سال نقاط قوت و ضعف با نگاهی انتقادی بررسی می‌شوند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 345346
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_345346_1782945770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از منابع امنیتی عراق گزارش داد یک پهپاد حامل مواد منفجره به اردوگاه یک گروه مخالف کُرد ایرانی در شرق اربیل عراق برخورد کرد.
+https://iranintl.com/202607011131
+</div>
+
+## IranIntlTV — post 345337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ورود سه تماشاگر به زمین، بازی سنگال - بلژیک در جام جهانی ۲۰۲۶ را برای دقایقی متوقف کرد. مشخص نیست هدف آن‌ها چه بود، جز اینکه ظاهرا می‌خواستند از دویدن خود در زمین فیلم بگیرند.
+
+🔹در تعقیب‌وگریزی که به صحنه‌های فیلم‌های کمدی شباهت داشت، حدود ۱۲ نیروی امنیتی وارد عمل شدند؛ برخی از آن‌ها هنگام تعقیب روی چمن سر خوردند. در نهایت هر سه تماشاگر بازداشت و از زمین خارج شدند.
+
+🔹در جریان این اتفاق، بازی که در استادیوم سیاتل برگزار می‌شد، برای چند دقیقه متوقف شد. کارگردان تلویزیونی نیز تصاویر این افراد را پخش نکرد و پس از خروج آن‌ها، مسابقه از سر گرفته شد.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 222456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دولت بریتانیا ۲۳ میلیون پوند دیگر به آژانس امدادرسانی سازمان ملل برای آوارگان فلسطینی اختصاص داد. این تصمیم در شرایطی اعلام شده که منتقدان، با اشاره به فشار اقتصادی بر شهروندان و برخی مواضع اخیر دولت در قبال تحولات خاورمیانه، اولویت‌های سیاست خارجی حزب کارگر را زیر سؤال برده‌اند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️با گذشت یک ماه از بازداشت سمیرا نوروز ناصری، فیلمساز ساکن تهران، هنوز هیچ اطلاع رسمی از محل نگهداری و وضعیت او منتشر نشده است؛ موضوعی که نگرانی خانواده و فعالان حقوق بشر را تشدید کرده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺فرود اضطراری هلیکوپتر نظامی آمریکا در دریای عرب؛ ناوگان پنجم نیروی دریایی: ناشی از اقدام خصمانه نبود
+
+▪️نیروهای دریایی ستاد فرماندهی مرکزی ایالات متحده، ناوگان پنجم نیروی دریایی آمریکا، در بیانیه‌ای که روز چهارشنبه ۱۰ تیر منتشر کرد، گفت ساعت ۳:۳۰ بامداد همین روز به وقت شرق آمریکا، خدمه یک فروند هلیکوپتر ام‌اچ-۶۰ اس سی‌هاوک مستقر در ناو هواپیمابر یواس‌اس جورج اچ. دبلیو. بوش، در دریای عرب روی آب فرود اضطراری کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8166919.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 222453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نارضایتی کاربران از ادامه اختلال بانکی و قطعی برق در شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 18464
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_18464_1782945770.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+Eurofighter Typhoon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23654
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23654_1782945771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عده‌ای از طرفداران حکومت یه کمپینی راه انداختن به اسم حلالیت از آقای شهید :
+
+اینطوریه که اگه شما تا حالا درباره علی خامنه‌ای قضاوت اشتباه کردین یا بهش بی‌احترامی کردین الان می‌تونین با شرکت تو مراسم وداع و تشییعش ازش حلالیت بخواین.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23653
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23653_1782945772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه‌جوری داره از قلعه نویی تعریف میکنه خود قلعه نویی برگاش ریخته.
+
+از جان گذشتگی کرد؟! پرافتخار برگشتن؟! قلعه نویی مربی پر افتخار ملی؟! به نمایندگی از ۹۰ میلیون نفر اونجایی؟! ‌افتخارآفرینی؟!
+
+از تیمی که قهرمان شده هم اینطوری تعریف نمی کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23652
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23652_1782945774.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سپاه:
+
+در پاسخ به اقدامات گروهک‌های کرد که منجر به کشته‌شدن سه نیروی فراجا شد، یکی از مقرهای این گروهک در منطقه دِیکله (شمال کردستان عراق) هدف حمله قرار گرفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمید رسایی :
+
+طرحی جدید و فوری برای قطع اینترنت بین المللی بدلیل حفظ جان رهبر و فرماندهان در جز اولین اولویت های مجلس قرار خواهد گرفت .
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد مادر جاویدنام احمد خزایی با دیدن تصویر پسرش بر صفحه تلویزیون ایران‌اینترنشنال، گریه و زاری می‌کند.
+احمد خزایی، ۴۶ ساله، متولد نهاوند و ساکن تهرانپارس، در ۱۸ دی ۱۴۰۴ در شهریار با شلیک گلوله به گردنش کشته شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+@IranianMinds
+</div>
+
+## IranianMinds — post 23649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جشن تیرگان خجسته باد 
+🌿
+🌧 امروز روزی‌ست برای پاسداشت آب، زندگی، امید و پیروزی؛ روزی که در دل فرهنگ کهن ایران‌زمین، یادآور ایستادگی، همبستگی و عشق به میهن است. تیرگان، جشن باران و روشنایی، یادآور آرش کمانگیر است؛ آن دلیرمردی که با تمام توان خویش، تیرِ امید را…
+</div>
+
+## BBCPersian — post 285523
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285523_1782945775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مسعود پزشکیان، رئیس جمهور ایران، در اظهاراتی که به نظر می‌رسد واکنشی به بالا گرفتن انتقادهای داخلی از مذاکرات و تفاهمنامه میان تهران و واشنگتن است، گفته مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی، با مذاکرات نمایندگان این کشور با آمریکا مخالفتی نداشته است وگرنه هیچ دیدار و گفت‌و‌گویی صورت نمی‌گرفت.
+
+آقای پزشکیان روز چهارشنبه گفت: «در جریان تصمیم‌گیری برای مذاکرات رهبری عالی‌قدر فرمودند که اگر سه چهارم اعضای شورای عالی امنیت ملی رای مثبت دادند همین روند را در پیش بگیرید که در جلسه‌ای که برگزار شد از ۱۳ نفر، ۱۲ نفر صرفاً رای مثبت ندادند بلکه بحث و تبادل نظر کردند و قاطعانه حمایت کردند، اما امروز عده‌ای دولت را متهم می‌کنند که شما از نظر رهبری اطاعت نکرده‌اید، درحالیکه قطعا اگر ایشان دستور می‌دادند جلسه و مذاکره‌ای صورت نگیرد، نه جلسه می‌گذاشتیم و نه مذاکره‌ای صورت می‌گرفت.»
+
+📷 NurPhoto via Getty Images
+https://bbc.in/4fig4cj
+@BBCPersian
+</div>
+
+## BBCPersian — post 285522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک نظامی آمریکایی پس از سقوط هلی‌کوپتر در دریای عرب ناپدید شد، سه نفر زخمی
+ارتش آمریکا اعلام کرد که در پی فرود اضطراری یک هلی‌کوپتر «ام‌اچ-۶۰اس سی‌هاوک» در دریای عرب در روز چهارشنبه، یک نظامی آمریکایی مفقود و سه نفر دیگر مجروح شدند .
+
+ناوگان پنجم نیروی دریایی گفته است که هیچ نشانه‌ای مبنی بر اینکه این حادثه ناشی از اقدامات خصمانه باشد، وجود ندارد.
+
+این ناوگان در بیانیه‌اش اعلام کرد: «یگان‌های نیروی دریایی در منطقه در حال جست‌‌وجو برای یافتن خدمه پروازی هستند و علت این حادثه هم در دست بررسی است.»
+
+در این بیانیه همچنین آمده است که این هلی‌کوپتر به همراه ناو هواپیمابر «یو‌اس‌اس جورج اچ دابلیو بوش» به منطقه اعزام شده بود.
+
+به عقیده کارشناسان فرود هلی‌کوپتر بر روی آب حتی برای خلبانان باتجربه هم خطرناک است، زیرا احتمال دارد هلی‌کوپترهایی که مرکز ثقل بالایی دارند، هنگام غوطه‌ور شدن در آب واژگون شوند.
+
+https://bbc.in/4fe8twj
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393586
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393586_1782945775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو یکی از کشورای عربی، یه نفرو به 15 سال حبس محکوم میکنن، اما بخاطر اینکه رفیق صمیمی‌شم باهاش هست، از قاضی تشکر می‌کنه و میزنه زیر خنده😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393584
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393584_1782945776.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلمی از وضعیت ونزوئلا😐
+
+انگار دارن فصل جدید stranger things رو توش میسازن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393583
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393583_1782945777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏دخترا دو دقیقه بعد اینکه موهاشونو چتری میزنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393582
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393582_1782945777.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه سازش! نه تسلیم! نبرد با اسراییل!
+چه حرصی میخورن! :))))))))))))))))))
+گویی بوتاکس زدن تو صک و صورتم :))))))))))))))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393581
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393581_1782945779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصویری از وضعیت عجیب و آخرالزمانی آسمون ونزوئلا.
+
+دلیلشم گرد و غبار صحرای Sahara هست که از اقیانوس اطلس اومده و جو رو پر کرده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393580
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393580_1782945779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه دوستت یه مدته بخاطر اینکه رل زده باهات سرد شده، حتما این کلیپو بفرست براش.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 131371
+
+<div align="center">
+  <a href="telegram/content/alonews_131371_1782945780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حادثه امنیتی در ناو هواپیمابر جورج اچ دبلیو بوش در نزدیکی ایران و دریای عرب.
+
+
+🔴نیروهای نیروی دریایی آمریکا در جستجوی یک عضو خدمه مفقود شده از هلیکوپتری هستند که از ناو هواپیمابر جورج بوش برخاسته و در دریای عرب به صورت اضطراری فرود آمده است.
+
+
+🔴سه نفر از چهار عضو خدمه هلیکوپتر با موفقیت نجات یافته‌اند و در عرشه ناو هواپیمابر در حال بهبودی هستند
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131370
+
+<div align="center">
+  <a href="telegram/content/alonews_131370_1782945780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: برای مراسم‌ تشییع، همه مردم بیان
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کشور ایران از بیخ فاسده
+میترسن یکیو برکنار کنن اونیکیارو لو بده
+
+پس نتیجه میگیرن داخل ی سفره بشینن و بدزدنو بخورن
+
+فوتبال هم اینطور شده
+</div>
+
+## alonews — post 131368
+
+<div align="center">
+  <a href="telegram/content/alonews_131368_1782945780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر ورزش عربستان سعودی پس از حذف تیم ملی این کشور از جام جهانی، رئیس فدراسیون و چند مدیر ورزشی این کشور را عزل کرد، همچنین سرمربی تیم هم اخراج شده
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131367
+
+<div align="center">
+  <a href="telegram/content/alonews_131367_1782945781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴ اسرائیل: مرکز فرماندهی منتسب به سپاه پاسداران در لبنان توسط ارتش اسرائیل (IDF) تصرف شد
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131366
+
+<div align="center">
+  <a href="telegram/content/alonews_131366_1782945781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈به تاج و اعضای فدراسیون که رفتن به جام جهانی مجموعا بیش از 50میلیارد تومان حق ماموریت داده شده 
+🔴فک کن بری جام جهانی و بهترین هتل مفت بخوری و تیمت هم برینه و ۵۰میلیارد هم بگیری 
+✅ @AloNews
+</div>
+
+## alonews — post 131365
+
+<div align="center">
+  <a href="telegram/content/alonews_131365_1782945781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاچ: پیگیر هستیم تا به افتخار آفرینان تیم ملی خودرو یا ویلا به عنوان پاداش داده بشه 
+✅ @AloNews
+</div>
+
+## alonews — post 131364
+
+<div align="center">
+  <a href="telegram/content/alonews_131364_1782945781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاچ: پیگیر هستیم تا به افتخار آفرینان تیم ملی خودرو یا ویلا به عنوان پاداش داده بشه
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131363
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙فردوسی پور: نکنه پس‌فردا صبح با سوییس بازی داریم ما خبر نداریم اینا خبر دارن که مراسم استقبال گذاشتن!
+
+@AloSport
+</div>
+
+## alonews — post 131362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مجری صداوسیما جوری داره از قلعه‌نویی تعریف میکنه که خود قلعه‌ هم تعجب کرده!
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131361
+
+<div align="center">
+  <a href="telegram/content/alonews_131361_1782945782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشک‌های مهدی تاج پس از کسب قهرمانی در جام جهانی فوتبال 2026
+@AloSport
+</div>
+
+## alonews — post 131360
+
+<div align="center">
+  <a href="telegram/content/alonews_131360_1782945783.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع رسانه‌ای گزارش دادند: مقر احزاب تجزیه‌طلب در منطقة «ديكلة» واقع در شمال عراق هدف دو حمله پهپادی قرار گرفته است
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 131359
+
+<div align="center">
+  <a href="telegram/content/alonews_131359_1782945783.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حمله پهپادی به سمت اقلیم کردستان عراق
+
+
+✅ @AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/04/11 00:40
 ---
 
